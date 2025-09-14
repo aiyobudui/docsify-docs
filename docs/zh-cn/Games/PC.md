@@ -124,6 +124,10 @@
 
 夸克：https://pan.quark.cn/s/d2f57f3d9d7f
 
+#### 《琉隐神渡（Redemption of Liuyin）》Build.18304228 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/29eef751634c
+
 #### 《梦灯花（Noctuary）》v1.2.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/d2e7bd72014f
@@ -4176,10 +4180,6 @@
 #### 《碾压职场（Crush the Industry）》Build.18138126 中文版
 
 夸克：https://pan.quark.cn/s/6d6952c5c650
-
-#### 《琉隐神渡（Redemption of Liuyin）》Build.17844029 中文版
-
-夸克：https://pan.quark.cn/s/29eef751634c
 
 #### 《酒馆好时光（Inn Tycoon）》v34 中文版
 
