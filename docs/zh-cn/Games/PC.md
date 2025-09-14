@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/7bcd7745a9e5
 
+#### 《法师与魔物2（Mage and Monsters II）》v1.05a 中文版
+
+夸克：https://pan.quark.cn/s/0364c29c778f
+
 #### 《驱逐舰：U型艇猎手（Destroyer The U-Boat Hunter）》v1.0.13 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b1f0caa2e304
@@ -103,6 +107,10 @@
 #### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/49dd6d0d10cf
+
+#### 《义闻录：轮回（Echoes of Yi Samsara）》v16.547 中文版
+
+夸克：https://pan.quark.cn/s/edf409d461c2
 
 #### 《潜行者：晴空 增强版（S.T.A.L.K.E.R. Clear Sky - Enhanced Edition）》v1.3 中文版
 
@@ -4220,10 +4228,6 @@
 #### 《惨痕（Scarred）》v1.25 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/b62ad840d069
-
-#### 《义闻录 轮回（Echoes of Yi Samsara）》Build.18154004 中文版
-
-夸克：https://pan.quark.cn/s/edf409d461c2
 
 #### 《小飞船大冒险（Minishoot Adventures）》v1.05 中文版
 
