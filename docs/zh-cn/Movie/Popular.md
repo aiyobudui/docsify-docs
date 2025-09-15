@@ -588,14 +588,6 @@
 
 百度：<https://pan.baidu.com/s/13bfr10DWeoZFSWigFotyhA?pwd=0000>
 
-#### 《非诚勿扰3 (2023)，附1-2部》（葛优 舒淇 范伟）
-
-夸克：https://pan.quark.cn/s/c674feda2668
-
-迅雷：https://pan.xunlei.com/s/VNqutDAE3yLKwLkgu7W0QvA_A1?pwd=g578#
-
-百度：<https://pan.baidu.com/s/1rlgpECxRCu_KQ_rWU-VMxA?pwd=0000>
-
 #### 《养蜂人》（2024）4K
 
 夸克：https://pan.quark.cn/s/7e3ea90c4779

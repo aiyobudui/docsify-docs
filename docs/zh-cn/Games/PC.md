@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《迷雾审判（Misty Judgment）》v2025.9.15 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/1093617fba78
+
 #### 《欢迎来到林葬屋（Mourningwood Lodge）》v2025.9.14 中文版（真人互动影游 悬疑恐怖）
 
 夸克：https://pan.quark.cn/s/26ef4c7fa62e
@@ -55,6 +59,34 @@
 #### 《阴郁之眸（Gloomy Eyes）》v2025.9.13 中文版（黑暗解密）
 
 夸克：https://pan.quark.cn/s/7bcd7745a9e5
+
+#### 《银河文明4（Galactic Civilizations IV）超新星版》v3.01 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c48daefdfa37
+
+#### 《埃及建设者（Builders of Egypt）》v1.5021 中文版
+
+夸克：https://pan.quark.cn/s/fa4cf478789b
+
+#### 《燃獄花（Purgatory’s Flower）v2025.9.15 中文版（手绘冒险解密）
+
+夸克：https://pan.quark.cn/s/79786683771b
+
+#### 《星际卡车司机（Star Trucker）》v1.0.70 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/264f07963b3f
+
+#### 《毁灭工具（Instruments of Destruction）》v1.14A 中文版
+
+夸克：https://pan.quark.cn/s/1e3cbf012b07
+
+#### 《幻想鱼箱（Fantasy Aquarium）》v1.30 中文版（轻松治愈放置类）
+
+夸克：https://pan.quark.cn/s/b772f90eed5b
+
+#### 《云汉志（YUNHANZHI）》v2025.9.15 中文版
+
+夸克：https://pan.quark.cn/s/0423e3596532
 
 #### 《法师与魔物2（Mage and Monsters II）》v1.05a 中文版
 
@@ -107,6 +139,32 @@
 #### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/49dd6d0d10cf
+
+#### 《终点站：僵尸幸存者（Terminus：Zombie Survivors）》v1.2.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c4f40791a323
+
+#### 《东方夜雀食堂（Touhou Mystia's Izakaya）》v4.3.0a 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/326f1b18828c
+
+迅雷：https://pan.xunlei.com/s/VO3Cs9u9pfmsz8T42i9d-WjYA1?pwd=s3xz#
+
+#### 《蠕行的恐惧：克苏鲁选集（Menace from the Deep）》v1.17 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8e3150d7c266
+
+#### 《以撒的结合：重生（The Binding of Isaac：Rebirth）》v1.9.7.14 全DLC 汉化 联机版
+
+夸克：https://pan.quark.cn/s/72ba766c2a16
+
+#### 《射戮骑士（KILL KNIGHT）》v1.2.1 中文版
+
+夸克：https://pan.quark.cn/s/bba3f2a78d5b
+
+#### 《林中小女巫（Little Witch in the Woods）》v5.0.9.0 中文版
+
+夸克：https://pan.quark.cn/s/88dfa7a0455d
 
 #### 《义闻录：轮回（Echoes of Yi Samsara）》v16.547 中文版
 
@@ -2761,10 +2819,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNquonrMNI_pwCcqomUujexGA1?pwd=h7ny#
 
-#### 《蠕行的恐惧：克苏鲁选集（Menace from the Deep）》v1.15.5 中文版
-
-夸克：https://pan.quark.cn/s/8e3150d7c266
-
 #### 《冰与火之舞（A Dance of Fire and Ice）》v2.9.5 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e1f6e44cd68e
@@ -4749,10 +4803,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNoGU5fJ3l9OZ6iULlKV-xugA1?pwd=edrj#
 
-#### 《终点站：僵尸幸存者（Terminus：Zombie Survivors）》v1.1.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c4f40791a323
-
 #### 《纪元1800（Anno 1800）》v9.2.972600 全DLC 中文版（修复闪退和启动问题）
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
@@ -5160,10 +5210,6 @@
 #### 《崛起力量：测试英雄（Arisen Force：HeroTest）》v1.1.4 中文版
 
 夸克：https://pan.quark.cn/s/f094f1785f9b
-
-#### 《以撒的结合：重生（The Binding of Isaac：Rebirth）》v1.9.7.10 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/72ba766c2a16
 
 #### 《重装机犬（METAL DOGS）》v1.5.0 全DLC 中文版
 
@@ -6762,10 +6808,6 @@
 
 夸克：https://pan.quark.cn/s/09f68bca9ce1
 
-#### 《射戮骑士（KILL KNIGHT）》v1.0.0.108 中文版
-
-夸克：https://pan.quark.cn/s/bba3f2a78d5b
-
 #### 《海市蜃楼之馆（The House in Fata Morgana）》v1.3it 中文版
 
 夸克：https://pan.quark.cn/s/ce44f671a9b7
@@ -7035,10 +7077,6 @@
 #### 《史诗战争模拟器2（Ultimate Epic Battle Simulator 2）》v1.2 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/95855b9df0d4
-
-#### 《林中小女巫（Little Witch in the Woods）》v4.8.18.0 中文版
-
-夸克：https://pan.quark.cn/s/88dfa7a0455d
 
 #### 《恐怖派对（Spectral Scream）》v1.0.9 中文 联机版
 
@@ -7639,12 +7677,6 @@
 #### 《程序员升职记(Human Resource Machine)》v1.0.31924 中文版
 
 夸克：https://pan.quark.cn/s/1faa980cae3d
-
-#### 《东方夜雀食堂(Touhou Mystias Izakaya)》v4.1.2 中文版
-
-夸克：https://pan.quark.cn/s/326f1b18828c
-
-迅雷：https://pan.xunlei.com/s/VO3Cs9u9pfmsz8T42i9d-WjYA1?pwd=s3xz#
 
 #### 《黑暗欺骗（Dark Deception 1-4章）》v1.8.06 中文版
 

@@ -156,7 +156,7 @@
 
 阿里：<https://www.aliyundrive.com/s/nYwVj9LhZAB>
 
-#### 《精灵宝可梦》（1997-2019）蓝光1080P 1-7季全+23部剧场版+SP
+#### 《精灵宝可梦》（1997-2019）1080P 1-7季+23部剧场版+SP+特别篇+漫画
 
 夸克：https://pan.quark.cn/s/36cee93a168b
 

@@ -888,3 +888,11 @@
 #### 《寄生兽 电影版》（2014-2015）1-2部 蓝光1080P 中字
 
 夸克：https://pan.quark.cn/s/f81b1dab10e1
+
+#### 《非诚勿扰》1-3部 4K（葛优 舒淇 范伟）
+
+夸克：https://pan.quark.cn/s/c674feda2668
+
+迅雷：https://pan.xunlei.com/s/VNqutDAE3yLKwLkgu7W0QvA_A1?pwd=g578#
+
+百度：<https://pan.baidu.com/s/1rlgpECxRCu_KQ_rWU-VMxA?pwd=0000>
