@@ -449,7 +449,7 @@
 
 #### 《帝王计划：怪兽遗产》（2023）4K HDR 10集全
 
-夸克：https://pan.quark.cn/s/513a27af48b7
+夸克：https://pan.quark.cn/s/bd0149bb0349
 
 迅雷：https://pan.xunlei.com/s/VNlgIC3MPwoI3seVsAKtlHeaA1?pwd=i3vx#
 

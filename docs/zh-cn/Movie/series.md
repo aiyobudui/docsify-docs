@@ -118,6 +118,10 @@
 
 夸克：https://pan.quark.cn/s/68b7bcce9df6
 
+#### 《角斗士》（2020-2024）1-2部 4K+1080P 国英双配音 中字
+
+夸克：https://pan.quark.cn/s/b0fa163f80b2
+
 #### 《饥饿站台2》（2019-2024）1080P 中字 惊悚（附第一部）
 
 夸克：https://pan.quark.cn/s/4ef07ee4db23
@@ -788,6 +792,10 @@
 夸克：https://pan.quark.cn/s/bd0149bb0349
 
 阿里：https://www.aliyundrive.com/s/YvV7N1NQ9TS
+
+#### 《金刚》1-2部 4K HDR 中英配音 外挂中字
+
+夸克：https://pan.quark.cn/s/bd0149bb0349
 
 #### 《阿凡达》1-2部 蓝光4K HDR 中英配音 特效中英字幕
 

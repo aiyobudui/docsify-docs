@@ -287,7 +287,7 @@
 
 迅雷：https://pan.xunlei.com/s/VO1i1Ihd_Yi3wyurvOzWmDG8A1?pwd=w4s3#
 
-#### 《长空之王》（2023）4K + 1080P
+#### 《长空之王》（2023）4K 120帧
 
 夸克：https://pan.quark.cn/s/95598c62aed7
 

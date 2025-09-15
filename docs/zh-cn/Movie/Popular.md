@@ -112,10 +112,6 @@
 
 夸克：https://pan.quark.cn/s/3290a860f2c1
 
-#### 《角斗士2》（2024）4K HDR
-
-夸克：https://pan.quark.cn/s/b0fa163f80b2
-
 #### 《志愿军：存亡之战》（2024）4K
 
 夸克：https://pan.quark.cn/s/664afb3c29cc
@@ -474,13 +470,13 @@
 
 #### 《哥斯拉大战金刚2：帝国崛起》（2024）4K 国英双配音（附第一部）
 
-夸克：https://pan.quark.cn/s/6737c4883843
+夸克：https://pan.quark.cn/s/bd0149bb0349
 
 迅雷：https://pan.xunlei.com/s/VNxmzG_VyIp9ZTrRD0pSqDsqA1?pwd=a222#
 
-#### 《哥斯拉-1.0》（2023）日版 4K蓝光原盘REMUX 内封简中
+#### 《哥斯拉-1.0》（2023）4K
 
-夸克：https://pan.quark.cn/s/ec72ac9e0989
+夸克：https://pan.quark.cn/s/bd0149bb0349
 
 迅雷：https://pan.xunlei.com/s/VNwoVgIuibeMWZ3ypVn72EhVA1?pwd=ejb3#
 
