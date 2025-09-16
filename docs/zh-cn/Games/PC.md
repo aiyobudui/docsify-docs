@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《死亡重启（Dead Reset）》v1.0.2 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/db29fa67fa52
+
 #### 《迷雾审判（Misty Judgment）》v2025.9.15 中文版（真人互动影游）
 
 夸克：https://pan.quark.cn/s/1093617fba78
@@ -61,6 +65,18 @@
 #### 《阴郁之眸（Gloomy Eyes）》v2025.9.13 中文版（黑暗解密）
 
 夸克：https://pan.quark.cn/s/7bcd7745a9e5
+
+#### 《欺神弄鬼》v2025.8.20 中文版
+
+夸克：https://pan.quark.cn/s/8ee2e5e0d489
+
+#### 《火星人闹翻地球（Mars Attracts）》v0.1.12 中文版（管理建造模拟）
+
+夸克：https://pan.quark.cn/s/262f25dede5b
+
+#### 《东京地下杀手（Tokyo Underground Killer）》v1.0.3 中文版
+
+夸克：https://pan.quark.cn/s/1eab24f9b3d5
 
 #### 《M.A.S.S. Builder》v1.0.2 中文版（二次元机甲）
 
@@ -124,6 +140,10 @@
 
 ## 最近更新
 
+#### 《多重人生（The Alters）豪华版》v1.3.0.7 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/9acd136be1ad
+
 #### 《梦之形（Shape of Dreams）》v1.0.1_s 中文 联机版
 
 夸克：https://pan.quark.cn/s/23375927f4ba
@@ -143,6 +163,10 @@
 #### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/49dd6d0d10cf
+
+#### 《银河破裂者（The Riftbreaker）》v1101.732 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/25e9433a5b5c
 
 #### 《方块奥德赛（Cubic Odyssey）》v1.0.3.4 中文 联机版（开发世界宇宙沙盒）
 
@@ -558,7 +582,7 @@
 
 夸克：https://pan.quark.cn/s/a49118bc8aac
 
-#### 《奥塔里昂：最后的战斗（Ortharion The Last Battle）》v0.6 中文版
+#### 《奥萨里昂：终极之战（Ortharion The Last Battle）》v0.6 中文版（奥塔里昂：最后的战斗）
 
 夸克：https://pan.quark.cn/s/e74977c76a51
 
@@ -1045,10 +1069,6 @@
 #### 《魔女之泉R（WitchSpring R）豪华版》v1.105 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/c0595c915639
-
-#### 《银河破裂者（The Riftbreaker）》v1092.718 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/25e9433a5b5c
 
 #### 《饿殍：明末千里行（The Hungry Lamb）》v1.43 电脑版（附安卓版）
 
@@ -1587,10 +1607,6 @@
 #### 《北极汽车旅馆模拟器（Arctic Motel Simulator）》v3.0.2 中文版
 
 夸克：https://pan.quark.cn/s/c3954adb4a0f
-
-#### 《多重人生（The Alters）》v1.2.0.13 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/9acd136be1ad
 
 #### 《星空（Starfield）高级版》v1.15.222.0 全DLC 中文版
 
