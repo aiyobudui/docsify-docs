@@ -19,6 +19,10 @@
 
 ---
 
+#### 《芳华》（2017）蓝光1080P （附小说）
+
+夸克：https://pan.quark.cn/s/c3fcaeebe1be
+
 #### 《花束般的恋爱》（2021）4K 60帧 国日配音双版本
 
 夸克：https://pan.quark.cn/s/a09c77e3bce3
