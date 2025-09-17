@@ -66,6 +66,10 @@
 
 夸克：https://pan.quark.cn/s/7bcd7745a9e5
 
+#### 《量子破碎（Quantum Break）》v1.0.126.0307 u2 中文版
+
+夸克：https://pan.quark.cn/s/48a3eaf6c498
+
 #### 《欺神弄鬼》v2025.8.20 中文版
 
 夸克：https://pan.quark.cn/s/8ee2e5e0d489
@@ -163,6 +167,10 @@
 #### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/49dd6d0d10cf
+
+#### 《房产达人（House Flipper）》v1.25258 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bf324abb2ddf
 
 #### 《银河破裂者（The Riftbreaker）》v1101.732 全DLC 中文 联机版（新增DLC）
 
@@ -1828,7 +1836,7 @@
 
 夸克：https://pan.quark.cn/s/b2a5af81441b
 
-#### 《房产达人2（House Flipper 2）》v1.9.2.0 全DLC 中文版（附第一部）
+#### 《房产达人2（House Flipper 2）》v1.9.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bf324abb2ddf
 
