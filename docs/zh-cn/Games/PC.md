@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《残音系少年少女（Type NOISE Shonen Shojo）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/e4c467bcfcdd
+
 #### 《肉鸽弹弹奇兵（Flick Shot Rogues）》v1.00.01.540 中文版
 
 夸克：https://pan.quark.cn/s/a20f29a9fd8d
@@ -72,6 +76,14 @@
 
 夸克：https://pan.quark.cn/s/8ee2e5e0d489
 
+#### 《憎恶之影（Shadows Over Loathing）》v2024.3.6 汉化版
+
+夸克：https://pan.quark.cn/s/9c1bd2ce9006
+
+#### 《憎恨之西（West of Loathing）》v1.11.11.11.11 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/b544f8400cfa
+
 ---
 
 ## 最近更新
@@ -87,6 +99,10 @@
 #### 《黑色童话：梦境幸存者（Dark Fairy Tale Dreamland Survivors）》v1.1.1.1859 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/d3586fe0f9a3
+
+#### 《鸦卫奇旅（Ravenswatch）》v1.03.01.00.26879 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b9dde09b6e05
 
 #### 《恐鬼症（Phasmophobia）》v0.14.0.1 中文 联机版
 
@@ -3480,10 +3496,6 @@
 #### 《机械守护者（RoboQuest）》v1.6.1.51744 中文 联机版（射击肉鸽）
 
 夸克：https://pan.quark.cn/s/81d644036ad0
-
-#### 《鸦卫奇旅（Ravenswatch）》v1.02.01.00.26685 中文版
-
-夸克：https://pan.quark.cn/s/b9dde09b6e05
 
 #### 《漫威银河护卫队（Marvel's Guardians of the Galaxy）》v2984448 全DLC 豪华中文版
 
