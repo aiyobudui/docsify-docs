@@ -48,6 +48,18 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《未知项目（Project Unknown）》v0.9.4 中文 联机版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/f32803e18acc
+
+#### 《书店模拟器（Bookshop Simulator》0.1.786 中文版
+
+夸克：https://pan.quark.cn/s/15577763a262
+
+#### 《百变大脑亨利（Henry Halfhead）》v1.0.10 中文版
+
+夸克：https://pan.quark.cn/s/b79e8f89d575
+
 #### 《残音系少年少女（Type NOISE Shonen Shojo）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/e4c467bcfcdd
@@ -107,6 +119,12 @@
 #### 《恐鬼症（Phasmophobia）》v0.14.0.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/f06faddc881c
+
+#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.40P 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cada1bfb9fd0
+
+迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
 
 ---
 
@@ -6206,12 +6224,6 @@
 #### 《波斯王子：Rogue（The Rogue Prince of Persia）》v0.10.5 中文版
 
 夸克：https://pan.quark.cn/s/7fbdb3772fed
-
-#### 《深岩银河：幸存者（Deep Rock Galactic：Survivor）》v0.4.19D 中文版
-
-夸克：https://pan.quark.cn/s/cada1bfb9fd0
-
-迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
 
 #### 《冥界清道夫（Crypt Custodian）》v1.0020 中文版
 
