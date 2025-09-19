@@ -48,7 +48,7 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.0 全DLC 中文配音版
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.0 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
@@ -120,6 +120,16 @@
 
 ## 最近更新
 
+#### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.0s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
+
 #### 《梦之形（Shape of Dreams）》v1.0.5.2_s 中文 联机版
 
 夸克：https://pan.quark.cn/s/23375927f4ba
@@ -127,6 +137,24 @@
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28650 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/c2b1316245c1
+
+#### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.2.88095 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/58b4bb5b676d
+
+#### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.124013.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/dffcc45a56c8
+
+迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
+
+#### 《触手回春（Do No Harm）》v1.2.0 中文版
+
+夸克：https://pan.quark.cn/s/8c7a813ede21
 
 #### 《黑色童话：梦境幸存者（Dark Fairy Tale Dreamland Survivors）》v1.1.1.1859 全DLC 中文版
 
@@ -255,10 +283,6 @@
 #### 《双影奇境（Split Fiction）》v2025.5.27 中文 联机版
 
 夸克：https://pan.quark.cn/s/7448c3c0ea81
-
-#### 《冰汽时代2（Frostpunk 2）豪华版》v1.3.1 全DLC 中文配音版
-
-夸克：https://pan.quark.cn/s/d1d00e8c72d5
 
 #### 《浪人崛起（Rise of the Ronin）》v1.09.0.4 全DLC 中文 联机版
 
@@ -706,10 +730,6 @@
 
 夸克：https://pan.quark.cn/s/8a83ac5f92b0
 
-#### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.0.87582 中文版
-
-夸克：https://pan.quark.cn/s/58b4bb5b676d
-
 #### 《吸血鬼（Vampyr）》v1.1.7 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fb9375d76737
@@ -865,12 +885,6 @@
 #### 《人格解体（Depersonalization）》v2.1.12 中文版
 
 夸克：https://pan.quark.cn/s/dbc9f55f6603
-
-#### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.123249.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/dffcc45a56c8
-
-迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
 
 #### 《地狱丧钟（Hell Clock）支持者版》v1.0.3.HF3 全DLC 中文版
 
@@ -1696,10 +1710,6 @@
 
 夸克：https://pan.quark.cn/s/f56bd5be8765
 
-#### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.2.0.0 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/c2b1316245c1
-
 #### 《维多利亚3（Victoria 3）豪华版》v1.9.8 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/5b0145311ea9
@@ -1775,10 +1785,6 @@
 #### 《深海迷航：冰点之下（Subnautica Below Zero）》v53115 中文版
 
 夸克：https://pan.quark.cn/s/c1be0a9e8f67
-
-#### 《触手回春（Do No Harm）》v1.1.3 中文版
-
-夸克：https://pan.quark.cn/s/8c7a813ede21
 
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）》v2025.8.12 中文版
 
@@ -2651,12 +2657,6 @@
 #### 《至高天（Empyreal）》v1.0.3.30041 中文版
 
 夸克：https://pan.quark.cn/s/70274f7b28a9
-
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）》v1.55.1.0s 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
 
 #### 《乐客萌途（Locomoto）》v1.0.5 中文版（火车生活模拟冒险）
 
