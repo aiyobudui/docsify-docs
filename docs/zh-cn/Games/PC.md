@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
+#### 《王国与城堡（Kingdoms and Castles）》v123r6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fb8044733216
+
 #### 《永久与神树的祈愿者（Towa and the Guardians of the Sacred Tree）》V1.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f22ec5ffd5db
@@ -99,6 +103,10 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《胡闹厨房 全都好吃（Overcooked! All You Can Eat) 》v1173 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/90ad780a2681
 
 #### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v10.1.0.1 全DLC 中文版
 
@@ -7554,10 +7562,6 @@
 #### 《肯泽拉传说：扎乌（Tales of Kenzera：ZAU）》v1.3.1.43002 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e9bfc21e633e
-
-#### 《胡闹厨房 全都好吃（Overcooked! All You Can Eat) 》v1156 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/90ad780a2681
 
 #### 《蒸汽世界：建造（SteamWorld）》Build.1.0.11 全DLC 豪华中文版
 

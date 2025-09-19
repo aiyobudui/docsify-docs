@@ -19,6 +19,10 @@
 
 ---
 
+#### 《毛泽东的故事》（1992）1080P（传记）
+
+夸克：https://pan.quark.cn/s/ce088547f639
+
 #### 《芳华》（2017）蓝光1080P （附小说）
 
 夸克：https://pan.quark.cn/s/c3fcaeebe1be
