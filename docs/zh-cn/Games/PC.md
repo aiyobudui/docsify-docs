@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
+#### 《空之轨迹 重制版（Trails in the Sky 1st Chapter）》v2025.9.19 全DLC 暂无中文
+
+夸克：https://pan.quark.cn/s/aa4673559fef
+
 #### 《王国与城堡（Kingdoms and Castles）》v123r6 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fb8044733216
