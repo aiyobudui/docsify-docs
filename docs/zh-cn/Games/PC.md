@@ -92,30 +92,6 @@
 
 夸克：https://pan.quark.cn/s/b24891cba0c1
 
-#### 《死亡重启（Dead Reset）》v1.0.2 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/db29fa67fa52
-
-#### 《阴郁之眸（Gloomy Eyes）》v2025.9.13 中文版（黑暗解密）
-
-夸克：https://pan.quark.cn/s/7bcd7745a9e5
-
-#### 《量子破碎（Quantum Break）》v1.0.126.0307 u2 中文版
-
-夸克：https://pan.quark.cn/s/48a3eaf6c498
-
-#### 《欺神弄鬼》v2025.8.20 中文版
-
-夸克：https://pan.quark.cn/s/8ee2e5e0d489
-
-#### 《憎恶之影（Shadows Over Loathing）》v2024.3.6 汉化版
-
-夸克：https://pan.quark.cn/s/9c1bd2ce9006
-
-#### 《憎恨之西（West of Loathing）》v1.11.11.11.11 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/b544f8400cfa
-
 ---
 
 ## 最近更新
@@ -123,6 +99,18 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v10.1.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
+#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.39390 离线 中文版
+
+夸克：https://pan.quark.cn/s/ec9392c8a6d4
+
+迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
 
 #### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.0s 全DLC 中文 联机版
 
@@ -347,6 +335,30 @@
 ---
 
 ## 已有游戏
+
+#### 《死亡重启（Dead Reset）》v1.0.2 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/db29fa67fa52
+
+#### 《阴郁之眸（Gloomy Eyes）》v2025.9.13 中文版（黑暗解密）
+
+夸克：https://pan.quark.cn/s/7bcd7745a9e5
+
+#### 《量子破碎（Quantum Break）》v1.0.126.0307 u2 中文版
+
+夸克：https://pan.quark.cn/s/48a3eaf6c498
+
+#### 《欺神弄鬼》v2025.8.20 中文版
+
+夸克：https://pan.quark.cn/s/8ee2e5e0d489
+
+#### 《憎恶之影（Shadows Over Loathing）》v2024.3.6 汉化版
+
+夸克：https://pan.quark.cn/s/9c1bd2ce9006
+
+#### 《憎恨之西（West of Loathing）》v1.11.11.11.11 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/b544f8400cfa
 
 #### 《多重人生（The Alters）豪华版》v1.3.0.7 全DLC 中文版
 
@@ -2484,12 +2496,6 @@
 
 夸克：https://pan.quark.cn/s/cc019406a152
 
-#### 《逃离塔科夫（Escape from Tarkov）》v0.16.1.3.35392 离线 中文版
-
-夸克：https://pan.quark.cn/s/ec9392c8a6d4
-
-迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
-
 #### 《诺兰德（Norland）》Build.19064798 中文版
 
 夸克：https://pan.quark.cn/s/d04dc6bff941
@@ -3244,12 +3250,6 @@
 #### 《Eternal Strands》v1.0.14.0600 中文版（永恒之链）
 
 夸克：https://pan.quark.cn/s/71ecb0cb40c0
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v7.2.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《异星工厂（Factorio）》v2.0.55 全DLC 中文 联机版
 
