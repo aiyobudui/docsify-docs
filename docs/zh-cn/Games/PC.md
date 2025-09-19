@@ -48,6 +48,26 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.0 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《永久与神树的祈愿者（Towa and the Guardians of the Sacred Tree）》V1.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f22ec5ffd5db
+
+#### 《Mai Child of Ages》v1.0 中文版（动作冒险 女性角色）
+
+夸克：https://pan.quark.cn/s/036c85ee9e0d
+
+#### 《极地觉醒（Arctic Awakening）》v2025.9.19 中文版
+
+夸克：https://pan.quark.cn/s/c755ae397294
+
+#### 《Puzzle Quest：不朽版》v1.0.0.3388 中文版（消消乐游戏）
+
+夸克：https://pan.quark.cn/s/a9f420a8be3c
+
 #### 《未知项目（Project Unknown）》v0.9.4 中文 联机版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/f32803e18acc
