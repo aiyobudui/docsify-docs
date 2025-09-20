@@ -35,7 +35,7 @@
 
 #### 《凡人修仙传》（2025）4K 60帧 30集全（杨洋 金晨）真人版
 
-夸克：https://pan.quark.cn/s/51a074ad371a
+夸克：https://pan.quark.cn/s/7bf5dca2abae
 
 #### 《华山论剑》（2025）4K 60帧 30集全（分为《九阴真经》《东邪西毒》《南帝北丐》《五绝争锋》4个单元剧）
 
@@ -65,7 +65,7 @@
 
 #### 《利剑玫瑰》（2025）4K 32集全
 
-夸克：https://pan.quark.cn/s/fde5b9e38449
+夸克：https://pan.quark.cn/s/4b4c1aebe05e
 
 迅雷：https://pan.xunlei.com/s/VOXZDWZUL2Rz3D-cbJ0eg9vPA1?pwd=rjv5#
 
@@ -89,7 +89,9 @@
 
 #### 《书卷一梦》（2025）4K 60帧 40集全
 
-夸克：https://pan.quark.cn/s/d2888ef78659
+夸克：和谐
+
+迅雷：https://pan.xunlei.com/s/VO_aJs1QT5wRLVidilJxaCFxA1?pwd=mhpd#
 
 #### 《以法之名》（2025）4K 60帧 36集全
 
@@ -107,7 +109,7 @@
 
 #### 《长安的荔枝》（2025）4K 60帧 35集全（附小说）
 
-夸克：https://pan.quark.cn/s/86330e9ac77c
+夸克：https://pan.quark.cn/s/574bdbcdf50b
 
 迅雷：https://pan.xunlei.com/s/VOVgNAQ2DDlk5sgLqi0ZrJNXA1?pwd=3peb#
 

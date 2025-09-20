@@ -52,9 +52,29 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
+#### 《心跳大冒险：泰遇（Heartbeat In Thailand）》v2025.9.20 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/444755842df9
+
 #### 《空之轨迹 重制版（Trails in the Sky 1st Chapter）》v2025.9.19 全DLC 暂无中文
 
 夸克：https://pan.quark.cn/s/aa4673559fef
+
+#### 《天境争锋（Skygard Arena）》v2025.9.20 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bd68aa374b51
+
+#### 《Sushi Ben》v1.5.250918.5 中文版（暖心冒险游戏）
+
+夸克：https://pan.quark.cn/s/a43c6cf8b120
+
+#### 《Gates Of Eden》v2025.9.20 中文版（FPS肉鸽打怪兽）
+
+夸克：https://pan.quark.cn/s/5680b2a1ff5d
+
+#### 《Platypus 重制版（Platypus Reclayed）》v1.0.20 中文版
+
+夸克：https://pan.quark.cn/s/ae3cb686b9a9
 
 #### 《王国与城堡（Kingdoms and Castles）》v123r6 全DLC 中文版
 
@@ -68,38 +88,6 @@
 
 夸克：https://pan.quark.cn/s/036c85ee9e0d
 
-#### 《极地觉醒（Arctic Awakening）》v2025.9.19 中文版
-
-夸克：https://pan.quark.cn/s/c755ae397294
-
-#### 《Puzzle Quest：不朽版》v1.0.0.3388 中文版（消消乐游戏）
-
-夸克：https://pan.quark.cn/s/a9f420a8be3c
-
-#### 《未知项目（Project Unknown）》v0.9.4 中文 联机版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/f32803e18acc
-
-#### 《书店模拟器（Bookshop Simulator》0.1.786 中文版
-
-夸克：https://pan.quark.cn/s/15577763a262
-
-#### 《百变大脑亨利（Henry Halfhead）》v1.0.10 中文版
-
-夸克：https://pan.quark.cn/s/b79e8f89d575
-
-#### 《残音系少年少女（Type NOISE Shonen Shojo）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/e4c467bcfcdd
-
-#### 《肉鸽弹弹奇兵（Flick Shot Rogues）》v1.00.01.540 中文版
-
-夸克：https://pan.quark.cn/s/a20f29a9fd8d
-
-#### 《种呱得呱（Rana Card）》v1.0.6 中文版（肉鸽卡牌）
-
-夸克：https://pan.quark.cn/s/b24891cba0c1
-
 ---
 
 ## 最近更新
@@ -107,6 +95,18 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《梦之形（Shape of Dreams）》v1.0.6.2_s 中文 联机版
+
+夸克：https://pan.quark.cn/s/23375927f4ba
+
+#### 《失落之魂（Lost Soul Aside）》v1.0009 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/254473ee08f7
+
+#### 《枪火重生（Gunfire Reborn）》v2025.9.19 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7e87c85f9a72
 
 #### 《胡闹厨房 全都好吃（Overcooked! All You Can Eat) 》v1173 全DLC 中文 联机版
 
@@ -130,10 +130,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
 
-#### 《梦之形（Shape of Dreams）》v1.0.5.2_s 中文 联机版
-
-夸克：https://pan.quark.cn/s/23375927f4ba
-
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28650 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
@@ -151,28 +147,6 @@
 夸克：https://pan.quark.cn/s/dffcc45a56c8
 
 迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
-
-#### 《触手回春（Do No Harm）》v1.2.0 中文版
-
-夸克：https://pan.quark.cn/s/8c7a813ede21
-
-#### 《黑色童话：梦境幸存者（Dark Fairy Tale Dreamland Survivors）》v1.1.1.1859 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/d3586fe0f9a3
-
-#### 《鸦卫奇旅（Ravenswatch）》v1.03.01.00.26879 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b9dde09b6e05
-
-#### 《恐鬼症（Phasmophobia）》v0.14.0.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/f06faddc881c
-
-#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.40P 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/cada1bfb9fd0
-
-迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
 
 ---
 
@@ -348,6 +322,60 @@
 
 ## 已有游戏
 
+#### 《触手回春（Do No Harm）》v1.2.0 中文版
+
+夸克：https://pan.quark.cn/s/8c7a813ede21
+
+#### 《黑色童话：梦境幸存者（Dark Fairy Tale Dreamland Survivors）》v1.1.1.1859 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/d3586fe0f9a3
+
+#### 《鸦卫奇旅（Ravenswatch）》v1.03.01.00.26879 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b9dde09b6e05
+
+#### 《恐鬼症（Phasmophobia）》v0.14.0.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/f06faddc881c
+
+#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.40P 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cada1bfb9fd0
+
+迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
+
+#### 《极地觉醒（Arctic Awakening）》v2025.9.19 中文版
+
+夸克：https://pan.quark.cn/s/c755ae397294
+
+#### 《Puzzle Quest：不朽版》v1.0.0.3388 中文版（消消乐游戏）
+
+夸克：https://pan.quark.cn/s/a9f420a8be3c
+
+#### 《未知项目（Project Unknown）》v0.9.4 中文 联机版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/f32803e18acc
+
+#### 《书店模拟器（Bookshop Simulator》0.1.786 中文版
+
+夸克：https://pan.quark.cn/s/15577763a262
+
+#### 《百变大脑亨利（Henry Halfhead）》v1.0.10 中文版
+
+夸克：https://pan.quark.cn/s/b79e8f89d575
+
+#### 《残音系少年少女（Type NOISE Shonen Shojo）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/e4c467bcfcdd
+
+#### 《肉鸽弹弹奇兵（Flick Shot Rogues）》v1.00.01.540 中文版
+
+夸克：https://pan.quark.cn/s/a20f29a9fd8d
+
+#### 《种呱得呱（Rana Card）》v1.0.6 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/b24891cba0c1
+
 #### 《死亡重启（Dead Reset）》v1.0.2 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/db29fa67fa52
@@ -379,10 +407,6 @@
 #### 《末日的回声（Echoes of the End）》v1.0.4 中文版（电影级3A新动作冒险类魂）
 
 夸克：https://pan.quark.cn/s/ac1e0683f780
-
-#### 《失落之魂（Lost Soul Aside）》v1.0007 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/254473ee08f7
 
 #### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
 
@@ -1480,7 +1504,7 @@
 
 夸克：https://pan.quark.cn/s/e459884d9239
 
-#### 《莱恩岛生存指南（Lens Island）》v1.1b 中文版
+#### 《莱恩岛生存指南（Lens Island）》v1.1b 中文 联机版
 
 夸克：https://pan.quark.cn/s/ea7c0d999573
 
@@ -1657,10 +1681,6 @@
 #### 《帝国霸业：银河生存（Empyrion Galactic Survival）》v1.13.B4795 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/707801c5f647
-
-#### 《枪火重生（Gunfire Reborn）》v20250814 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/7e87c85f9a72
 
 #### 《僵尸世界大战：劫后余生（World War Z Aftermath）》Build.19333239 全DLC 豪华中文版
 
