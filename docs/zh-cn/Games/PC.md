@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/aa4673559fef
 
+#### 《爆击艺术3（BREAK ARTS III）》v1.0.1 中文版（究极机甲定制动作游戏）
+
+夸克：https://pan.quark.cn/s/a7c3e437493b
+
 #### 《蚀之境（Eclipsium）》v2025.9.21 中文版
 
 夸克：https://pan.quark.cn/s/cb74616e8c15
