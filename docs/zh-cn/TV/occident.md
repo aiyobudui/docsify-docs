@@ -25,25 +25,41 @@
 
 ## 正在更新中的..
 
+#### 《入侵》（2021-2025）第三季 1080P 更新中..（附 1-2季全 外星人入侵科幻剧）
+
+夸克：https://pan.quark.cn/s/3b1f47eab5e6
+
+迅雷：https://pan.xunlei.com/s/VO_gO4e3Eu522eqxwmZLO7FuA1?pwd=izai#
+
 #### 《异形：地球  Alien：Earth》（2025）1080P 8集 更新中...（科幻）
 
 夸克：https://pan.quark.cn/s/f6d9987ede6f
 
-#### 《研究院》（2025）1080P 中字 8集更新中..（又名：异能研究所）
+迅雷：https://pan.xunlei.com/s/VO_gLXmtNyXmC-lyAP1UmE55A1?pwd=2xce#
+
+#### 《V世代》（2023-2025）第二季 4K 更新中..（附第一季 黑袍纠察队衍生新剧）
+
+夸克：https://pan.quark.cn/s/2ead2457f148
+
+迅雷：https://pan.xunlei.com/s/VNncVnj-NHs2eqzeLKvYHI4hA1?pwd=4bi4#
+
+阿里：<https://www.aliyundrive.com/s/vKUUX8aGQev>
+
+----
+
+## 已完结的
+
+#### 《研究院》（2025）1080P 中字 8集全（又名：异能研究所）
 
 夸克：https://pan.quark.cn/s/ecf3f8262f14
 
-#### 《基地》（2021-2025）1080P 中字 第3季更新中..（附1-2季全）（不错的科幻剧推荐）
+#### 《基地》（2021-2025）1-3季全 1080P 中字 （不错的科幻剧推荐）
 
 夸克：https://pan.quark.cn/s/03b6dbae81d8
 
 迅雷：https://pan.xunlei.com/s/VNncOVQaVIOJAHKixEcQ-kFrA1?pwd=kcpe#
 
 阿里：<https://www.aliyundrive.com/s/X9giXHTuTdt>
-
-----
-
-## 已完结的
 
 #### 《杀戮人机》（2025）1080P 10集全（科幻）
 
@@ -517,14 +533,6 @@
 
 阿里：<https://www.aliyundrive.com/s/P9mhnHvV1MU>
 
-#### 《V世代》（2023）4K HDR高码 简中 8集全（黑袍纠察队衍生新剧）
-
-夸克：https://pan.quark.cn/s/2ead2457f148
-
-迅雷：https://pan.xunlei.com/s/VNncVnj-NHs2eqzeLKvYHI4hA1?pwd=4bi4#
-
-阿里：<https://www.aliyundrive.com/s/vKUUX8aGQev>
-
 #### 《心跳漏一拍》（2022-2023）1-2季集全 1080P 中英配音 内封官中
 
 夸克：https://pan.quark.cn/s/f33ebdde6aaa
@@ -736,10 +744,6 @@
 夸克：https://pan.quark.cn/s/f5352665cbc9
 
 阿里：<https://www.aliyundrive.com/s/8KkUzeYsewg>
-
-#### 《入侵》（2021-2023）1-2季全 1080P 硬中字（外星人入侵科幻剧）
-
-夸克：https://pan.quark.cn/s/3b1f47eab5e6
 
 #### 《逃出危城》1-2季 1080P 俄罗斯（末日丧尸剧）
 

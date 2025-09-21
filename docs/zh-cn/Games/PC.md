@@ -128,6 +128,10 @@
 
 夸克：https://pan.quark.cn/s/254473ee08f7
 
+#### 《僵尸毁灭工程（Project Zomboid）》v42.11 中文 联机版
+
+夸克：https://pan.quark.cn/s/7660a8757ab1
+
 #### 《伊始之地（Terra Nil）豪华版》v1.2.10 中文版
 
 夸克：https://pan.quark.cn/s/90b60ae2cc4a
@@ -3302,10 +3306,6 @@
 夸克：https://pan.quark.cn/s/0b95ef7328ff
 
 迅雷：https://pan.xunlei.com/s/VNvvhP7qXn0JqsP6n7yGtpTCA1?pwd=6wth#
-
-#### 《僵尸毁灭工程（Project Zomboid）》v42.8.1a 中文 联机版
-
-夸克：https://pan.quark.cn/s/7660a8757ab1
 
 #### 《危险节奏3（Beat Hazard 3）》v1.041 全DLC 中文版
 
