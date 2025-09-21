@@ -60,6 +60,30 @@
 
 夸克：https://pan.quark.cn/s/aa4673559fef
 
+#### 《蚀之境（Eclipsium）》v2025.9.21 中文版
+
+夸克：https://pan.quark.cn/s/cb74616e8c15
+
+#### 《啦嗒铛（Ratatan）》v0.5.2 中文版（节奏横轴动作）
+
+夸克：https://pan.quark.cn/s/4662be18e03e
+
+#### 《毁灭协议（Moros Protocol）》v1.0.5 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3d71587b5d72
+
+#### 《胡言山的魔理沙（Marisa of Liartop Mountain）》v1.0.3 中文版
+
+夸克：https://pan.quark.cn/s/4d5b701cc98b
+
+#### 《海珂：北境极光（HYKE Northern Light(s)）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/8232526fdd78
+
+#### 《长夜之后（After Long Night）》v9.17 中文版
+
+夸克：https://pan.quark.cn/s/9735f993960f
+
 #### 《天境争锋（Skygard Arena）》v2025.9.20 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bd68aa374b51
@@ -100,9 +124,25 @@
 
 夸克：https://pan.quark.cn/s/23375927f4ba
 
-#### 《失落之魂（Lost Soul Aside）》v1.0009 全DLC 中文版
+#### 《失落之魂（Lost Soul Aside）》v1.009 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/254473ee08f7
+
+#### 《伊始之地（Terra Nil）豪华版》v1.2.10 中文版
+
+夸克：https://pan.quark.cn/s/90b60ae2cc4a
+
+#### 《方块公国 (Drop Duchy）》v1.1.18 中文版（俄罗斯方块）
+
+夸克：https://pan.quark.cn/s/632298c20af7
+
+#### 《寻找伪人（No Im not a Human）》v1.1.17 中文版
+
+夸克：https://pan.quark.cn/s/50375cac2ce2
+
+#### 《网络奇兵：重制版（System Shock）》v1.3.0.19128 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1d2b7e4aafcf
 
 #### 《枪火重生（Gunfire Reborn）》v2025.9.19 全DLC 中文 联机版
 
@@ -517,10 +557,6 @@
 #### 《乐高航海家（LEGO Voyagers）》v2025.9.15 中文版（可本地双人游玩）
 
 夸克：https://pan.quark.cn/s/35147a6d8e50
-
-#### 《寻找伪人（No Im not a Human）》v1.1.3 中文版
-
-夸克：https://pan.quark.cn/s/50375cac2ce2
 
 #### 《TDS Tower Defense Strategy》v2025.5.26 中文版（策略塔防）
 
@@ -1645,10 +1681,6 @@
 夸克：https://pan.quark.cn/s/cddc57b2c0d3
 
 迅雷：https://pan.xunlei.com/s/VNttMzdbquKPx0hR5YfuJ5h8A1?pwd=5crq#
-
-#### 《伊始之地（Terra Nil）豪华版》v1.2.7 中文版
-
-夸克：https://pan.quark.cn/s/90b60ae2cc4a
 
 #### 《犯罪现场清洁工（Crime Scene Cleaner）》v2.0.1g 中文版（更新噩梦模式）
 
@@ -3784,10 +3816,6 @@
 #### 《被诅咒的圣战（The Cursed Crusade）》v1.0 Update7 汉化版
 
 夸克：https://pan.quark.cn/s/79a64c1ec564
-
-#### 《方块公国 (Drop Duchy）》v0.40.6 中文版（俄罗斯方块类）
-
-夸克：https://pan.quark.cn/s/632298c20af7
 
 #### 《牌兵布阵（Commander Quest）》v1.0.40.776 中文版
 
@@ -8704,10 +8732,6 @@
 #### 《雨中冒险2》全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/3c4590dfcd3b
-
-#### 《网络奇兵：重制版》最新 中文版
-
-夸克：https://pan.quark.cn/s/1d2b7e4aafcf
 
 #### 《时空幻境：周年纪念版》最新 中文版
 
