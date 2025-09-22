@@ -28,6 +28,10 @@
 
 ---
 
+#### 《大侠立志传》V1.2.117 全DLC 安卓完整版 内置控制台（Steam移植）
+
+夸克：https://pan.quark.cn/s/0aa78f825f7b
+
 #### 《饿殍：明末千里行（The Hungry Lamb）》安卓版
 
 夸克：https://pan.quark.cn/s/437089040cc4

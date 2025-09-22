@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/444755842df9
 
+#### 《黑暗童话（Dark Fairy Tale）》v25.09.19.16 中文版
+
+夸克：https://pan.quark.cn/s/705848284dac
+
 #### 《空之轨迹 重制版（Trails in the Sky 1st Chapter）》v2025.9.19 全DLC 暂无中文
 
 夸克：https://pan.quark.cn/s/aa4673559fef
@@ -123,6 +127,18 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《最终幻想起源：天堂的陌生人(Stranger of Paradise Final Fantasy Origin)》v1.32 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/0d3ba3983499
+
+#### 《末日地带2（Endzone 2）》v1.0.9356.17132 全DLC 中文版（末世生存建造）
+
+夸克：https://pan.quark.cn/s/7a2346ef73d5
+
+#### 《神树残响（Echoes of the Divine Tree）》Build.20000053 中文版
+
+夸克：https://pan.quark.cn/s/5903b05a0776
 
 #### 《梦之形（Shape of Dreams）》v1.0.6.2_s 中文 联机版
 
@@ -1226,10 +1242,6 @@
 
 夸克：https://pan.quark.cn/s/d139849152ba
 
-#### 《最终幻想起源：天堂的异乡人(Stranger of Paradise Final Fantasy Origin)》v1.30 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/0d3ba3983499
-
 #### 《最终幻想7：重生（FINAL FANTASY VII REBIRTH）》v1.003 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e13e2a9be916
@@ -2119,10 +2131,6 @@
 #### 《严阵以待（Ready or Not）》v90642 全DLC 豪华中文 联机版
 
 夸克：https://pan.quark.cn/s/296a2d4242e8
-
-#### 《末日地带2（Endzone 2）》v1.0.9341.22031 全DLC 中文版（末世生存建造）
-
-夸克：https://pan.quark.cn/s/7a2346ef73d5
 
 #### 《终结者：黑暗命运 - 反抗（Terminator Dark Fate - Defiance Complete）》v1.07.1145.1.HF 全DLC 中文版
 
@@ -4750,10 +4758,6 @@
 #### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
 
 夸克：https://pan.quark.cn/s/a7e623eb4d65
-
-#### 《神树残响（Echoes of the Divine Tree）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/5903b05a0776
 
 #### 《心跳文学部Plus（Doki Doki Literature Club Plus!）》Build.10766092 中文版（心理恐惧）
 
