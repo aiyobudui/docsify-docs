@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《死亡日：狂杀末路（Deadly Days Roadtrip）》v0.14.7 中文版
+
+夸克：https://pan.quark.cn/s/8c416e2735d2
+
 #### 《罪恶帝国（Empire of Sin）高级版》v2025.9.15 全DLC 中文版（策略游戏）
 
 夸克：https://pan.quark.cn/s/74ff7e65eab6
@@ -115,6 +119,12 @@
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.24 中文版
 
 夸克：https://pan.quark.cn/s/d88da55c16aa
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(82) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.8 中文版（鸭子侦探）
 
@@ -1781,12 +1791,6 @@
 #### 《古墓丽影 1-3 复刻版（Tomb Raider I-III Remastered）》v2025.8.14 中文版
 
 夸克：https://pan.quark.cn/s/5638268b2980
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(77) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《欧陆风云4（Europa Universalis IV）终极版》v1.37.5.0 全DLC 中文 联机版
 
