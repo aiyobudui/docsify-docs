@@ -48,9 +48,17 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.0 全DLC 中文配音 联机版
+#### 《寂静岭F（SILENT HILL F）豪华版》v1.1.378720 全DLC 中文版（心理恐怖游戏）
 
-夸克：https://pan.quark.cn/s/7cd3766e113d
+夸克：https://pan.quark.cn/s/90391fdabda9
+
+#### 《罪恶帝国（Empire of Sin）高级版》v2025.9.15 全DLC 中文版（策略游戏）
+
+夸克：https://pan.quark.cn/s/74ff7e65eab6
+
+#### 《活体脑细胞（SOMA）》v2025.9.22 中文版（科幻恐怖）
+
+夸克：https://pan.quark.cn/s/0b4ab975b7a3
 
 #### 《心跳大冒险：泰遇（Heartbeat In Thailand）》v2025.9.20 中文版（真人互动影游）
 
@@ -88,41 +96,51 @@
 
 夸克：https://pan.quark.cn/s/8232526fdd78
 
-#### 《长夜之后（After Long Night）》v9.17 中文版
-
-夸克：https://pan.quark.cn/s/9735f993960f
-
-#### 《天境争锋（Skygard Arena）》v2025.9.20 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bd68aa374b51
-
-#### 《Sushi Ben》v1.5.250918.5 中文版（暖心冒险游戏）
-
-夸克：https://pan.quark.cn/s/a43c6cf8b120
-
-#### 《Gates Of Eden》v2025.9.20 中文版（FPS肉鸽打怪兽）
-
-夸克：https://pan.quark.cn/s/5680b2a1ff5d
-
-#### 《Platypus 重制版（Platypus Reclayed）》v1.0.20 中文版
-
-夸克：https://pan.quark.cn/s/ae3cb686b9a9
-
-#### 《王国与城堡（Kingdoms and Castles）》v123r6 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fb8044733216
-
-#### 《永久与神树的祈愿者（Towa and the Guardians of the Sacred Tree）》V1.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f22ec5ffd5db
-
-#### 《Mai Child of Ages》v1.0 中文版（动作冒险 女性角色）
-
-夸克：https://pan.quark.cn/s/036c85ee9e0d
-
 ---
 
 ## 最近更新
+
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.24.2 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/3a5af4f32c61
+
+#### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179243 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/29e03743d12f
+
+#### 《我在地府打麻将（Demonic Mahjong）》v0.2.24 中文版
+
+夸克：https://pan.quark.cn/s/d88da55c16aa
+
+#### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.8 中文版（鸭子侦探）
+
+夸克：https://pan.quark.cn/s/efec6df22bb0
+
+#### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）v2.2.12 中文版（鸭子侦探）
+
+夸克：https://pan.quark.cn/s/efec6df22bb0
+
+#### 《古墓丽影 4-6 复刻版（Tomb Raider IV VI Remastered）》v20250919 中文版
+
+夸克：https://pan.quark.cn/s/378fa2dcb99a
+
+#### 《群星（Stellaris）终极版》v4.1.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e812eb1562dd
+
+迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
+
+#### 《北境之地（Northgard）》v3.7.52.42509 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/b9d16fda4a89
+
+#### 《枪火重生（Gunfire Reborn）》v2025.9.22 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7e87c85f9a72
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
 
@@ -147,70 +165,6 @@
 #### 《失落之魂（Lost Soul Aside）》v1.009 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/254473ee08f7
-
-#### 《僵尸毁灭工程（Project Zomboid）》v42.11 中文 联机版
-
-夸克：https://pan.quark.cn/s/7660a8757ab1
-
-#### 《伊始之地（Terra Nil）豪华版》v1.2.10 中文版
-
-夸克：https://pan.quark.cn/s/90b60ae2cc4a
-
-#### 《方块公国 (Drop Duchy）》v1.1.18 中文版（俄罗斯方块）
-
-夸克：https://pan.quark.cn/s/632298c20af7
-
-#### 《寻找伪人（No Im not a Human）》v1.1.17 中文版
-
-夸克：https://pan.quark.cn/s/50375cac2ce2
-
-#### 《网络奇兵：重制版（System Shock）》v1.3.0.19128 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1d2b7e4aafcf
-
-#### 《枪火重生（Gunfire Reborn）》v2025.9.19 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/7e87c85f9a72
-
-#### 《胡闹厨房 全都好吃（Overcooked! All You Can Eat) 》v1173 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/90ad780a2681
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v10.1.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
-
-#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.39390 离线 中文版
-
-夸克：https://pan.quark.cn/s/ec9392c8a6d4
-
-迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
-
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.0s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28650 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
-
-#### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/c2b1316245c1
-
-#### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.2.88095 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/58b4bb5b676d
-
-#### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.124013.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/dffcc45a56c8
-
-迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
 
 ---
 
@@ -264,10 +218,6 @@
 
 夸克：https://pan.quark.cn/s/e6b2b4cad601
 
-#### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v1.5.1(178626) 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/29e03743d12f
-
 #### 《战神5：诸神黄昏（God of War Ragnarök）豪华版》v1.0.668.5700 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7510e0c2474a
@@ -309,10 +259,6 @@
 夸克：https://pan.quark.cn/s/acdfbd5f0bcf
 
 迅雷：https://pan.xunlei.com/s/VNobS--BYgvmW-SB-fHXvnODA1?pwd=vtus#
-
-#### 《消逝的光芒2：人与仁之战（Dying Light 2）豪华版》v1.23.0 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/3a5af4f32c61
 
 #### 《漫威蜘蛛侠2（Marvels Spider-Man 2）》v1.526.0.0 全DLC 豪华中文版
 
@@ -385,6 +331,98 @@
 ---
 
 ## 已有游戏
+
+#### 《长夜之后（After Long Night）》v9.17 中文版
+
+夸克：https://pan.quark.cn/s/9735f993960f
+
+#### 《天境争锋（Skygard Arena）》v2025.9.20 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bd68aa374b51
+
+#### 《Sushi Ben》v1.5.250918.5 中文版（暖心冒险游戏）
+
+夸克：https://pan.quark.cn/s/a43c6cf8b120
+
+#### 《Gates Of Eden》v2025.9.20 中文版（FPS肉鸽打怪兽）
+
+夸克：https://pan.quark.cn/s/5680b2a1ff5d
+
+#### 《Platypus 重制版（Platypus Reclayed）》v1.0.20 中文版
+
+夸克：https://pan.quark.cn/s/ae3cb686b9a9
+
+#### 《王国与城堡（Kingdoms and Castles）》v123r6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fb8044733216
+
+#### 《永久与神树的祈愿者（Towa and the Guardians of the Sacred Tree）》V1.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f22ec5ffd5db
+
+#### 《Mai Child of Ages》v1.0 中文版（动作冒险 女性角色）
+
+夸克：https://pan.quark.cn/s/036c85ee9e0d
+
+#### 《僵尸毁灭工程（Project Zomboid）》v42.11 中文 联机版
+
+夸克：https://pan.quark.cn/s/7660a8757ab1
+
+#### 《伊始之地（Terra Nil）豪华版》v1.2.10 中文版
+
+夸克：https://pan.quark.cn/s/90b60ae2cc4a
+
+#### 《方块公国 (Drop Duchy）》v1.1.18 中文版（俄罗斯方块）
+
+夸克：https://pan.quark.cn/s/632298c20af7
+
+#### 《寻找伪人（No Im not a Human）》v1.1.17 中文版
+
+夸克：https://pan.quark.cn/s/50375cac2ce2
+
+#### 《网络奇兵：重制版（System Shock）》v1.3.0.19128 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1d2b7e4aafcf
+
+#### 《胡闹厨房 全都好吃（Overcooked! All You Can Eat) 》v1173 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/90ad780a2681
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v10.1.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
+#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.39390 离线 中文版
+
+夸克：https://pan.quark.cn/s/ec9392c8a6d4
+
+迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.0s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28650 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/c2b1316245c1
+
+#### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.2.88095 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/58b4bb5b676d
+
+#### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.124013.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/dffcc45a56c8
+
+迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
 
 #### 《触手回春（Do No Harm）》v1.2.0 中文版
 
@@ -1182,10 +1220,6 @@
 
 夸克：https://pan.quark.cn/s/b5566d4550ab
 
-#### 《我在地府打麻将（Demonic Mahjong）》v0.2.16 中文版
-
-夸克：https://pan.quark.cn/s/d88da55c16aa
-
 #### 《恐怖奶奶 重制版（Granny Remake）》v3.6.3 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/9a39677a3258
@@ -1455,12 +1489,6 @@
 #### 《铁锈风云1949（Grit and Valor - 1949）》v1.4.0 全DLC 中文版（架空二战即时战略）
 
 夸克：https://pan.quark.cn/s/34b3c57db0aa
-
-#### 《群星（Stellaris）终极版》v4.0.22 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e812eb1562dd
-
-迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
 
 #### 《嗜血印（Bloody Spell）》v2024.8.19 中文 联机版
 
@@ -1749,10 +1777,6 @@
 #### 《迷失混沌王国：永恒之骰（Lost in Random The Eternal Die）特别版》v29915 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/c8b9ed6e6661
-
-#### 《古墓丽影 4-6 复刻版（Tomb Raider IV VI Remastered）》v20250814 中文版
-
-夸克：https://pan.quark.cn/s/378fa2dcb99a
 
 #### 《古墓丽影 1-3 复刻版（Tomb Raider I-III Remastered）》v2025.8.14 中文版
 
@@ -2249,10 +2273,6 @@
 #### 《喵斯快跑（Muse Dash）》v5.6.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/84aed71b9812
-
-#### 《北境之地（Northgard）》v3.7.30.42250 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/b9d16fda4a89
 
 #### 《原始星球（primal planet）》v1.0 中文版
 
@@ -9620,10 +9640,6 @@
 #### 《恐惧与饥饿 系列合集（Fear and Hunger）》2部 最新 中文版
 
 夸克：https://pan.quark.cn/s/fdd4e48f9b50
-
-#### 《鸭子侦探 系列合集（Duck Detective）》2部 最新 英文版
-
-夸克：https://pan.quark.cn/s/efec6df22bb0
 
 #### 《纪念碑谷 系列合集（Monument Valley）》3部 最新 中文 电脑版
 
