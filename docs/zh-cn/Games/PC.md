@@ -156,7 +156,7 @@
 
 夸克：https://pan.quark.cn/s/efec6df22bb0
 
-#### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）v2.2.12 中文版（鸭子侦探）
+#### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）》v2.3.7 中文版（鸭子侦探）
 
 夸克：https://pan.quark.cn/s/efec6df22bb0
 
