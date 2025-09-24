@@ -11,8 +11,16 @@
 
   <div class="h1-style">对酒当歌分享<small>每日更新</small></div>
 
-  <div class="resource-style">一个非常专业的纯资源分享文档</div>
+  <div class="resource-style">一个专业的纯资源分享文档</div>
 </div>
+
+- 无套路、海量资源免费分享
+- 有游戏、电影、电视剧、动漫、纪录片、综艺、音乐等等
+
+[进  入](home)
+[留言板](/zh-cn/bbs)
+[电脑游戏](/zh-cn/Games/PC)
+[QQ群①](https://qm.qq.com/q/7XUsPNUXPq)
 
 <style>
 .cover-content {
@@ -113,10 +121,3 @@ small {
 }
 </style>
 
-- 无套路、海量资源免费分享、
-- 有游戏、电影、电视剧、动漫、纪录片、音乐、书籍、短剧等等
-
-[进  入](home)
-[留言板](/zh-cn/bbs)
-[电脑游戏](/zh-cn/Games/PC)
-[QQ群①](https://qm.qq.com/q/7XUsPNUXPq)

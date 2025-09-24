@@ -114,6 +114,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
+#### 《天国拯救2（Kingdom Come Deliverance 2）黄金版》v1.4.1 全DLC 中文版（新增DLC）
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.3 中文 联机版
+
+夸克：https://pan.quark.cn/s/220acef4a4a1
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28714 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
@@ -129,6 +141,10 @@
 #### 《地狱即我们（Hell is Us）》v1.4.22.43941 全DLC 中文版（冒险动作）
 
 夸克：https://pan.quark.cn/s/656ab3363cbd
+
+#### 《都市天际线（Cities Skylines）豪华版》v1.20.1.f1 全DLC 中文版 新增DLC（城市天际线）
+
+夸克：https://pan.quark.cn/s/2a96be3cbc82
 
 #### 《史莱姆牧场2（Slime Rancher 2）》v1.0.0 中文版
 
@@ -201,14 +217,6 @@
 夸克：https://pan.quark.cn/s/270b43d38b1a
 
 迅雷：https://pan.xunlei.com/s/VNtguTWIFDx9QvHxz05SH1VPA1?pwd=jxux#
-
-#### 《天国拯救2（Kingdom Come Deliverance 2）黄金版》v1.4.0 全DLC 中文版（新增DLC）
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/220acef4a4a1
 
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0 全DLC 中文版（魂游）
 
@@ -477,10 +485,6 @@
 夸克：https://pan.quark.cn/s/9c1147b7ac79
 
 迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28650 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
 
@@ -4846,10 +4850,6 @@
 #### 《三国志8：重制版（ROTTK8 REMAKE）》v1.0.7 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/8e85211fbc49
-
-#### 《都市天际线（Cities Skylines）》v1.19.2-f3 全DLC 豪华中文版 附MOD（城市天际线）
-
-夸克：https://pan.quark.cn/s/2a96be3cbc82
 
 #### 《盗贼之海（Sea Of Thieves）》v2.137.949.0 豪华中文 联机版 附升级补丁
 
