@@ -118,7 +118,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
-#### 《天国拯救2（Kingdom Come Deliverance 2）黄金版》v1.4.1 全DLC 中文版（新增DLC）
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.1 全DLC 中文版（新增DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
 

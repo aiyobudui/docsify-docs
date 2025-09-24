@@ -45,10 +45,6 @@
 
 阿里：<https://www.aliyundrive.com/s/vKUUX8aGQev>
 
-#### 《漫威丧尸 Marvel Zombies》 (2025) 1087P 高码 4集全
-
-夸克：https://pan.quark.cn/s/7e5ae5986801
-
 ----
 
 ## 已完结的
