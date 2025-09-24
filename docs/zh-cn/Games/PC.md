@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《生化变种（BIOMUTANT）》v1.7.0 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/5f177fa15653
+
 #### 《死寂：诅咒回声（Dead Silence - Echoes of the Damned）》v2025.9.24 中文版（氛围恐怖游戏）
 
 夸克：https://pan.quark.cn/s/d97c364ba7ec
