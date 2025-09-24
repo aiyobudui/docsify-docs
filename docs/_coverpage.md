@@ -14,14 +14,6 @@
   <div class="resource-style">一个专业的纯资源分享文档</div>
 </div>
 
-- 无套路、海量资源免费分享
-- 有游戏、电影、电视剧、动漫、纪录片、综艺、音乐等等
-
-[进  入](home)
-[留言板](/zh-cn/bbs)
-[电脑游戏](/zh-cn/Games/PC)
-[QQ群①](https://qm.qq.com/q/7XUsPNUXPq)
-
 <style>
 .cover-content {
   max-width: 1200px;
@@ -74,18 +66,15 @@ small {
     .cover-content {
       text-align: center; /* 移动端恢复居中 */
     }
-    
     .video-container {
       margin: 20px auto; /* 移动端视频居中 */
     }
-    
     .h1-style {
       font-size: 2.5em;
     }
     .resource-style {
       font-size: 2em;
     }
-    
     small {
       display: block; /* 移动端恢复块级元素 */
       margin-left: 0;
@@ -103,7 +92,6 @@ small {
       font-size: 1.6em;
       padding: 0 10px;
     }
-    
     .video-container {
         border-radius: 0;
         margin: 10px auto;
@@ -121,3 +109,10 @@ small {
 }
 </style>
 
+- 无套路、海量资源免费分享
+- 有游戏、电影、电视剧、动漫、纪录片、综艺、音乐等等
+
+[进  入](home)
+[留言板](/zh-cn/bbs)
+[电脑游戏](/zh-cn/Games/PC)
+[QQ群①](https://qm.qq.com/q/7XUsPNUXPq)
