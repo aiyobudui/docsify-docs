@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《死寂：诅咒回声（Dead Silence - Echoes of the Damned）》v2025.9.24 中文版（氛围恐怖游戏）
+
+夸克：https://pan.quark.cn/s/d97c364ba7ec
+
 #### 《无尽帝国2（ENDLESS™ Legend 2）》v0.0.71.157967 中文版（策略游戏）
 
 夸克：https://pan.quark.cn/s/514eabc7aa7c
@@ -59,6 +63,10 @@
 #### 《天朝上国（Celestial Empire）》v0.9.302 中文版（建造策略）
 
 夸克：https://pan.quark.cn/s/89d1e596057e
+
+#### 《一步一脚印（Baby Steps）》v2025.9.22 中文版（搞怪冒险）
+
+夸克：https://pan.quark.cn/s/51125575b7b4
 
 #### 《部落猎人（Tribal Hunter）》v1.0.2.4 中文版
 
@@ -99,6 +107,12 @@
 ---
 
 ## 最近更新
+
+#### 《幻兽帕鲁（Palworld）》v0.6.6.79318 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.1 全DLC 中文配音 联机版
 
@@ -203,12 +217,6 @@
 #### 《夺宝奇兵：古老之圈（Indiana Jones and the Great Circle）高级版》v1.0.9.0 全DLC 中文版（显卡需支持光追）
 
 夸克：https://pan.quark.cn/s/e037632f1250
-
-#### 《幻兽帕鲁（Palworld）》v0.6.5.77287 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《匹诺曹的谎言：序曲（Lies of P Overture）豪华版》v1.11.0.0 全DLC 中文版（魂类游戏）
 
