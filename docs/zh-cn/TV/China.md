@@ -21,6 +21,10 @@
 
 夸克：https://pan.quark.cn/s/545a0a6141d4
 
+#### 《芬芳喜事》（2025）4K 60帧 28集更新中..
+
+夸克：https://pan.quark.cn/s/f8a74d84a875
+
 #### 《赴山海》（2025）4K 40集 更新中..
 
 夸克：https://pan.quark.cn/s/507010a0cc82
