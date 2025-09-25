@@ -122,6 +122,12 @@
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
 
+#### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6931813 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9df1078ca763
+
+迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
+
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
@@ -263,12 +269,6 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v57661 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
-
-#### 《博德之门3（Baldur's Gate 3）》v4.1.1.6897358 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/9df1078ca763
-
-迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.5.2 全DLC 中文版
 
