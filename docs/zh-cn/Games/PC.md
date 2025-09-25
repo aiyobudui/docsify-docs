@@ -264,7 +264,7 @@
 
 夸克：https://pan.quark.cn/s/32c452be1479
 
-#### 《博德之门3（Baldurs Gate 3）》v4.1.1.6897358 全DLC 豪华中文 联机版
+#### 《博德之门3（Baldur's Gate 3）》v4.1.1.6897358 全DLC 豪华中文 联机版
 
 夸克：https://pan.quark.cn/s/9df1078ca763
 
