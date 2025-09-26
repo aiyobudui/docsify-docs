@@ -29,6 +29,10 @@
 
 夸克：https://pan.quark.cn/s/507010a0cc82
 
+#### 《守护者们》（2025）4K 35集更新中..
+
+夸克：https://pan.quark.cn/s/2650b9039489
+
 ---
 
 ## 已完结的...
@@ -43,7 +47,9 @@
 
 #### 《凡人修仙传》（2025）4K 60帧 30集全（杨洋 金晨）真人版
 
-夸克：https://pan.quark.cn/s/7bf5dca2abae
+夸克：
+
+迅雷：https://pan.xunlei.com/s/VOa0hSA_8sxik56E81oWtmMqA1?pwd=ssj6#
 
 #### 《华山论剑》（2025）4K 60帧 30集全（分为《九阴真经》《东邪西毒》《南帝北丐》《五绝争锋》4个单元剧）
 
