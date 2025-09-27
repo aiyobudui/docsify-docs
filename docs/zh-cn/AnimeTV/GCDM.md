@@ -155,10 +155,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNlbNf2226IuEY5n_XEDN2lcA1?pwd=k8b9#
 
-#### 《诡秘之主》（2025）4K 周六更新中..
-
-夸克：https://pan.quark.cn/s/522ac6d064c9
-
 #### 《云深不知梦》（2025）4K 周六 26集更新中..
 
 夸克：https://pan.quark.cn/s/5b254d82bf2a
@@ -184,6 +180,10 @@
 ----
 
 ## 暂时完结
+
+#### 《诡秘之主》（2025）4K 13集全
+
+夸克：https://pan.quark.cn/s/522ac6d064c9
 
 #### 《灵笼》（2019-2025）4K 1-2季全（附原声带）
 
