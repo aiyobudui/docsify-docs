@@ -104,6 +104,16 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
+#### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
+
+夸克：https://pan.quark.cn/s/7814edba170c
+
+#### 《恶意不息（No Rest For The Wicked）》v24312 中文版
+
+夸克：https://pan.quark.cn/s/e3c16ceb73f7
+
+迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
+
 #### 《王国保卫战 系列合集（Kingdom Rush）6部》v2025.9.26 全DLC 中文版（电脑版）新增DLC
 
 夸克：https://pan.quark.cn/s/6ebbd43de752
@@ -929,10 +939,6 @@
 #### 《赏金幸存者（Bounty of One）》v1.2b 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/05e6984cf58c
-
-#### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.8.31 中文版
-
-夸克：https://pan.quark.cn/s/7814edba170c
 
 #### 《心之眼（MindsEye）》v5302548 中文版
 
@@ -2543,12 +2549,6 @@
 #### 《南方游侠（The Rangers In The South）》v3.0.3 中文版
 
 夸克：https://pan.quark.cn/s/e10a6372e20b
-
-#### 《恶意不息（No Rest For The Wicked）》v23939 中文版
-
-夸克：https://pan.quark.cn/s/e3c16ceb73f7
-
-迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
 
 #### 《蜘蛛侠2（Spider-Man 2 The Game）》v1.0 英文版（2006年的游戏）
 
