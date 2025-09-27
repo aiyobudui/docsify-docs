@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《狂野之心（Wild Hearts）机巧版》v1.0.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cc6c2b1b52b0
+
 #### 《古城（Ancient Cities）》v1.8.1 中文版（生存城市建设）
 
 夸克：https://pan.quark.cn/s/0dde114baa80
