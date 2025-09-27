@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《古城（Ancient Cities）》v1.8.1 中文版（生存城市建设）
+
+夸克：https://pan.quark.cn/s/0dde114baa80
+
+#### 《巴塞罗那旅馆（HOTEL BARCELONA）》v1.0.1 中文版（横屏冒险）
+
+夸克：https://pan.quark.cn/s/fcba8ab3a8a4
+
 #### 《银行家模拟器（Banker Simulator）》v0.2.4.1 中文版
 
 夸克：https://pan.quark.cn/s/a73c3c99b0a9
