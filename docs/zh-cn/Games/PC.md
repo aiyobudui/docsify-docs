@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《吃豆人 吃遍世界2（PAC MAN WORLD 2 Re PAC）》v2025.9.26 中文版
+
+夸克：https://pan.quark.cn/s/71eca06db802
+
 #### 《狂野之心（Wild Hearts）机巧版》v1.0.1.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/cc6c2b1b52b0
@@ -107,6 +111,14 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
+
+#### 《浴血船长（Captain Blood）》v2025-07-28-001 中文版
+
+夸克：https://pan.quark.cn/s/cfeba95ed88c
+
+#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.16.10 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/f87f94e17c31
 
 #### 《恶意不息（No Rest For The Wicked）》v24312 中文版
 
@@ -730,7 +742,7 @@
 
 夸克：https://pan.quark.cn/s/8e3150d7c266
 
-#### 《以撒的结合：重生（The Binding of Isaac：Rebirth）》v1.9.7.14 全DLC 汉化 联机版
+#### 《以撒的结合（The Binding of Isaac：Rebirth）》v1.9.7.14 全DLC 汉化 联机版
 
 夸克：https://pan.quark.cn/s/72ba766c2a16
 
@@ -3161,10 +3173,6 @@
 
 夸克：https://pan.quark.cn/s/929929d1ec80
 
-#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.16.9 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/f87f94e17c31
-
 #### 《超市模拟器（Supermarket Simulator）》v1.01 中文版
 
 夸克：https://pan.quark.cn/s/bbd59beca72d
@@ -4146,10 +4154,6 @@
 #### 《丽莎：痛苦之旅+丽莎：极乐（Lisa The Painful + LISA the Joyful）决定版》v2024.7.18 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7fbc0f13b503
-
-#### 《浴血船长（Captain Blood）》v2025-05-05-002 中文版
-
-夸克：https://pan.quark.cn/s/cfeba95ed88c
 
 #### 《幸福农场（Lucky Farm）》v1.0.3 中文版
 
@@ -7488,10 +7492,6 @@
 #### 《生存主义：隐形异变 (Survivalist：Invisible Strain)》v186 中文 联机版
 
 夸克：https://pan.quark.cn/s/1d0e80320107
-
-#### 《以撒的结合：忏悔（The Binding of Isaac Rebirth Repentance）》v1.7.9c 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/639d42515ae2
 
 #### 《欢迎来到帕拉迪泽（Welcome to ParadiZe）》v2024.9.10 中文版
 
