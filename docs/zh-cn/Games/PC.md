@@ -124,6 +124,10 @@
 
 ## 最近更新
 
+#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ae92fcbace04
+
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.2 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
@@ -303,10 +307,6 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v57661 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
-
-#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.5.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ae92fcbace04
 
 #### 《最后生还者2：重制版（The Last of Us Part 2 Remastered）》v1.6.10721 中文版（美末2）
 
