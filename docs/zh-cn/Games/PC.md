@@ -52,6 +52,26 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《机甲战魔 神话之裔（Daemon X Machina Titanic Scion）豪华版》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/22157231c180
+
+#### 《出牌吧！魂之勇者（Deck of Souls）》v1.06 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/0d62d75ede6d
+
+#### 《血盟守卫军2（Guards II Chaos in Hell）》v1.1 中文版
+
+夸克：https://pan.quark.cn/s/917456200d46
+
+#### 《铁匠铺传奇（Anvil Saga）》v1.1.1 中文版
+
+夸克：https://pan.quark.cn/s/eddc29fb16c6
+
+#### 《四叶草深渊（CLOVERPIT）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/7095370f3829
+
 #### 《吃豆人 吃遍世界2（PAC MAN WORLD 2 Re PAC）》v2025.9.26 中文版
 
 夸克：https://pan.quark.cn/s/71eca06db802
@@ -112,6 +132,26 @@
 
 夸克：https://pan.quark.cn/s/7814edba170c
 
+#### 《以撒的结合（The Binding of Isaac：Rebirth）》v1.9.7.15 全DLC 汉化 联机版
+
+夸克：https://pan.quark.cn/s/72ba766c2a16
+
+#### 《潜水员戴夫（Dave the Diver）豪华版》v1.0.5.1726 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2ed8f0fbce63
+
+迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
+
+#### 《电竞教父（Esports Godfather）》v3.0.38 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6a594eb4a168
+
+迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
+
+#### 《末日准备狂（Mr. Prepper）完整版》v1.42b 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/81f218540dd4
+
 #### 《浴血船长（Captain Blood）》v2025-07-28-001 中文版
 
 夸克：https://pan.quark.cn/s/cfeba95ed88c
@@ -168,6 +208,10 @@
 
 夸克：https://pan.quark.cn/s/0f05f1804fbb
 
+---
+
+## 顶置游戏
+
 #### 《幻兽帕鲁（Palworld）》v0.6.6.79318 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
@@ -203,10 +247,6 @@
 #### 《地狱即我们（Hell is Us）》v1.4.22.43941 全DLC 中文版（冒险动作）
 
 夸克：https://pan.quark.cn/s/656ab3363cbd
-
----
-
-## 顶置游戏
 
 #### 《失落之魂（Lost Soul Aside）》v1.009 全DLC 中文版
 
@@ -741,10 +781,6 @@
 #### 《蠕行的恐惧：克苏鲁选集（Menace from the Deep）》v1.17 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8e3150d7c266
-
-#### 《以撒的结合（The Binding of Isaac：Rebirth）》v1.9.7.14 全DLC 汉化 联机版
-
-夸克：https://pan.quark.cn/s/72ba766c2a16
 
 #### 《射戮骑士（KILL KNIGHT）》v1.2.1 中文版
 
@@ -3981,12 +4017,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO2IqSULKqrPo4VqBcH1WAg4A1?pwd=dcqv#
 
-#### 《潜水员戴夫（Dave the Diver）》v1.0.4.1647 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/2ed8f0fbce63
-
-迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
-
 #### 《收获日2（PAYDAY 2）》v1.143.246 中文 联机版
 
 夸克：https://pan.quark.cn/s/1cf10856c66c
@@ -5374,12 +5404,6 @@
 #### 《汽水侠（sodaman）》v2025.2.24 中文版
 
 夸克：https://pan.quark.cn/s/c17ada21d3e7
-
-#### 《电竞教父（Esports Godfather）》v2.1.8 中文版
-
-夸克：https://pan.quark.cn/s/6a594eb4a168
-
-迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
 
 #### 《幸运之塔（Lucky Tower Ultimate）终极版》2025.2.23 中文版
 
@@ -8964,10 +8988,6 @@
 夸克：https://pan.quark.cn/s/a047916a14a8
 
 迅雷：https://pan.xunlei.com/s/VNx4SBo0tai5YXoYQkJrt6w4A1?pwd=nfvw#
-
-#### 《末日准备狂》最新 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/81f218540dd4
 
 #### 《星球大战：前线》最新 经典合集 中文版
 

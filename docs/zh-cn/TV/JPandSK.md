@@ -17,15 +17,25 @@
 
 ## 正在更新中的...
 
+暂无
+
+---
+
+## 已完结的...
+
+#### 《弥留之国的爱丽丝》（2020-2025）1-3季全 1080P 中字 （末日逃生剧）
+
+夸克：https://pan.quark.cn/s/55936c1a3ada
+
+迅雷：https://pan.xunlei.com/s/VNof3bIszshyUL4lpO2g8tGuA1?pwd=m37a#
+
+阿里：https://www.aliyundrive.com/s/nmHppz1n7Kq
+
 #### 《鱿鱼游戏》（2021-2025）1-3季全 4K HDR 中字
 
 夸克：https://pan.quark.cn/s/53b37ef89259
 
 迅雷：https://pan.xunlei.com/s/VOTljdYajNCVYVS8cabGPjuOA1?pwd=gaq7#
-
----
-
-## 已完结的...
 
 #### 《比天堂还美丽》（2025）1080P 12集全 中字
 
@@ -438,14 +448,6 @@
 迅雷：https://pan.xunlei.com/s/VNnXYPkM6_84ufPwwln42hBZA1?pwd=mj3t#
 
 阿里：https://www.aliyundrive.com/s/5AkZsCiCvUV
-
-#### 弥留之国的爱丽丝（2020-2022）1-2季全 1080P 日语中字 （末日逃生剧）
-
-夸克：https://pan.quark.cn/s/55936c1a3ada
-
-迅雷：https://pan.xunlei.com/s/VNof3bIszshyUL4lpO2g8tGuA1?pwd=m37a#
-
-阿里：https://www.aliyundrive.com/s/nmHppz1n7Kq
 
 #### 母亲 Mother (2010) 1080P 11集全 日语中字（高分催泪）
 

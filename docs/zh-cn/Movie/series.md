@@ -399,7 +399,7 @@
 
 阿里：https://www.aliyundrive.com/s/yF9tZsxhhyH
 
-#### 《速度与激情》1-11部 蓝光4K HDR + 蓝光 4K HDR Remux 原盘 中英配音 特效字幕
+#### 《速度与激情》1-11部 蓝光4K HDR 120帧 60帧 + 1080P 国英配音 特效字幕
 
 夸克：https://pan.quark.cn/s/40c23f55cf35
 
