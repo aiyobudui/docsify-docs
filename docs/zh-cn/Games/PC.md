@@ -56,6 +56,14 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
+#### 《小心小丑（Mind the Clown）》v1.2.0 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/92b3d7cc61b0
+
+#### 《迷你车商店模拟器（MiniCar Shop Simulator）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/5586948dfcea
+
 #### 《出牌吧！魂之勇者（Deck of Souls）》v1.06 中文版（肉鸽卡牌）
 
 夸克：https://pan.quark.cn/s/0d62d75ede6d
