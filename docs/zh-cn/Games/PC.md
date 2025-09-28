@@ -56,6 +56,26 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
+#### 《加勒比传奇（Caribbean Legend）》v1.5.1 全DLC 中文版（开放世界）
+
+夸克：https://pan.quark.cn/s/ca702154e254
+
+#### 《战争的信笺（Letters of War）》v1.2.0 中文版（温馨的冒险剧情游戏）
+
+夸克：https://pan.quark.cn/s/a6d06b5d844e
+
+#### 《咒术地牢（Folly Of The Wizards）》v2025.9.28 全DLC 中文版（横屏冒险）
+
+夸克：https://pan.quark.cn/s/a6f209bd6de6
+
+#### 《物理超度指南（Holy Shot）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/9756fc3497b6
+
+#### 《奇星协力（Synergy）》v1.2.2508200427 中文版（绘本风生存城市建造）
+
+夸克：https://pan.quark.cn/s/aff04016cf29
+
 #### 《小心小丑（Mind the Clown）》v1.2.0 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/92b3d7cc61b0
@@ -143,6 +163,48 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28750 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《Ara：不为人知的历史（Ara History Untold）周年纪念版》v2.0.0.523 全DLC 中文版（类似文明的策略游戏）
+
+夸克：https://pan.quark.cn/s/94ab90cbf189
+
+#### 《动物海湾（Critter Cove）》Build.20137607 中文版（开放世界建设生活）
+
+夸克：https://pan.quark.cn/s/2b354e340d8c
+
+#### 《极地觉醒（Arctic Awakening）》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/c755ae397294
+
+#### 《牧场模拟器（Ranch Simulator）》v1.173s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/53e8ce604ebf
+
+#### 《克苏鲁信徒（Worshippers of Cthulhu）》v1.0.0.3 中文版（新增DLC）
+
+夸克：https://pan.quark.cn/s/423b6f9a51ec
+
+#### 《潜渊症（Barotrauma）》v1.10.6.0 中文 联机版（潜艇模拟游戏）
+
+夸克：https://pan.quark.cn/s/33b94fd8f90d
+
+#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.62P 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cada1bfb9fd0
+
+迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
+
+#### 《灵魂石幸存者（Soulstone Survivors）》v1.3b 中文版
+
+夸克：https://pan.quark.cn/s/a0a9296627a3
+
+#### 《小猫咪大城市（Little Kitty, Big City）》v1.25.9.26.5517 中文版
+
+夸克：https://pan.quark.cn/s/0189050bdcc8
 
 #### 《以撒的结合（The Binding of Isaac：Rebirth）》v1.9.7.15 全DLC 汉化 联机版
 
@@ -243,10 +305,6 @@
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28714 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.24.2 全DLC 中文配音 联机版
 
@@ -669,16 +727,6 @@
 #### 《恐鬼症（Phasmophobia）》v0.14.0.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/f06faddc881c
-
-#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.40P 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/cada1bfb9fd0
-
-迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
-
-#### 《极地觉醒（Arctic Awakening）》v2025.9.19 中文版
-
-夸克：https://pan.quark.cn/s/c755ae397294
 
 #### 《Puzzle Quest：不朽版》v1.0.0.3388 中文版（消消乐游戏）
 
@@ -1806,10 +1854,6 @@
 
 夸克：https://pan.quark.cn/s/cba9db02b1e5
 
-#### 《灵魂石幸存者（Soulstone Survivors）》v1.2c 中文版
-
-夸克：https://pan.quark.cn/s/a0a9296627a3
-
 #### 《传说法师2（Wizard of Legend 2）》v1.1.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/e2da6f1836cb
@@ -2740,10 +2784,6 @@
 
 夸克：https://pan.quark.cn/s/6c9e10b28312
 
-#### 《动物海湾（Critter Cove）》v227 中文版
-
-夸克：https://pan.quark.cn/s/2b354e340d8c
-
 #### 《Zombie Cure Lab》v1.01 中文版（僵尸治疗实验室）
 
 夸克：https://pan.quark.cn/s/ee57b45fad54
@@ -2971,10 +3011,6 @@
 #### 《地心护核者（core keeper）》v1.1.2.2 中文 联机版（护核纪元）
 
 夸克：https://pan.quark.cn/s/e76feced60bb
-
-#### 《潜渊症（Barotrauma）》v1.9.8.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/33b94fd8f90d
 
 #### 《恐怖黎明（Grim Dawn）》v1.2.1.6 全DLC 豪华中文 联机版
 
@@ -3792,10 +3828,6 @@
 #### 《漫威银河护卫队（Marvel's Guardians of the Galaxy）》v2984448 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/822046956d43
-
-#### 《克苏鲁的信徒（Worshippers of Cthulhu）》v1.0.0.1 中文版
-
-夸克：https://pan.quark.cn/s/423b6f9a51ec
 
 #### 《模拟农场25 (Farming Simulator 25) 》v1.9.0.1 全DLC 中文 联机版
 
@@ -4785,10 +4817,6 @@
 
 夸克：https://pan.quark.cn/s/9576ae987e1e
 
-#### 《小猫咪大城市（Little Kitty, Big City）》v1.25.2.25_4088 中文版
-
-夸克：https://pan.quark.cn/s/0189050bdcc8
-
 #### 《说谎公主与盲眼王子》v1.0.1 模拟器整合 PC+安卓版
 
 夸克：https://pan.quark.cn/s/58e637680cf3
@@ -5513,10 +5541,6 @@
 
 夸克：https://pan.quark.cn/s/6c6c09517ff2
 
-#### 《牧场模拟器（Ranch Simulator）》v1.152s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/53e8ce604ebf
-
 #### 《龙崖（Dragon Cliff）》Build.6212414 中文版（2024.1.21更新）
 
 夸克：https://pan.quark.cn/s/82e85b0b8d36
@@ -6010,10 +6034,6 @@
 #### 《FIFA23 终结版》v1.0.82.43747 豪华中文配音版（已修复闪退问题）
 
 夸克：https://pan.quark.cn/s/f9779debc1b3
-
-#### 《Ara：不为人知的历史（Ara History Untold）》v1.2.0.418 全DLC 中文版（回合制策略游戏，标杆文明）
-
-夸克：https://pan.quark.cn/s/94ab90cbf189
 
 #### 《领地 种田与征战（Territory Farming and Fighting）》v0.20241222.22 中文版
 
