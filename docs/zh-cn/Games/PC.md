@@ -56,6 +56,14 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
+#### 《喷气跑者（JETRUNNER）》v1.0.5 中文版（跑酷射击）
+
+夸克：https://pan.quark.cn/s/a9fdcebf7e95
+
+#### 《梅加邦克（Megabonk）》v1.0.4 中文版（肉鸽射击）
+
+夸克：https://pan.quark.cn/s/426c160c24d1
+
 #### 《加勒比传奇（Caribbean Legend）》v1.5.1 全DLC 中文版（开放世界）
 
 夸克：https://pan.quark.cn/s/ca702154e254
@@ -120,34 +128,6 @@
 
 夸克：https://pan.quark.cn/s/a73c3c99b0a9
 
-#### 《弃种：叮叮与圣剑（Forsaker DingDing And Blade）》4.8 中文版
-
-夸克：https://pan.quark.cn/s/2138006c5621
-
-#### 《Consume Me》v1235 中文版（人生模拟器）
-
-夸克：https://pan.quark.cn/s/5d7be7647b0e
-
-#### 《龙之歌：美食与冒险（Dragon Song Tavern Cozy & Adventure）》v1.0.092402 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ec132d7b35ca
-
-#### 《红色的炼金术士和白色的守护者 ～蕾斯莱莉娅娜的炼金工房～（Atelier Resleriana RW）》Build.20023916 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1116a514fb72
-
-#### 《风铃物语（Wind Story）》v1.0.0 中文版（休闲模拟经营）
-
-夸克：https://pan.quark.cn/s/c9955d97e125
-
-#### 《纸房子（Paper House）》Build.19744053 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/1ed556159bff
-
-#### 《东方幕华祭 永夜篇（Touhou Makuka Sai ~ Fantastic Danmaku Festival Part III）》v1.0 中文版
-
-夸克：https://pan.quark.cn/s/5a8a7ef1c859
-
 ---
 
 ## 最近更新
@@ -167,6 +147,14 @@
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28750 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《孤岛猎神（Day of the Shell）》v1.1.10 中文版
+
+夸克：https://pan.quark.cn/s/d7f5075eafc7
+
+#### 《毁灭协议（Moros Protocol）》v1.0.7.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3d71587b5d72
 
 #### 《Ara：不为人知的历史（Ara History Untold）周年纪念版》v2.0.0.523 全DLC 中文版（类似文明的策略游戏）
 
@@ -239,48 +227,6 @@
 夸克：https://pan.quark.cn/s/e3c16ceb73f7
 
 迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
-
-#### 《王国保卫战 系列合集（Kingdom Rush）6部》v2025.9.26 全DLC 中文版（电脑版）新增DLC
-
-夸克：https://pan.quark.cn/s/6ebbd43de752
-
-迅雷：https://pan.xunlei.com/s/VNrANXUqoXh0FhgZXKSMSQKKA1?pwd=ww8t#
-
-#### 《哈迪斯2（Hades II）》v1.131346 中文版
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(84) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
-
-#### 《鼠托邦（Ratopia）》v1.0.0520 中文版（策略生存建设）
-
-夸克：https://pan.quark.cn/s/f5fb93d1c493
-
-#### 《横跨方尖碑（Across the Obelisk）》v1.6.20 全DLC 中文 联机版（卡牌游戏）
-
-夸克：https://pan.quark.cn/s/5c3c750d0248
-
-#### 《崩溃大陆2（Crashlands 2）》v1.3.0.RC.2 中文版（附第1部）
-
-夸克：https://pan.quark.cn/s/8db39b6946d6
-
-#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.05 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8a27527d8863
-
-#### 《林中小女巫（Little Witch in the Woods）》v5.0.19.0 中文版
-
-夸克：https://pan.quark.cn/s/88dfa7a0455d
-
-#### 《紫色晶石（Stoneshard）》v0.9.3.9 中文版
-
-夸克：https://pan.quark.cn/s/0f05f1804fbb
 
 ---
 
@@ -460,6 +406,70 @@
 
 ## 已有游戏
 
+#### 《弃种：叮叮与圣剑（Forsaker DingDing And Blade）》4.8 中文版
+
+夸克：https://pan.quark.cn/s/2138006c5621
+
+#### 《Consume Me》v1235 中文版（人生模拟器）
+
+夸克：https://pan.quark.cn/s/5d7be7647b0e
+
+#### 《龙之歌：美食与冒险（Dragon Song Tavern Cozy & Adventure）》v1.0.092402 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ec132d7b35ca
+
+#### 《红色的炼金术士和白色的守护者 ～蕾斯莱莉娅娜的炼金工房～（Atelier Resleriana RW）》Build.20023916 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1116a514fb72
+
+#### 《风铃物语（Wind Story）》v1.0.0 中文版（休闲模拟经营）
+
+夸克：https://pan.quark.cn/s/c9955d97e125
+
+#### 《纸房子（Paper House）》Build.19744053 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/1ed556159bff
+
+#### 《东方幕华祭 永夜篇（Touhou Makuka Sai ~ Fantastic Danmaku Festival Part III）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/5a8a7ef1c859
+
+#### 《哈迪斯2（Hades II）》v1.131346 中文版
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(84) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
+
+#### 《鼠托邦（Ratopia）》v1.0.0520 中文版（策略生存建设）
+
+夸克：https://pan.quark.cn/s/f5fb93d1c493
+
+#### 《横跨方尖碑（Across the Obelisk）》v1.6.20 全DLC 中文 联机版（卡牌游戏）
+
+夸克：https://pan.quark.cn/s/5c3c750d0248
+
+#### 《崩溃大陆2（Crashlands 2）》v1.3.0.RC.2 中文版（附第1部）
+
+夸克：https://pan.quark.cn/s/8db39b6946d6
+
+#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.05 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8a27527d8863
+
+#### 《林中小女巫（Little Witch in the Woods）》v5.0.19.0 中文版
+
+夸克：https://pan.quark.cn/s/88dfa7a0455d
+
+#### 《紫色晶石（Stoneshard）》v0.9.3.9 中文版
+
+夸克：https://pan.quark.cn/s/0f05f1804fbb
+
 #### 《都市天际线（Cities Skylines）豪华版》v1.20.1.f1 全DLC 中文版 新增DLC（城市天际线）
 
 夸克：https://pan.quark.cn/s/2a96be3cbc82
@@ -502,9 +512,13 @@
 
 夸克：https://pan.quark.cn/s/efec6df22bb0
 
+#### 《古墓丽影 1-3 复刻版（Tomb Raider I-III Remastered）》v2025.8.14 中文版
+
+夸克：https://pan.quark.cn/s/8c417acf572b
+
 #### 《古墓丽影 4-6 复刻版（Tomb Raider IV VI Remastered）》v20250919 中文版
 
-夸克：https://pan.quark.cn/s/378fa2dcb99a
+夸克：https://pan.quark.cn/s/8c417acf572b
 
 #### 《群星（Stellaris）终极版》v4.1.0 全DLC 中文 联机版
 
@@ -611,10 +625,6 @@
 #### 《啦嗒铛（Ratatan）》v0.5.2 中文版（节奏横轴动作）
 
 夸克：https://pan.quark.cn/s/4662be18e03e
-
-#### 《毁灭协议（Moros Protocol）》v1.0.5 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3d71587b5d72
 
 #### 《胡言山的魔理沙（Marisa of Liartop Mountain）》v1.0.3 中文版
 
@@ -2032,10 +2042,6 @@
 
 夸克：https://pan.quark.cn/s/c8b9ed6e6661
 
-#### 《古墓丽影 1-3 复刻版（Tomb Raider I-III Remastered）》v2025.8.14 中文版
-
-夸克：https://pan.quark.cn/s/5638268b2980
-
 #### 《欧陆风云4（Europa Universalis IV）终极版》v1.37.5.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/fcc894524f26
@@ -2439,10 +2445,6 @@
 #### 《天国射爆王（Holy Shoot）》bulld.1.0.04 中文版（FPS射击肉鸽）
 
 夸克：https://pan.quark.cn/s/3efcda23a201
-
-#### 《孤岛猎神（Day of the Shell）》v1.0.10 中文版
-
-夸克：https://pan.quark.cn/s/d7f5075eafc7
 
 #### 《克隆机器人角斗场（Clone Drone in the Danger Zone）》v1.6.0.34 中文版
 
@@ -9709,6 +9711,12 @@
 ---
 
 ## 系列合集
+
+#### 《王国保卫战 系列合集（Kingdom Rush）6部》v2025.9.26 全DLC 中文版（电脑版）新增DLC
+
+夸克：https://pan.quark.cn/s/6ebbd43de752
+
+迅雷：https://pan.xunlei.com/s/VNrANXUqoXh0FhgZXKSMSQKKA1?pwd=ww8t#
 
 #### 《黑道圣徒 系列合集（Saints Row）》4部 最新 全DLC 汉化 联机版
 
