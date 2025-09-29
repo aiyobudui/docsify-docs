@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
+#### 《生态系统（Ecosystem）》v1.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2ed448707783
+
 #### 《喷气跑者（JETRUNNER）》v1.0.5 中文版（跑酷射击）
 
 夸克：https://pan.quark.cn/s/a9fdcebf7e95
@@ -132,6 +136,18 @@
 
 ## 最近更新
 
+#### 《空之轨迹 the 1st （Trails in the Sky 1st Chapter）重制版》v1.05 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/aa4673559fef
+
+#### 《优米雅的炼金工房 ～追忆之炼金术士与幻创之地～》v1.51 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/40086dffb3c8
+
+#### 《烈焰之刃（Blades of Fire）》v1.4.8 中文版
+
+夸克：https://pan.quark.cn/s/e1c1a6e4a189
+
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
@@ -147,6 +163,14 @@
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28750 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《古墓丽影：暗影（Shadow of the Tomb Raider）终结版》v1.0.492.0 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/8c417acf572b
+
+#### 《古墓丽影：崛起（Rise of the Tomb Raider）20周年纪念版》v1.0.1.0 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/8c417acf572b
 
 #### 《孤岛猎神（Day of the Shell）》v1.1.10 中文版
 
@@ -605,10 +629,6 @@
 #### 《梦之形（Shape of Dreams）》v1.0.6.2_s 中文 联机版
 
 夸克：https://pan.quark.cn/s/23375927f4ba
-
-#### 《空之轨迹 重制版（Trails in the Sky 1st Chapter）》v2025.9.19 全DLC 暂无中文
-
-夸克：https://pan.quark.cn/s/aa4673559fef
 
 #### 《黑暗童话（Dark Fairy Tale）》v25.09.19.16 中文版
 
@@ -1711,10 +1731,6 @@
 #### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v889.19 中文版（GTA5增强版）
 
 夸克：https://pan.quark.cn/s/f27bd77aa030
-
-#### 《优米雅的炼金工房 ～追忆之炼金术士与幻创之地～》v1.42 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/40086dffb3c8
 
 #### 《七日杀（7 Days to Die）》v2.3.b6 中文 联机版（多版本自选）
 
@@ -3055,10 +3071,6 @@
 #### 《围攻（Besiege）支持者版》v1.75-23301 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e38293093ef5
-
-#### 《烈焰之刃（Blades of Fire）》v1.3.4 中文版
-
-夸克：https://pan.quark.cn/s/e1c1a6e4a189
 
 #### 《战锤40K：行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.4.0.190 全DLC 中文版
 

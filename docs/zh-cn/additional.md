@@ -18,6 +18,10 @@
 
 夸克：https://pan.quark.cn/s/58cb797576b1
 
+#### 《湾区升明月晚会2025 大湾区电影音乐晚会》2025.9.28
+
+夸克：https://pan.quark.cn/s/48ac1d07dea6
+
 #### 《2024-2025 各电视台+B站 跨年晚会合集》
 
 夸克：https://pan.quark.cn/s/7a4c4041665e
