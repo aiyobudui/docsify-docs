@@ -60,6 +60,38 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
+#### 《F1赛车2022（F1 22）》v1.05.899639 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/a64ba3a4ca63
+
+#### 《F1赛车2020（F1 2020）豪华舒马赫版》v1.18 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a64ba3a4ca63
+
+#### 《零号奴隶X（Slave Zero X）》v1.06 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/02b1a82122c0
+
+#### 《不屈者（UNYIELDER）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/de82651b249a
+
+#### 《部队（The Troop）》v2025.9.29 中文版（回合制排级战术游戏）
+
+夸克：https://pan.quark.cn/s/0dfbd9be9428
+
+#### 《异乡人们（ACCIDENTALLY）》v2025.10.1 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/0a22b28799fc
+
+#### 《潜意者（Mind Diver）》v1.0.93 中文版（悬疑解密）
+
+夸克：https://pan.quark.cn/s/8d5dba459936
+
+#### 《皇上，上朝了（Its time your majesty）》v1.0.4a 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/9c9a108bef42
+
 #### 《乐高派对（LEGO Party）》v2025.9.30 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/4121807d67f4
@@ -105,6 +137,10 @@
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/a763fdb76323
+
+#### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9a929198d5a2
 
 #### 《哈迪斯2（Hades II）》v1.131496 中文版（附第一部）
 
@@ -1345,10 +1381,6 @@
 #### 《地狱卡牌（Hellcard）》v1.1.250807 中文 联机版
 
 夸克：https://pan.quark.cn/s/9411d1803c42
-
-#### 《露玛岛（Luma Island）》v1.1.3.25171 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9a929198d5a2
 
 #### 《将熄之焰（The Last Flame）》v2025.8.11 中文版（自走棋游戏）
 

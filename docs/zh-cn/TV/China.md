@@ -41,6 +41,12 @@
 
 夸克：https://pan.quark.cn/s/2650b9039489
 
+#### 《欢乐家长群》（2024-2025）第二季 4K 40集 更新中..（附第一季）
+
+夸克：和谐
+
+迅雷：https://pan.xunlei.com/s/VNptM7zbvqCRievXn7pFiJS9A1?pwd=iw9a#
+
 ---
 
 ## 已完结的...
@@ -732,12 +738,6 @@
 夸克：https://pan.quark.cn/s/49a9495280f1
 
 迅雷：https://pan.xunlei.com/s/VNqrh8pB3yLKwLkgu7W-nyGyA1?pwd=i7ey#
-
-#### 《欢乐家长群》（2024）4K 40集全（张嘉益 陈好 王晓晨）
-
-夸克：https://pan.quark.cn/s/a8083d656ea3
-
-迅雷：https://pan.xunlei.com/s/VNptM7zbvqCRievXn7pFiJS9A1?pwd=iw9a#
 
 #### 《阿麦从军》（2024）4K 36集全
 
