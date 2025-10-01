@@ -60,6 +60,14 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
+#### 《最终幻想7：核心危机重聚（CRISIS CORE FINAL FANTASY VII REUNION）豪华版》v1.0.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《马克思佩恩3（Max Payne 3）完整版》v1.0.0.272 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/5aa350780082
+
 #### 《F1赛车2022（F1 22）》v1.05.899639 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/a64ba3a4ca63
@@ -137,6 +145,14 @@
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/a763fdb76323
+
+#### 《末日的回声（Echoes of the End）》v1.0.5 中文版（魂类游戏）
+
+夸克：https://pan.quark.cn/s/ac1e0683f780
+
+#### 《心之眼（MindsEye）》v5437054 中文版
+
+夸克：https://pan.quark.cn/s/1d8bcee97d85
 
 #### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
 
@@ -738,7 +754,7 @@
 
 #### 《最终幻想起源：天堂的陌生人(Stranger of Paradise Final Fantasy Origin)》v1.32 全DLC 中文 联机版
 
-夸克：https://pan.quark.cn/s/0d3ba3983499
+夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《末日地带2（Endzone 2）》v1.0.9356.17132 全DLC 中文版（末世生存建造）
 
@@ -935,10 +951,6 @@
 #### 《多重人生（The Alters）豪华版》v1.3.0.7 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/9acd136be1ad
-
-#### 《末日的回声（Echoes of the End）》v1.0.4 中文版（电影级3A新动作冒险类魂）
-
-夸克：https://pan.quark.cn/s/ac1e0683f780
 
 #### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
 
@@ -1195,10 +1207,6 @@
 #### 《赏金幸存者（Bounty of One）》v1.2b 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/05e6984cf58c
-
-#### 《心之眼（MindsEye）》v5302548 中文版
-
-夸克：https://pan.quark.cn/s/1d8bcee97d85
 
 #### 《命运 武士遗迹（Fate/Samurai Remnant）》v1.3.2 全DLC 中文版
 
@@ -1668,23 +1676,23 @@
 
 #### 《最终幻想15（Final Fantasy XV）FF15》v1261414 全DLC 豪华中文版
 
-夸克：https://pan.quark.cn/s/02e58ea7ebce
+夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《最终幻想13 雷光归来（Final Fantasy XIII-3）FF13》v1.0 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/d139849152ba
+夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《最终幻想7：重生（FINAL FANTASY VII REBIRTH）》v1.003 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/e13e2a9be916
+夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《最终幻想7 重制版 Intergrade（Final Fantasy VII Remake Intergrade）》v1.005 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/26258f640ff6
+夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《最终幻想 重制系列1-6》像素 v1.1.0 全DLC 豪华中文版
 
-夸克：https://pan.quark.cn/s/bb658679afd3
+夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《魔女之泉R（WitchSpring R）豪华版》v1.105 全DLC 中文版
 
