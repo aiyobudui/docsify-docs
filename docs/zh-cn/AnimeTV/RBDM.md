@@ -801,3 +801,7 @@
 #### 《替身 Another》（2012）1080P 中字（动画版+电影版）
 
 夸克：https://pan.quark.cn/s/9cf1d2307fee
+
+#### 《少女乐队的呐喊》（2024）1080P 简中 13集全
+
+夸克：https://pan.quark.cn/s/898fe5b3c626
