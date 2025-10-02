@@ -48,6 +48,18 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《异形：盗贼入侵 进化版（Alien Rogue Incursion Evolved Edition）豪华版》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/88dcc7910dd1
+
+#### 《奇异古物（Strange Antiquities）》v1.0.37 中文版
+
+夸克：https://pan.quark.cn/s/3d048bd03ffb
+
+#### 《星萼（Calyx）》v0.0.4.1 中文版
+
+夸克：https://pan.quark.cn/s/f6ed93f9a0b4
+
 #### 《部落与弯刀（Sands of Salzaar）》v1.1.19 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f9839a89272a
@@ -153,6 +165,14 @@
 #### 《心之眼（MindsEye）》v5437054 中文版
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
+
+#### 《以太术士 (Aethermancer)》v0.3.1.1 中文版
+
+夸克：https://pan.quark.cn/s/152221838481
+
+#### 《虐杀熔炉（KIBORG）》V2025.9.30 中文版
+
+夸克：https://pan.quark.cn/s/d590ba9f9318
 
 #### 《六星门：观星者（Sixtar Gate STARGAZER）》v1.0.6.001 全DLC 中文版（音乐游戏）
 
@@ -759,10 +779,6 @@
 #### 《阿兹特克：最后的太阳（Aztecs The Last Sun）支持者版》v2025.9.24 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/35e5a936e15a
-
-#### 《以太术士 (Aethermancer)》v0.3.0.18 中文版
-
-夸克：https://pan.quark.cn/s/152221838481
 
 #### 《工匠秘境（Crafter's Hollow）》v2025.9.24 中文版
 
@@ -3121,10 +3137,6 @@
 #### 《深岩银河（Deep Rock Galactic）》v1.39.120236.0 全DLC 豪华中文 联机版
 
 夸克：https://pan.quark.cn/s/cb16ac738ce8
-
-#### 《虐杀熔炉（KIBORG）》V2025.7.1 中文版
-
-夸克：https://pan.quark.cn/s/d590ba9f9318
 
 #### 《灵魂射手：死亡使者（Soulslinger Envoy of Death）》v1.03 中文版（射击肉鸽）
 
