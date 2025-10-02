@@ -48,17 +48,29 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《背后3：阴戏（Back3 Spooky）》v2025.9.30 中文版（真人互动影游 冒险恐怖）
+#### 《部落与弯刀（Sands of Salzaar）》v1.1.19 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/5926bcb13e8c
+夸克：https://pan.quark.cn/s/f9839a89272a
 
-#### 《寂静岭F（SILENT HILL F）豪华版》v1.1.378720 全DLC 中文版（心理恐怖游戏）
+#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.10.2 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/90391fdabda9
+夸克：https://pan.quark.cn/s/fd2f2389fa35
 
-#### 《机甲战魔 神话之裔（Daemon X Machina Titanic Scion）豪华版》v1.1.0 全DLC 中文版
+#### 《征服之歌（Songs of Conquest）》v1.6.3 全DLC 中文 联机版（回合制策略）
 
-夸克：https://pan.quark.cn/s/22157231c180
+夸克：https://pan.quark.cn/s/e53b0330c930
+
+#### 《hololive Holo's花札（hololive Holos Hanafuda）》v1.2.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b3dc1c665ea5
+
+#### 《蝉之世界（CICADA）》v1.0 中文版（模拟动作）
+
+夸克：https://pan.quark.cn/s/c47b3135f3be
+
+#### 《逃离永明岛（Escape Everlit）》v2025.10.2 中文版（文字解密冒险）
+
+夸克：https://pan.quark.cn/s/b8ba8a22c26f
 
 #### 《最终幻想7：核心危机重聚（CRISIS CORE FINAL FANTASY VII REUNION）豪华版》v1.0.3 全DLC 中文版
 
@@ -112,22 +124,6 @@
 
 夸克：https://pan.quark.cn/s/7d096c7ec47c
 
-#### 《Keep Driving》v1.3.1.0с 中文版（公路旅行游戏）
-
-夸克：https://pan.quark.cn/s/c6b75f332ca7
-
-#### 《我恨我的女直播主（I Hate My Waifu Streamer）》v1.0.2 中文版
-
-夸克：https://pan.quark.cn/s/6888cb60cc93
-
-#### 《警情，消防，急救（Flashing Lights）》Build.240925-3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/99d33e70d5fa
-
-#### 《生态系统（Ecosystem）》v1.12 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2ed448707783
-
 ---
 
 ## 最近更新
@@ -142,6 +138,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
+#### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0C 全DLC 中文版（魂游）
+
+夸克：https://pan.quark.cn/s/f45144acd21e
+
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/a763fdb76323
@@ -153,6 +153,18 @@
 #### 《心之眼（MindsEye）》v5437054 中文版
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
+
+#### 《六星门：观星者（Sixtar Gate STARGAZER）》v1.0.6.001 全DLC 中文版（音乐游戏）
+
+夸克：https://pan.quark.cn/s/6ca8967a1a34
+
+#### 《犯罪模拟器（Crime Simulator）》v1.19m 中文 联机版
+
+夸克：https://pan.quark.cn/s/98518c51a604
+
+#### 《负熵幸存者（Entropy Survivors）》v1.5.2.24984 中文 联机版
+
+夸克：https://pan.quark.cn/s/fd723b7c2dc5
 
 #### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
 
@@ -192,57 +204,13 @@
 
 夸克：https://pan.quark.cn/s/6deca0e36190
 
-#### 《电竞教父（Esports Godfather）》v3.1.4 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6a594eb4a168
-
-迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
-
-#### 《战争机器：重装上阵（Gears of War Reloaded）》v1.0.1.3816947 中文版（经典重制）
-
-夸克：https://pan.quark.cn/s/8a83ac5f92b0
-
-#### 《僵尸世界大战：劫后余生（World War Z Aftermath）豪华版》Build.19333239 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bb9aa80fd6eb
-
-#### 《空之轨迹 the 1st （Trails in the Sky 1st Chapter）重制版》v1.05 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/aa4673559fef
-
-#### 《优米雅的炼金工房 ～追忆之炼金术士与幻创之地～》v1.5.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/40086dffb3c8
-
-#### 《烈焰之刃（Blades of Fire）》v1.4.8 中文版
-
-夸克：https://pan.quark.cn/s/e1c1a6e4a189
-
-#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26513a 中文 联机版
-
-夸克：https://pan.quark.cn/s/695816605aeb
-
-迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
-
-#### 《网吧模拟器2（Internet Cafe Simulator 2）》v1.2.5 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/0dfc5152dab9
-
-#### 《漂泊牧歌（The Wandering Village）》v1.1.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7e5c4273f5a7
-
-#### 《王之凝视（The King is Watching）》v1.0.6 中文版（塔防游戏）
-
-夸克：https://pan.quark.cn/s/b2a5af81441b
-
-#### 《最后一次突击（Phantom Squad）》v1.3.0 中文版
-
-夸克：https://pan.quark.cn/s/2735e475fa74
-
 ---
 
 ## 顶置游戏
+
+#### 《寂静岭F（SILENT HILL F）豪华版》v1.1.378720 全DLC 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/90391fdabda9
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
 
@@ -299,10 +267,6 @@
 夸克：https://pan.quark.cn/s/270b43d38b1a
 
 迅雷：https://pan.xunlei.com/s/VNtguTWIFDx9QvHxz05SH1VPA1?pwd=jxux#
-
-#### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0 全DLC 中文版（魂游）
-
-夸克：https://pan.quark.cn/s/f45144acd21e
 
 #### 《夺宝奇兵：古老之圈（Indiana Jones and the Great Circle）高级版》v1.0.9.0 全DLC 中文版（显卡需支持光追）
 
@@ -419,6 +383,74 @@
 ---
 
 ## 已有游戏
+
+#### 《机甲战魔 神话之裔（Daemon X Machina Titanic Scion）豪华版》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/22157231c180
+
+#### 《电竞教父（Esports Godfather）》v3.1.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6a594eb4a168
+
+迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
+
+#### 《战争机器：重装上阵（Gears of War Reloaded）》v1.0.1.3816947 中文版（经典重制）
+
+夸克：https://pan.quark.cn/s/8a83ac5f92b0
+
+#### 《僵尸世界大战：劫后余生（World War Z Aftermath）豪华版》Build.19333239 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bb9aa80fd6eb
+
+#### 《空之轨迹 the 1st （Trails in the Sky 1st Chapter）重制版》v1.05 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/aa4673559fef
+
+#### 《优米雅的炼金工房 ～追忆之炼金术士与幻创之地～》v1.5.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/40086dffb3c8
+
+#### 《烈焰之刃（Blades of Fire）》v1.4.8 中文版
+
+夸克：https://pan.quark.cn/s/e1c1a6e4a189
+
+#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26513a 中文 联机版
+
+夸克：https://pan.quark.cn/s/695816605aeb
+
+迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
+
+#### 《网吧模拟器2（Internet Cafe Simulator 2）》v1.2.5 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/0dfc5152dab9
+
+#### 《漂泊牧歌（The Wandering Village）》v1.1.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7e5c4273f5a7
+
+#### 《王之凝视（The King is Watching）》v1.0.6 中文版（塔防游戏）
+
+夸克：https://pan.quark.cn/s/b2a5af81441b
+
+#### 《最后一次突击（Phantom Squad）》v1.3.0 中文版
+
+夸克：https://pan.quark.cn/s/2735e475fa74
+
+#### 《Keep Driving》v1.3.1.0с 中文版（公路旅行游戏）
+
+夸克：https://pan.quark.cn/s/c6b75f332ca7
+
+#### 《我恨我的女直播主（I Hate My Waifu Streamer）》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/6888cb60cc93
+
+#### 《警情，消防，急救（Flashing Lights）》Build.240925-3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/99d33e70d5fa
+
+#### 《生态系统（Ecosystem）》v1.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2ed448707783
 
 #### 《古墓丽影：暗影（Shadow of the Tomb Raider）终结版》v1.0.492.0 全DLC 中文配音版
 
@@ -2124,10 +2156,6 @@
 
 夸克：https://pan.quark.cn/s/54fab26752d3
 
-#### 《犯罪模拟器（Crime Simulator）》v1.19G 中文 联机版
-
-夸克：https://pan.quark.cn/s/98518c51a604
-
 #### 《珊瑚岛（Cora Island）》v1.2-1238 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/f8e8a22deace
@@ -2922,10 +2950,6 @@
 
 夸克：https://pan.quark.cn/s/e3391895e941
 
-#### 《六星门：观星者（Sixtar Gate STARGAZER）》v2025.7.13 中文版（音乐游戏）
-
-夸克：https://pan.quark.cn/s/6ca8967a1a34
-
 #### 《Block Factory》v2025.7.13 中文版（区块工厂、积木工坊、方块工厂）
 
 夸克：https://pan.quark.cn/s/eaf98575c005
@@ -3245,10 +3269,6 @@
 #### 《王国两位君主（Kingdom Two Crowns）》v2.2.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/5ed6eaee151f
-
-#### 《负熵幸存者（Entropy Survivors）》v1.5.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/fd723b7c2dc5
 
 #### 《缉私警察（Contraband Police）》Build.18966454 中文版
 
@@ -9602,6 +9622,10 @@
 ---
 ## 互动影游
 > 靠前的是新添加的
+
+#### 《背后3：阴戏（Back3 Spooky）》v2025.9.30 中文版（真人互动影游 冒险恐怖）
+
+夸克：https://pan.quark.cn/s/5926bcb13e8c
 
 #### 《心跳大冒险：泰遇（Heartbeat In Thailand）》v2025.9.20 中文版（真人互动影游）
 
