@@ -56,7 +56,7 @@
 
 阿里：https://www.alipan.com/s/KnbUtPiTHrU
 
-#### 《熊出没》（ 2013-2023）1080P TV + 剧场（电影）版全集
+#### 《熊出没 系列合集》（2013-2025）TV剧集 + 电影版 1080P + 4K
 
 夸克：https://pan.quark.cn/s/5e3a1daa9afe
 

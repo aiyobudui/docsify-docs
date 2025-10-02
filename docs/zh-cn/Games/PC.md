@@ -174,6 +174,10 @@
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
 
+#### 《圣杯誓约（Sworn）》v2025.10.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/e4be77dbb052
+
 #### 《以太术士 (Aethermancer)》v0.3.1.1 中文版
 
 夸克：https://pan.quark.cn/s/152221838481
@@ -3918,10 +3922,6 @@
 夸克：https://pan.quark.cn/s/23cd87eee013
 
 迅雷：https://pan.xunlei.com/s/VO-eXyaLUluyIy0xfw29dheWA1?pwd=etgk#
-
-#### 《圣杯誓约（Sworn）》v0.52.2.0.675 中文 联机版
-
-夸克：https://pan.quark.cn/s/e4be77dbb052
 
 #### 《打倒白雪公主！乌拉！（Union of Gnomes）》v1.5.25 中文版（地精联盟）
 
