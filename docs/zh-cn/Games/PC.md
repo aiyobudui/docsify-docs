@@ -140,6 +140,14 @@
 
 ## 最近更新
 
+#### 《失落之魂（Lost Soul Aside）》v1.011 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/254473ee08f7
+
+#### 《寂静岭F（SILENT HILL F）豪华版》v1.1.380371 全DLC 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/90391fdabda9
+
 #### 《禁闭求生2（Grounded 2）》v0.2.0.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/9dd4fa1dcd84
@@ -228,10 +236,6 @@
 
 ## 顶置游戏
 
-#### 《寂静岭F（SILENT HILL F）豪华版》v1.1.378720 全DLC 中文版（心理恐怖游戏）
-
-夸克：https://pan.quark.cn/s/90391fdabda9
-
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
@@ -273,10 +277,6 @@
 #### 《地狱即我们（Hell is Us）》v1.4.22.43941 全DLC 中文版（冒险动作）
 
 夸克：https://pan.quark.cn/s/656ab3363cbd
-
-#### 《失落之魂（Lost Soul Aside）》v1.009 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/254473ee08f7
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
 
