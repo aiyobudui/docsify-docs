@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/88dcc7910dd1
 
+#### 《心之城堡：重述版（Castle of Heart Retold）》v2025.10.3 中文版
+
+夸克：https://pan.quark.cn/s/49c0d4e46891
+
+#### 《特殊行动：一线生机（Spec Ops The Line）》v1.0.6890.0 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/b93881259baa
+
 #### 《奇异古物（Strange Antiquities）》v1.0.37 中文版
 
 夸克：https://pan.quark.cn/s/3d048bd03ffb
@@ -83,58 +91,6 @@
 #### 《逃离永明岛（Escape Everlit）》v2025.10.2 中文版（文字解密冒险）
 
 夸克：https://pan.quark.cn/s/b8ba8a22c26f
-
-#### 《最终幻想7：核心危机重聚（CRISIS CORE FINAL FANTASY VII REUNION）豪华版》v1.0.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/79878124f832
-
-#### 《马克思佩恩3（Max Payne 3）完整版》v1.0.0.272 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/5aa350780082
-
-#### 《F1赛车2022（F1 22）》v1.05.899639 全DLC 中文配音版
-
-夸克：https://pan.quark.cn/s/a64ba3a4ca63
-
-#### 《F1赛车2020（F1 2020）豪华舒马赫版》v1.18 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a64ba3a4ca63
-
-#### 《零号奴隶X（Slave Zero X）》v1.06 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/02b1a82122c0
-
-#### 《不屈者（UNYIELDER）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/de82651b249a
-
-#### 《部队（The Troop）》v2025.9.29 中文版（回合制排级战术游戏）
-
-夸克：https://pan.quark.cn/s/0dfbd9be9428
-
-#### 《异乡人们（ACCIDENTALLY）》v2025.10.1 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/0a22b28799fc
-
-#### 《潜意者（Mind Diver）》v1.0.93 中文版（悬疑解密）
-
-夸克：https://pan.quark.cn/s/8d5dba459936
-
-#### 《皇上，上朝了（Its time your majesty）》v1.0.4a 中文版（肉鸽卡牌）
-
-夸克：https://pan.quark.cn/s/9c9a108bef42
-
-#### 《乐高派对（LEGO Party）》v2025.9.30 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/4121807d67f4
-
-#### 《好莱坞动物（Hollywood Animal）》v0.8.51 中文版
-
-夸克：https://pan.quark.cn/s/227288834417
-
-#### 《大锻造师（Medieval Crafter Blacksmith）》v0.1.16 中文版
-
-夸克：https://pan.quark.cn/s/7d096c7ec47c
 
 ---
 
@@ -174,6 +130,26 @@
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
 
+#### 《最后纪元（Last Epoch）豪华版》v1.3.5 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
+
+#### 《梦之形（Shape of Dreams）》v1.0.7.15 中文 联机版
+
+夸克：https://pan.quark.cn/s/23375927f4ba
+
+#### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f4faa9506d28
+
+#### 《打骨折超市日记（Discounty）》v1.0.2b 中文版
+
+夸克：https://pan.quark.cn/s/5b65c7c90507
+
+#### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.10.4 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/a0b498666ac1
+
 #### 《太吾绘卷（The Scroll Of Taiwu）》v0.0.76.36 中文版
 
 夸克：https://pan.quark.cn/s/e69d68ac66af
@@ -191,56 +167,6 @@
 #### 《虐杀熔炉（KIBORG）》V2025.9.30 中文版
 
 夸克：https://pan.quark.cn/s/d590ba9f9318
-
-#### 《六星门：观星者（Sixtar Gate STARGAZER）》v1.0.6.001 全DLC 中文版（音乐游戏）
-
-夸克：https://pan.quark.cn/s/6ca8967a1a34
-
-#### 《犯罪模拟器（Crime Simulator）》v1.19m 中文 联机版
-
-夸克：https://pan.quark.cn/s/98518c51a604
-
-#### 《负熵幸存者（Entropy Survivors）》v1.5.2.24984 中文 联机版
-
-夸克：https://pan.quark.cn/s/fd723b7c2dc5
-
-#### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9a929198d5a2
-
-#### 《哈迪斯2（Hades II）》v1.131496 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《虐杀原形 2部（Prototype）》v2025.9.29 汉化版（已修复诸多问题）
-
-夸克：https://pan.quark.cn/s/c7b9e59e1150
-
-#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.49472 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
-
-#### 《雨世界（Rain World）豪华版》v1.11.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/929f0d8cdd2b
-
-#### 《奇迹时代4（Age of Wonders 4）高级版》v1.012.001.112690 全DLC 中文版（新增DLC）
-
-夸克：https://pan.quark.cn/s/692dc066767e
-
-#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.7.1.14499 中文版
-
-夸克：https://pan.quark.cn/s/652d7102951b
-
-#### 《忍者神龟：破碎命运（TMNT：Splintered Fate）》v1.11.1 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/1a87818f0b0f
-
-#### 《静默恐惧：老灯塔十五夜（Static Dread）》v1.1.1 全DLC 中文版（恐怖解密）
-
-夸克：https://pan.quark.cn/s/6deca0e36190
 
 ---
 
@@ -413,6 +339,108 @@
 ---
 
 ## 已有游戏
+
+#### 《六星门：观星者（Sixtar Gate STARGAZER）》v1.0.6.001 全DLC 中文版（音乐游戏）
+
+夸克：https://pan.quark.cn/s/6ca8967a1a34
+
+#### 《犯罪模拟器（Crime Simulator）》v1.19m 中文 联机版
+
+夸克：https://pan.quark.cn/s/98518c51a604
+
+#### 《负熵幸存者（Entropy Survivors）》v1.5.2.24984 中文 联机版
+
+夸克：https://pan.quark.cn/s/fd723b7c2dc5
+
+#### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9a929198d5a2
+
+#### 《哈迪斯2（Hades II）》v1.131496 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《虐杀原形 2部（Prototype）》v2025.9.29 汉化版（已修复诸多问题）
+
+夸克：https://pan.quark.cn/s/c7b9e59e1150
+
+#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.49472 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51201cccd0db
+
+#### 《雨世界（Rain World）豪华版》v1.11.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/929f0d8cdd2b
+
+#### 《奇迹时代4（Age of Wonders 4）高级版》v1.012.001.112690 全DLC 中文版（新增DLC）
+
+夸克：https://pan.quark.cn/s/692dc066767e
+
+#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.7.1.14499 中文版
+
+夸克：https://pan.quark.cn/s/652d7102951b
+
+#### 《忍者神龟：破碎命运（TMNT：Splintered Fate）》v1.11.1 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/1a87818f0b0f
+
+#### 《静默恐惧：老灯塔十五夜（Static Dread）》v1.1.1 全DLC 中文版（恐怖解密）
+
+夸克：https://pan.quark.cn/s/6deca0e36190
+
+#### 《最终幻想7：核心危机重聚（CRISIS CORE FINAL FANTASY VII REUNION）豪华版》v1.0.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《马克思佩恩3（Max Payne 3）完整版》v1.0.0.272 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/5aa350780082
+
+#### 《F1赛车2022（F1 22）》v1.05.899639 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/a64ba3a4ca63
+
+#### 《F1赛车2020（F1 2020）豪华舒马赫版》v1.18 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a64ba3a4ca63
+
+#### 《零号奴隶X（Slave Zero X）》v1.06 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/02b1a82122c0
+
+#### 《不屈者（UNYIELDER）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/de82651b249a
+
+#### 《部队（The Troop）》v2025.9.29 中文版（回合制排级战术游戏）
+
+夸克：https://pan.quark.cn/s/0dfbd9be9428
+
+#### 《异乡人们（ACCIDENTALLY）》v2025.10.1 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/0a22b28799fc
+
+#### 《潜意者（Mind Diver）》v1.0.93 中文版（悬疑解密）
+
+夸克：https://pan.quark.cn/s/8d5dba459936
+
+#### 《皇上，上朝了（Its time your majesty）》v1.0.4a 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/9c9a108bef42
+
+#### 《乐高派对（LEGO Party）》v2025.9.30 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/4121807d67f4
+
+#### 《好莱坞动物（Hollywood Animal）》v0.8.51 中文版
+
+夸克：https://pan.quark.cn/s/227288834417
+
+#### 《大锻造师（Medieval Crafter Blacksmith）》v0.1.16 中文版
+
+夸克：https://pan.quark.cn/s/7d096c7ec47c
 
 #### 《机甲战魔 神话之裔（Daemon X Machina Titanic Scion）豪华版》v1.1.0 全DLC 中文版
 
@@ -720,10 +748,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO0IhA8LA2R6D1dn8o2sLjcoA1?pwd=d7si#
 
-#### 《最后纪元（Last Epoch）豪华版》v1.3.4 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
-
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.24 中文版
 
 夸克：https://pan.quark.cn/s/d88da55c16aa
@@ -821,10 +845,6 @@
 #### 《神树残响（Echoes of the Divine Tree）》Build.20000053 中文版
 
 夸克：https://pan.quark.cn/s/5903b05a0776
-
-#### 《梦之形（Shape of Dreams）》v1.0.6.2_s 中文 联机版
-
-夸克：https://pan.quark.cn/s/23375927f4ba
 
 #### 《黑暗童话（Dark Fairy Tale）》v25.09.19.16 中文版
 
@@ -2020,10 +2040,6 @@
 
 夸克：https://pan.quark.cn/s/11176d4c7517
 
-#### 《打骨折超市日记（Discounty）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/5b65c7c90507
-
 #### 《BLEACH 魂魄觉醒（BLEACH Rebirth of Souls）》v1.20 中文 联机版（死神 魂魄觉醒）
 
 夸克：https://pan.quark.cn/s/01c58b6972fc
@@ -2075,10 +2091,6 @@
 #### 《海贼无双4（ONE PIECE PIRATE WARRIORS 4）豪华版》v1.0.8.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/044dd2733019
-
-#### 《机械制造者（Trailmakers）》v211.500.010.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f4faa9506d28
 
 #### 《汽车修理工模拟2021（Car Mechanic Simulator 2021）》v1.0.38.HF1 全DLC 中文版
 
@@ -3179,10 +3191,6 @@
 #### 《气球塔防6（Bloons TD 6）》v49.0.9315 全DLC 中文 联机版（附 气球塔防5）
 
 夸克：https://pan.quark.cn/s/c07fb4e51a76
-
-#### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.9.2 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/a0b498666ac1
 
 #### 《幻恋夜宴：恋恋的幻觉夜宴（Halluci Sabbat of Koishi）》v1.2.3 全DLC 中文版
 
