@@ -33,9 +33,9 @@
 
 夸克：https://pan.quark.cn/s/f8a74d84a875
 
-#### 《赴山海》（2025）4K 40集全
+#### 《赴山海》（2025）4K 60帧 40集全
 
-夸克：https://pan.quark.cn/s/507010a0cc82
+夸克：https://pan.quark.cn/s/04c84d4568ba
 
 #### 《守护者们》（2025）4K 35集全
 

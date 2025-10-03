@@ -8321,7 +8321,7 @@
 
 夸克：https://pan.quark.cn/s/586e97de802d
 
-#### 《空洞骑士(Hollow Knight)》v1.5.78.11833 全DLC 中文版
+#### 《空洞骑士(Hollow Knight)》v1.5.78.11833 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/b33b8a04f68b
 
