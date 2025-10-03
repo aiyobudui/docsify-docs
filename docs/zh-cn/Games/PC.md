@@ -174,6 +174,12 @@
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
 
+#### 《太吾绘卷（The Scroll Of Taiwu）》v0.0.76.36 中文版
+
+夸克：https://pan.quark.cn/s/e69d68ac66af
+
+迅雷：https://pan.xunlei.com/s/VNvh1F-9zC-W0-qUGAPfVQAnA1?pwd=cmac#
+
 #### 《圣杯誓约（Sworn）》v2025.10.2 中文 联机版
 
 夸克：https://pan.quark.cn/s/e4be77dbb052
@@ -4088,12 +4094,6 @@
 夸克：https://pan.quark.cn/s/e6ebcfcc1432
 
 迅雷：https://pan.xunlei.com/s/VNruQzJL0DgvRlnYMpjJ3PmWA1?pwd=s43f#
-
-#### 《太吾绘卷（The Scroll Of Taiwu）》v2025.5.16 中文版
-
-夸克：https://pan.quark.cn/s/e69d68ac66af
-
-迅雷：https://pan.xunlei.com/s/VNvh1F-9zC-W0-qUGAPfVQAnA1?pwd=cmac#
 
 #### 《泰坦之旅：不朽王座 周年纪念版（Titan Quest Anniversary Edition）》Build.16405061 中文版
 
