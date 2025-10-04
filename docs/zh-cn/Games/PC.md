@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/88dcc7910dd1
 
+#### 《NBA 弹跳（NBA BOUNCE）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/db908218a0a5
+
+#### 《ROAD59 -新时代任侠特区- 摩天楼黑白抗争》v2025.10.5 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/23b1709b7f23
+
 #### 《罪恶装备：启示者（GUILTY GEAR Xrd REV 2）豪华版》v2.11 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/bbeae924578b
@@ -99,6 +107,10 @@
 #### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
 
 夸克：https://pan.quark.cn/s/c5d945316d3b
+
+#### 《迪士尼梦幻星谷（Disney Dreamlight Valley）奇迹版》v2025.10.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/64bda0c8f67d
 
 #### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
 
@@ -5540,10 +5552,6 @@
 #### 《战锤40K 暗潮（Warhammer 40000 Darktide）》v1.6.3427.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/a8243f22ec80
-
-#### 《迪士尼梦幻星谷（Disney Dreamlight Valley）》v2025.2.26 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/64bda0c8f67d
 
 #### 《意航员2（Psychonauts 2）》v1101213 中文版
 
