@@ -2,6 +2,10 @@
 
 ---
 
+#### 《守护解放西》（2019-2025）第6季 10集更新中..（附1-5季）
+
+夸克：https://pan.quark.cn/s/6f4e2d976359
+
 ## BBC纪录片
 
 #### 《BBC纪录片专题》(972GB)
@@ -105,10 +109,6 @@
 夸克：https://pan.quark.cn/s/c3568d9020f5
 
 迅雷：https://pan.xunlei.com/s/VO8qAyJunGHhSuZL9Vi-_PVkA1?pwd=7cur#
-
-#### 《守护解放西》（2019-2024）1080P 第5季更新中.. 附1-4季
-
-夸克：https://pan.quark.cn/s/6f4e2d976359
 
 #### 《为孩子拍摄的神级记录片合集，提升孩子的世界观和知识储备，23部》
 

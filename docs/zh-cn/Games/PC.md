@@ -52,6 +52,18 @@
 
 夸克：https://pan.quark.cn/s/88dcc7910dd1
 
+#### 《罪恶装备：启示者（GUILTY GEAR Xrd REV 2）豪华版》v2.11 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/bbeae924578b
+
+#### 《斯盖尔仪式（Sker Ritual）终极版》v1.3.2.25602 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6201cb16561c
+
+#### 《绝境刹车手（no brake no gain）》v1.00.0 中文版
+
+夸克：https://pan.quark.cn/s/8c48cd49b065
+
 #### 《心之城堡：重述版（Castle of Heart Retold）》v2025.10.3 中文版
 
 夸克：https://pan.quark.cn/s/49c0d4e46891
@@ -72,29 +84,47 @@
 
 夸克：https://pan.quark.cn/s/f9839a89272a
 
-#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.10.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fd2f2389fa35
-
-#### 《征服之歌（Songs of Conquest）》v1.6.3 全DLC 中文 联机版（回合制策略）
-
-夸克：https://pan.quark.cn/s/e53b0330c930
-
-#### 《hololive Holo's花札（hololive Holos Hanafuda）》v1.2.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b3dc1c665ea5
-
-#### 《蝉之世界（CICADA）》v1.0 中文版（模拟动作）
-
-夸克：https://pan.quark.cn/s/c47b3135f3be
-
-#### 《逃离永明岛（Escape Everlit）》v2025.10.2 中文版（文字解密冒险）
-
-夸克：https://pan.quark.cn/s/b8ba8a22c26f
-
 ---
 
 ## 最近更新
+
+#### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《都市天际线2（Cities Skylines 2）终极版》v1.3.5f1 全DLC 中文版（城市天际线2）
+
+夸克：https://pan.quark.cn/s/e78ffec97c4e
+
+#### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
+
+夸克：https://pan.quark.cn/s/c5d945316d3b
+
+#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
+
+夸克：https://pan.quark.cn/s/68a01dbea110
+
+#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
+
+夸克：https://pan.quark.cn/s/c1be0a9e8f67
+
+#### 《要战便战（Diplomacy is Not an Option）》v1.0.81 中文版
+
+夸克：https://pan.quark.cn/s/d13054962c00
+
+#### 《熊视眈眈（Out of Sight）》v1.0.49 中文版（类似小小梦魇恐怖解密）
+
+夸克：https://pan.quark.cn/s/d4b3d3aacfaf
+
+#### 《哈迪斯2（Hades II）》v1.131641 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28877 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《失落之魂（Lost Soul Aside）》v1.011 全DLC 中文版
 
@@ -107,6 +137,30 @@
 #### 《禁闭求生2（Grounded 2）》v0.2.0.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/9dd4fa1dcd84
+
+#### 《最后纪元（Last Epoch）豪华版》v1.3.5 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
+
+#### 《梦之形（Shape of Dreams）》v1.0.7.15 中文 联机版
+
+夸克：https://pan.quark.cn/s/23375927f4ba
+
+#### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f4faa9506d28
+
+#### 《打骨折超市日记（Discounty）》v1.0.2b 中文版
+
+夸克：https://pan.quark.cn/s/5b65c7c90507
+
+#### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.10.4 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/a0b498666ac1
+
+---
+
+## 顶置游戏
 
 #### 《幻兽帕鲁（Palworld）》v0.6.7.79736 中文 联机版
 
@@ -130,48 +184,6 @@
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
 
-#### 《最后纪元（Last Epoch）豪华版》v1.3.5 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
-
-#### 《梦之形（Shape of Dreams）》v1.0.7.15 中文 联机版
-
-夸克：https://pan.quark.cn/s/23375927f4ba
-
-#### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f4faa9506d28
-
-#### 《打骨折超市日记（Discounty）》v1.0.2b 中文版
-
-夸克：https://pan.quark.cn/s/5b65c7c90507
-
-#### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.10.4 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/a0b498666ac1
-
-#### 《太吾绘卷（The Scroll Of Taiwu）》v0.0.76.36 中文版
-
-夸克：https://pan.quark.cn/s/e69d68ac66af
-
-迅雷：https://pan.xunlei.com/s/VNvh1F-9zC-W0-qUGAPfVQAnA1?pwd=cmac#
-
-#### 《圣杯誓约（Sworn）》v2025.10.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/e4be77dbb052
-
-#### 《以太术士 (Aethermancer)》v0.3.1.1 中文版
-
-夸克：https://pan.quark.cn/s/152221838481
-
-#### 《虐杀熔炉（KIBORG）》V2025.9.30 中文版
-
-夸克：https://pan.quark.cn/s/d590ba9f9318
-
----
-
-## 顶置游戏
-
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
@@ -183,10 +195,6 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28750 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.1 全DLC 中文版（新增DLC）
 
@@ -213,10 +221,6 @@
 #### 《地狱即我们（Hell is Us）》v1.4.22.43941 全DLC 中文版（冒险动作）
 
 夸克：https://pan.quark.cn/s/656ab3363cbd
-
-#### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.0 全DLC 中文配音版
-
-夸克：https://pan.quark.cn/s/d1d00e8c72d5
 
 #### 《赛博朋克2077（Cyberpunk 2077）终极版》v2.31 全DLC 中文配音版
 
@@ -340,6 +344,44 @@
 
 ## 已有游戏
 
+#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.10.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fd2f2389fa35
+
+#### 《征服之歌（Songs of Conquest）》v1.6.3 全DLC 中文 联机版（回合制策略）
+
+夸克：https://pan.quark.cn/s/e53b0330c930
+
+#### 《hololive Holo's花札（hololive Holos Hanafuda）》v1.2.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b3dc1c665ea5
+
+#### 《蝉之世界（CICADA）》v1.0 中文版（模拟动作）
+
+夸克：https://pan.quark.cn/s/c47b3135f3be
+
+#### 《逃离永明岛（Escape Everlit）》v2025.10.2 中文版（文字解密冒险）
+
+夸克：https://pan.quark.cn/s/b8ba8a22c26f
+
+#### 《太吾绘卷（The Scroll Of Taiwu）》v0.0.76.36 中文版
+
+夸克：https://pan.quark.cn/s/e69d68ac66af
+
+迅雷：https://pan.xunlei.com/s/VNvh1F-9zC-W0-qUGAPfVQAnA1?pwd=cmac#
+
+#### 《圣杯誓约（Sworn）》v2025.10.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/e4be77dbb052
+
+#### 《以太术士 (Aethermancer)》v0.3.1.1 中文版
+
+夸克：https://pan.quark.cn/s/152221838481
+
+#### 《虐杀熔炉（KIBORG）》V2025.9.30 中文版
+
+夸克：https://pan.quark.cn/s/d590ba9f9318
+
 #### 《六星门：观星者（Sixtar Gate STARGAZER）》v1.0.6.001 全DLC 中文版（音乐游戏）
 
 夸克：https://pan.quark.cn/s/6ca8967a1a34
@@ -355,12 +397,6 @@
 #### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/9a929198d5a2
-
-#### 《哈迪斯2（Hades II）》v1.131496 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
 
 #### 《虐杀原形 2部（Prototype）》v2025.9.29 汉化版（已修复诸多问题）
 
@@ -1976,10 +2012,6 @@
 
 夸克：https://pan.quark.cn/s/d9e794c1e06e
 
-#### 《要战便战（Diplomacy is Not an Option）》v1.0.69 中文版
-
-夸克：https://pan.quark.cn/s/d13054962c00
-
 #### 《Foundation》v1.10.3.12 中文版（中世界建造）
 
 夸克：https://pan.quark.cn/s/d98f988b2c66
@@ -2234,10 +2266,6 @@
 
 夸克：https://pan.quark.cn/s/fcc894524f26
 
-#### 《熊视眈眈（Out of Sight）》v1.0.48 中文版（类似小小梦魇恐怖解密）
-
-夸克：https://pan.quark.cn/s/d4b3d3aacfaf
-
 #### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v1.042 中文版
 
 夸克：https://pan.quark.cn/s/6b3dff37f4cb
@@ -2335,14 +2363,6 @@
 #### 《警察模拟器：巡警（Police Simulator Patrol Officers）》v18.2.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/22a57b547f78
-
-#### 《深海迷航（Subnautica）》v82304 中文版
-
-夸克：https://pan.quark.cn/s/68a01dbea110
-
-#### 《深海迷航：冰点之下（Subnautica Below Zero）》v53115 中文版
-
-夸克：https://pan.quark.cn/s/c1be0a9e8f67
 
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）》v2025.8.12 中文版
 
@@ -3529,10 +3549,6 @@
 
 夸克：https://pan.quark.cn/s/1b1f80c48bc3
 
-#### 《都市天际线2（Cities Skylines 2）终极版》v1.3.3f1 全DLC 中文版（城市天际线2）
-
-夸克：https://pan.quark.cn/s/e78ffec97c4e
-
 #### 《Rift of the NecroDancer》v1.5.0 全DLC 中文版（节奏裂隙、节奏地牢、死灵舞者之裂隙）
 
 夸克：https://pan.quark.cn/s/f2472c379448
@@ -3918,10 +3934,6 @@
 #### 《黑暗时代：背水一战（Age of Darkness Final Stand）》v1.0.2.4 中文 联机版
 
 夸克：https://pan.quark.cn/s/1209365c2439
-
-#### 《人类（HUMANKIND）》v1.0.28.4665 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c5d945316d3b
 
 #### 《Temporal Purge Z》v2025.5.27 中文版（清除丧尸 射击肉鸽）
 
