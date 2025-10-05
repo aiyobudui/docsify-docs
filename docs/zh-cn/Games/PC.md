@@ -108,6 +108,12 @@
 
 夸克：https://pan.quark.cn/s/e78ffec97c4e
 
+#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26934a 中文 联机版
+
+夸克：https://pan.quark.cn/s/695816605aeb
+
+迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
+
 #### 《刀剑神域 碎梦边境（SWORD ART ONLINE Fractured Daydream）》v1.4.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bb5134dcb570
@@ -527,12 +533,6 @@
 #### 《烈焰之刃（Blades of Fire）》v1.4.8 中文版
 
 夸克：https://pan.quark.cn/s/e1c1a6e4a189
-
-#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26513a 中文 联机版
-
-夸克：https://pan.quark.cn/s/695816605aeb
-
-迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
 
 #### 《网吧模拟器2（Internet Cafe Simulator 2）》v1.2.5 中文版（附第一部）
 
