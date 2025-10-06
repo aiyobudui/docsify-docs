@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/88dcc7910dd1
 
+#### 《人头落地（Heads Will Roll Reforged）完全版》v2.62 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7a7df53791a7
+
 #### 《NBA 弹跳（NBA BOUNCE）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/db908218a0a5
@@ -107,6 +111,20 @@
 #### 《都市天际线2（Cities Skylines 2）终极版》v1.3.5f1 全DLC 中文版（城市天际线2）
 
 夸克：https://pan.quark.cn/s/e78ffec97c4e
+
+#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8a27527d8863
+
+#### 《达愿福神社（Promise Mascot Agency）》v1.2.1.016454 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6e6b126db3be
+
+#### 《绝世好武功（The Matchless Kungfu）》v1.3.9.1 中文版
+
+夸克：https://pan.quark.cn/s/ffb6de79bd49
+
+迅雷：https://pan.xunlei.com/s/VNz9yG6IO2m1tCUdTAGJNsZnA1?pwd=mmgc#
 
 #### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26934a 中文 联机版
 
@@ -765,10 +783,6 @@
 #### 《崩溃大陆2（Crashlands 2）》v1.3.0.RC.2 中文版（附第1部）
 
 夸克：https://pan.quark.cn/s/8db39b6946d6
-
-#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.05 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8a27527d8863
 
 #### 《林中小女巫（Little Witch in the Woods）》v5.0.19.0 中文版
 
@@ -2387,10 +2401,6 @@
 #### 《忍者外传：怒之羁绊（NINJA GAIDEN Ragebound）》v2025.8.12 中文版
 
 夸克：https://pan.quark.cn/s/92c0d3be0d31
-
-#### 《达愿福神社（Promise Mascot Agency）》v1.2.0.016301 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6e6b126db3be
 
 #### 《羊肚菌：狩猎（Morels The Hunt）》Build.15781103 中文版
 
@@ -4494,12 +4504,6 @@
 #### 《Aquarist》v2025.5.1 全DLC 中文版（水族馆管理与养鱼游戏）
 
 夸克：https://pan.quark.cn/s/7be489024f05
-
-#### 《绝世好武功（The Matchless Kungfu）》v1.2.1.0 中文版
-
-夸克：https://pan.quark.cn/s/ffb6de79bd49
-
-迅雷：https://pan.xunlei.com/s/VNz9yG6IO2m1tCUdTAGJNsZnA1?pwd=mmgc#
 
 #### 《卡库远古封印（Kaku Ancient Seal）》v1.07.1498596 全DLC 中文版
 

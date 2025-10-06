@@ -44,6 +44,10 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
+#### 《新美妙世界（NEO The World Ends with You）》v1.03 NS整合 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/1d08b12e2ce1
+
 #### 《超级马里奥银河1+2》v1.0.0整合版 + 1.2.0升级补丁 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/b3fdb30e21f2
