@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《幽灵诡计（Ghost Trick）重制版》v11046558 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/dc5efd784afa
+
+#### 《塑战核心（Battle Shapers）》v1.1.2.1 中文版
+
+夸克：https://pan.quark.cn/s/0f224cfd5236
+
 #### 《DAIMON BLADES》v114.442 中文 联机版（肉鸽砍杀）
 
 夸克：https://pan.quark.cn/s/221c8ca7372f
@@ -86,6 +94,12 @@
 
 迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
 
+#### 《美国卡车模拟（American Truck Simulator）》v1.56.1.7s 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/b7c28d5b7861
+
+迅雷：https://pan.xunlei.com/s/VNytlxE8Cdcop3newiJvbDroA1?pwd=rzhu#
+
 #### 《救国少女之斯娜静歌（Snezhinka Sentinel Girls2）》v1.2.4 中文版
 
 夸克：https://pan.quark.cn/s/01766735c4df
@@ -97,6 +111,16 @@
 #### 《无人深空（No Man's Sky）》v6.06 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/ebcd2a9f4907
+
+#### 《缉私警察（Contraband Police）》v20251002 中文版
+
+夸克：https://pan.quark.cn/s/d089a142e65d
+
+#### 《土豆兄弟（Brotato）》v1.1.12.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5c72c5f33cf5
+
+迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
 
@@ -2506,12 +2530,6 @@
 
 夸克：https://pan.quark.cn/s/83372995e6f7
 
-#### 《土豆兄弟（Brotato）》v1.1.11.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5c72c5f33cf5
-
-迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
-
 #### 《房产达人2（House Flipper 2）》v1.9.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bf324abb2ddf
@@ -3361,10 +3379,6 @@
 #### 《王国两位君主（Kingdom Two Crowns）》v2.2.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/5ed6eaee151f
-
-#### 《缉私警察（Contraband Police）》Build.18966454 中文版
-
-夸克：https://pan.quark.cn/s/d089a142e65d
 
 #### 《小小世界：原野求生（Smalland Survive the Wilds）》v1.9.2 中文 联机版
 
@@ -4730,12 +4744,6 @@
 #### 《神界原罪2（Divinity Original Sin 2）最终版》v3.6.117.3735 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/1e6549341218
-
-#### 《美国卡车模拟（American Truck Simulator）》v1.54.2.16s 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/b7c28d5b7861
-
-迅雷：https://pan.xunlei.com/s/VNytlxE8Cdcop3newiJvbDroA1?pwd=rzhu#
 
 #### 《天外世界（The Outer Worlds SCE）次世代版》v1.6411.19706.0 全DLC 中文版
 
