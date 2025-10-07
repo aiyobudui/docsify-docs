@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《奇异小队（Strange Brigade）》v1.47.22.14 中文版（异域奇兵）
+
+夸克：https://pan.quark.cn/s/1b6eb1b5a4e5
+
 #### 《异形：盗贼入侵 进化版（Alien Rogue Incursion Evolved Edition）豪华版》v1.0.2 中文版
 
 夸克：https://pan.quark.cn/s/88dcc7910dd1
@@ -68,41 +72,17 @@
 
 夸克：https://pan.quark.cn/s/6cbf29567fa4
 
-#### 《罪恶装备：启示者（GUILTY GEAR Xrd REV 2）豪华版》v2.11 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/bbeae924578b
-
-#### 《斯盖尔仪式（Sker Ritual）终极版》v1.3.2.25602 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6201cb16561c
-
-#### 《绝境刹车手（no brake no gain）》v1.00.0 中文版
-
-夸克：https://pan.quark.cn/s/8c48cd49b065
-
-#### 《心之城堡：重述版（Castle of Heart Retold）》v2025.10.3 中文版
-
-夸克：https://pan.quark.cn/s/49c0d4e46891
-
-#### 《特殊行动：一线生机（Spec Ops The Line）》v1.0.6890.0 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/b93881259baa
-
-#### 《奇异古物（Strange Antiquities）》v1.0.37 中文版
-
-夸克：https://pan.quark.cn/s/3d048bd03ffb
-
-#### 《星萼（Calyx）》v0.0.4.1 中文版
-
-夸克：https://pan.quark.cn/s/f6ed93f9a0b4
-
-#### 《部落与弯刀（Sands of Salzaar）》v1.1.19 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f9839a89272a
-
 ---
 
 ## 最近更新
+
+#### 《控制（Control）终极合辑版》v1.33 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fe8828dd6a65
+
+#### 《无人深空（No Man's Sky）》v6.06 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
 
@@ -125,70 +105,6 @@
 夸克：https://pan.quark.cn/s/ffb6de79bd49
 
 迅雷：https://pan.xunlei.com/s/VNz9yG6IO2m1tCUdTAGJNsZnA1?pwd=mmgc#
-
-#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26934a 中文 联机版
-
-夸克：https://pan.quark.cn/s/695816605aeb
-
-迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
-
-#### 《刀剑神域 碎梦边境（SWORD ART ONLINE Fractured Daydream）》v1.4.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bb5134dcb570
-
-#### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
-
-夸克：https://pan.quark.cn/s/c5d945316d3b
-
-#### 《迪士尼梦幻星谷（Disney Dreamlight Valley）奇迹版》v2025.10.4 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/64bda0c8f67d
-
-#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
-
-夸克：https://pan.quark.cn/s/68a01dbea110
-
-#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
-
-夸克：https://pan.quark.cn/s/c1be0a9e8f67
-
-#### 《要战便战（Diplomacy is Not an Option）》v1.0.81 中文版
-
-夸克：https://pan.quark.cn/s/d13054962c00
-
-#### 《熊视眈眈（Out of Sight）》v1.0.49 中文版（类似小小梦魇恐怖解密）
-
-夸克：https://pan.quark.cn/s/d4b3d3aacfaf
-
-#### 《哈迪斯2（Hades II）》v1.131641 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28877 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
-
-#### 《最后纪元（Last Epoch）豪华版》v1.3.5 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
-
-#### 《梦之形（Shape of Dreams）》v1.0.7.15 中文 联机版
-
-夸克：https://pan.quark.cn/s/23375927f4ba
-
-#### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f4faa9506d28
-
-#### 《打骨折超市日记（Discounty）》v1.0.2b 中文版
-
-夸克：https://pan.quark.cn/s/5b65c7c90507
-
-#### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.10.4 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/a0b498666ac1
 
 ---
 
@@ -387,6 +303,102 @@
 ---
 
 ## 已有游戏
+
+#### 《罪恶装备：启示者（GUILTY GEAR Xrd REV 2）豪华版》v2.11 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/bbeae924578b
+
+#### 《斯盖尔仪式（Sker Ritual）终极版》v1.3.2.25602 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6201cb16561c
+
+#### 《绝境刹车手（no brake no gain）》v1.00.0 中文版
+
+夸克：https://pan.quark.cn/s/8c48cd49b065
+
+#### 《心之城堡：重述版（Castle of Heart Retold）》v2025.10.3 中文版
+
+夸克：https://pan.quark.cn/s/49c0d4e46891
+
+#### 《特殊行动：一线生机（Spec Ops The Line）》v1.0.6890.0 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/b93881259baa
+
+#### 《奇异古物（Strange Antiquities）》v1.0.37 中文版
+
+夸克：https://pan.quark.cn/s/3d048bd03ffb
+
+#### 《星萼（Calyx）》v0.0.4.1 中文版
+
+夸克：https://pan.quark.cn/s/f6ed93f9a0b4
+
+#### 《部落与弯刀（Sands of Salzaar）》v1.1.19 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f9839a89272a
+
+#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26934a 中文 联机版
+
+夸克：https://pan.quark.cn/s/695816605aeb
+
+迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
+
+#### 《刀剑神域 碎梦边境（SWORD ART ONLINE Fractured Daydream）》v1.4.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bb5134dcb570
+
+#### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
+
+夸克：https://pan.quark.cn/s/c5d945316d3b
+
+#### 《迪士尼梦幻星谷（Disney Dreamlight Valley）奇迹版》v2025.10.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/64bda0c8f67d
+
+#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
+
+夸克：https://pan.quark.cn/s/68a01dbea110
+
+#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
+
+夸克：https://pan.quark.cn/s/c1be0a9e8f67
+
+#### 《要战便战（Diplomacy is Not an Option）》v1.0.81 中文版
+
+夸克：https://pan.quark.cn/s/d13054962c00
+
+#### 《熊视眈眈（Out of Sight）》v1.0.49 中文版（类似小小梦魇恐怖解密）
+
+夸克：https://pan.quark.cn/s/d4b3d3aacfaf
+
+#### 《哈迪斯2（Hades II）》v1.131641 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28877 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《最后纪元（Last Epoch）豪华版》v1.3.5 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
+
+#### 《梦之形（Shape of Dreams）》v1.0.7.15 中文 联机版
+
+夸克：https://pan.quark.cn/s/23375927f4ba
+
+#### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f4faa9506d28
+
+#### 《打骨折超市日记（Discounty）》v1.0.2b 中文版
+
+夸克：https://pan.quark.cn/s/5b65c7c90507
+
+#### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.10.4 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/a0b498666ac1
 
 #### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.10.2 全DLC 中文版
 
@@ -1359,10 +1371,6 @@
 #### 《命运 武士遗迹（Fate/Samurai Remnant）》v1.3.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/2979ec88afeb
-
-#### 《无人深空（No Man's Sky）》v6.04 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《超灵秘法社（Mind Over Magic）》v1.0.546 中文版
 
@@ -8630,10 +8638,6 @@
 #### 《螃蟹之神（Crab God）》v1.0.24 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7a7b63572b0a
-
-#### 《控制（Control）》v1.13 全DLC 终极合集收藏中文版 附存档 + 修改器
-
-夸克：https://pan.quark.cn/s/fe8828dd6a65
 
 #### 《工人与资源：苏维埃共和国（Workers & Res：Soviet Repub）》v1.004 全DLC 中文版
 
