@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《DAIMON BLADES》v114.442 中文 联机版（肉鸽砍杀）
+
+夸克：https://pan.quark.cn/s/221c8ca7372f
+
 #### 《奇异小队（Strange Brigade）》v1.47.22.14 中文版（异域奇兵）
 
 夸克：https://pan.quark.cn/s/1b6eb1b5a4e5
@@ -75,6 +79,16 @@
 ---
 
 ## 最近更新
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.8s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
+
+#### 《救国少女之斯娜静歌（Snezhinka Sentinel Girls2）》v1.2.4 中文版
+
+夸克：https://pan.quark.cn/s/01766735c4df
 
 #### 《控制（Control）终极合辑版》v1.33 全DLC 中文版
 
@@ -1019,12 +1033,6 @@
 夸克：https://pan.quark.cn/s/ec9392c8a6d4
 
 迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
-
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.0s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
 
 #### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
 
@@ -7520,10 +7528,6 @@
 #### 《爆笑三国（The Hilarious Three Kingdoms）》v2024.9.23 中文版
 
 夸克：https://pan.quark.cn/s/33faffbfb5a3
-
-#### 《救国少女之斯娜静歌（Snezhinka：Sentinel Girls2）》v1.1.6 中文版
-
-夸克：https://pan.quark.cn/s/01766735c4df
 
 #### 《厨师物语（Chef RPG）》v0.5 汉化中文版
 
