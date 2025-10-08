@@ -131,7 +131,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNl7gMz6RajsUgWO5aRp45iYA1?pwd=8yf3#
 
-#### 《龙族》（2022-2025）4K 第2季 更新中..（附第1季全）
+#### 《龙族》（2022-2025）4K 第2季 更新中..（附第1季全+小说）
 
 夸克：https://pan.quark.cn/s/9264216d4af2
 

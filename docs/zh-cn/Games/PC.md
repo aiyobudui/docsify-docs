@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《海员人生：行船模拟（Seafarer The Ship Sim）》v0.0.1050 中文版
+
+夸克：https://pan.quark.cn/s/1c363261b886
+
+#### 《枪豆人（Bang Bang Barrage）》v1.0.6 中文版（多人本地联机）
+
+夸克：https://pan.quark.cn/s/8c1d759f649f
+
 #### 《Blood of Mehran》v1.0.16 中文版
 
 夸克：https://pan.quark.cn/s/2a623d45e1ba
@@ -110,6 +118,10 @@
 ---
 
 ## 最近更新
+
+#### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/9dd4fa1dcd84
 
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.4 中文 联机版
 
@@ -192,10 +204,6 @@
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.1.380371 全DLC 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/90391fdabda9
-
-#### 《禁闭求生2（Grounded 2）》v0.2.0.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/9dd4fa1dcd84
 
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0C 全DLC 中文版（魂游）
 
