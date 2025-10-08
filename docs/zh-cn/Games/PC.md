@@ -111,6 +111,14 @@
 
 ## 最近更新
 
+#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/220acef4a4a1
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28891 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
 #### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.8s 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/9c1147b7ac79
@@ -226,10 +234,6 @@
 夸克：https://pan.quark.cn/s/9df1078ca763
 
 迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
-
-#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.3 中文 联机版
-
-夸克：https://pan.quark.cn/s/220acef4a4a1
 
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.24.2 全DLC 中文配音 联机版
 
@@ -436,10 +440,6 @@
 夸克：https://pan.quark.cn/s/74b6e4cc96f7
 
 迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28877 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《最后纪元（Last Epoch）豪华版》v1.3.5 中文版
 
