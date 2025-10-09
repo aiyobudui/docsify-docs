@@ -44,6 +44,14 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
+#### 《最终幻想战略版 伊瓦利斯编年史》v1.2.0 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/6cb1efda4603
+
+#### 《数码宝贝 网络侦探 骇客追忆》v1.0.3 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/47ac437a8b3d
+
 #### 《新美妙世界（NEO The World Ends with You）》v1.03 NS整合 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/1d08b12e2ce1
@@ -160,7 +168,7 @@
 
 夸克：https://pan.quark.cn/s/83869492b208
 
-#### 《文明7》v1.2.3 全DLC NS整合 中文版
+#### 《文明7》v1.2.5 全DLC NS整合 中文版
 
 夸克：https://pan.quark.cn/s/dc3b513887ff
 

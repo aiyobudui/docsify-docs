@@ -9,6 +9,8 @@
 
 夸克：https://pan.quark.cn/s/f2b37d02b096
 
+迅雷：https://pan.xunlei.com/s/VO7wj_ndEYkY4fupDFP2XPCEA1?pwd=7khq#
+
 #### 《王牌对王牌》（2025）第9季 4K 更新中..
 
 夸克：https://pan.quark.cn/s/bff50906a20e
@@ -80,17 +82,11 @@
 
 #### 《一年一度喜剧大赛》（2021-2023）1080P 1-2季全+大王别慌张（国内首屈一指的喜剧小品综艺）
 
-夸克：https://pan.quark.cn/s/5d1244e23824
+夸克：https://pan.quark.cn/s/f2b37d02b096
 
 迅雷：https://pan.xunlei.com/s/VO6eDoAGL45t-TzlAMTbqgMNA1?pwd=49cy#
 
 阿里：https://www.aliyundrive.com/s/11Xd9tvR6fS
-
-#### 《喜人奇妙夜》（2024）4K 12期全 纯享版（马东 高圆圆 黄渤 贾冰 秦昊）
-
-夸克：https://pan.quark.cn/s/643eaf30f3b5
-
-迅雷：https://pan.xunlei.com/s/VO7wj_ndEYkY4fupDFP2XPCEA1?pwd=7khq#
 
 #### 《圆桌派》（2016-2024）4K+1080P 1-7季全
 
