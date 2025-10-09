@@ -48,6 +48,18 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《60分钟绝灭：密室逃脱（60 Minutes to Extinction Escape Room）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/58712c9739d0
+
+#### 《小小火箭实验室（Little Rocket Lab）》v1.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a689bd7dd217
+
+#### 《星战王牌（Battle Suit Aces）》v1.0.283 中文版（剧情卡牌游戏）
+
+夸克：https://pan.quark.cn/s/8f79fa90212a
+
 #### 《海员人生：行船模拟（Seafarer The Ship Sim）》v0.0.1050 中文版
 
 夸克：https://pan.quark.cn/s/1c363261b886
@@ -79,42 +91,6 @@
 
 夸克：https://pan.quark.cn/s/2fd539e5c219
 
-#### 《幽灵诡计（Ghost Trick）重制版》v11046558 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/dc5efd784afa
-
-#### 《塑战核心（Battle Shapers）》v1.1.2.1 中文版
-
-夸克：https://pan.quark.cn/s/0f224cfd5236
-
-#### 《DAIMON BLADES》v114.442 中文 联机版（肉鸽砍杀）
-
-夸克：https://pan.quark.cn/s/221c8ca7372f
-
-#### 《奇异小队（Strange Brigade）》v1.47.22.14 中文版（异域奇兵）
-
-夸克：https://pan.quark.cn/s/1b6eb1b5a4e5
-
-#### 《异形：盗贼入侵 进化版（Alien Rogue Incursion Evolved Edition）豪华版》v1.0.2 中文版
-
-夸克：https://pan.quark.cn/s/88dcc7910dd1
-
-#### 《人头落地（Heads Will Roll Reforged）完全版》v2.62 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7a7df53791a7
-
-#### 《NBA 弹跳（NBA BOUNCE）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/db908218a0a5
-
-#### 《ROAD59 -新时代任侠特区- 摩天楼黑白抗争》v2025.10.5 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/23b1709b7f23
-
-#### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》Build.11356493 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6cbf29567fa4
-
 ---
 
 ## 最近更新
@@ -130,6 +106,22 @@
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28891 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《群星（Stellaris）终极版》v4.1.5 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e812eb1562dd
+
+迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
+
+#### 《林间小世界（Tiny Glade）》v1.14.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c0419a8ccfd6
+
+#### 《超市模拟器（Supermarket Simulator）》v1.1.1 中文版
+
+夸克：https://pan.quark.cn/s/bbd59beca72d
+
+迅雷：https://pan.xunlei.com/s/VNri90IcCAPiwlDMNmgWCYvLA1?pwd=btgj#
 
 #### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.8s 全DLC 中文 联机版
 
@@ -159,34 +151,6 @@
 
 夸克：https://pan.quark.cn/s/d089a142e65d
 
-#### 《土豆兄弟（Brotato）》v1.1.12.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5c72c5f33cf5
-
-迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
-
-#### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
-
-夸克：https://pan.quark.cn/s/d1d00e8c72d5
-
-#### 《都市天际线2（Cities Skylines 2）终极版》v1.3.5f1 全DLC 中文版（城市天际线2）
-
-夸克：https://pan.quark.cn/s/e78ffec97c4e
-
-#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8a27527d8863
-
-#### 《达愿福神社（Promise Mascot Agency）》v1.2.1.016454 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6e6b126db3be
-
-#### 《绝世好武功（The Matchless Kungfu）》v1.3.9.1 中文版
-
-夸克：https://pan.quark.cn/s/ffb6de79bd49
-
-迅雷：https://pan.xunlei.com/s/VNz9yG6IO2m1tCUdTAGJNsZnA1?pwd=mmgc#
-
 ---
 
 ## 顶置游戏
@@ -204,6 +168,10 @@
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.1.380371 全DLC 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/90391fdabda9
+
+#### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/d1d00e8c72d5
 
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0C 全DLC 中文版（魂游）
 
@@ -376,6 +344,66 @@
 ---
 
 ## 已有游戏
+
+#### 《土豆兄弟（Brotato）》v1.1.12.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5c72c5f33cf5
+
+迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
+
+#### 《都市天际线2（Cities Skylines 2）终极版》v1.3.5f1 全DLC 中文版（城市天际线2）
+
+夸克：https://pan.quark.cn/s/e78ffec97c4e
+
+#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8a27527d8863
+
+#### 《达愿福神社（Promise Mascot Agency）》v1.2.1.016454 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6e6b126db3be
+
+#### 《绝世好武功（The Matchless Kungfu）》v1.3.9.1 中文版
+
+夸克：https://pan.quark.cn/s/ffb6de79bd49
+
+迅雷：https://pan.xunlei.com/s/VNz9yG6IO2m1tCUdTAGJNsZnA1?pwd=mmgc#
+
+#### 《幽灵诡计（Ghost Trick）重制版》v11046558 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/dc5efd784afa
+
+#### 《塑战核心（Battle Shapers）》v1.1.2.1 中文版
+
+夸克：https://pan.quark.cn/s/0f224cfd5236
+
+#### 《DAIMON BLADES》v114.442 中文 联机版（肉鸽砍杀）
+
+夸克：https://pan.quark.cn/s/221c8ca7372f
+
+#### 《奇异小队（Strange Brigade）》v1.47.22.14 中文版（异域奇兵）
+
+夸克：https://pan.quark.cn/s/1b6eb1b5a4e5
+
+#### 《异形：盗贼入侵 进化版（Alien Rogue Incursion Evolved Edition）豪华版》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/88dcc7910dd1
+
+#### 《人头落地（Heads Will Roll Reforged）完全版》v2.62 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7a7df53791a7
+
+#### 《NBA 弹跳（NBA BOUNCE）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/db908218a0a5
+
+#### 《ROAD59 -新时代任侠特区- 摩天楼黑白抗争》v2025.10.5 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/23b1709b7f23
+
+#### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》Build.11356493 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6cbf29567fa4
 
 #### 《罪恶装备：启示者（GUILTY GEAR Xrd REV 2）豪华版》v2.11 全DLC 中文 联机版
 
@@ -918,12 +946,6 @@
 #### 《古墓丽影 4-6 复刻版（Tomb Raider IV VI Remastered）》v20250919 中文版
 
 夸克：https://pan.quark.cn/s/8c417acf572b
-
-#### 《群星（Stellaris）终极版》v4.1.0 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e812eb1562dd
-
-迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
 
 #### 《生化变种（BIOMUTANT）》v1.7.0 全DLC 中文配音版
 
@@ -3514,12 +3536,6 @@
 
 夸克：https://pan.quark.cn/s/929929d1ec80
 
-#### 《超市模拟器（Supermarket Simulator）》v1.01 中文版
-
-夸克：https://pan.quark.cn/s/bbd59beca72d
-
-迅雷：https://pan.xunlei.com/s/VNri90IcCAPiwlDMNmgWCYvLA1?pwd=btgj#
-
 #### 《吾今有世家（House of Legacy）》v0.7.4.5 中文版
 
 夸克：https://pan.quark.cn/s/6fb7ebc525bf
@@ -5301,10 +5317,6 @@
 夸克：https://pan.quark.cn/s/ed5dfd67767a
 
 迅雷：https://pan.xunlei.com/s/VNtkHEbNiHELy9OOhtQLLAsmA1?pwd=ihmr#
-
-#### 《林间小世界（Tiny Glade）》v1.13.2a 中文版
-
-夸克：https://pan.quark.cn/s/c0419a8ccfd6
 
 #### 《杀戮台球（Rack and Slay）》v1.28b PC 中文版
 
