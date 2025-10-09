@@ -50,7 +50,7 @@
 
 阿里：https://www.alipan.com/s/Gydx8E6EXt8
 
-#### 《漫威宇宙电影合集》蓝光4K HDR + 4K REMUX原盘 + 蓝光1080P 多国配音音轨 特效字幕
+#### 《漫威宇宙电影合集》蓝光4K HDR + 4K REMUX原盘 多国配音音轨 特效字幕
 
 夸克：https://pan.quark.cn/s/ac1fe9f846e5
 
@@ -407,7 +407,7 @@
 
 阿里：https://www.aliyundrive.com/s/gL4tf4fhrQx
 
-#### 《碟中谍》1-7合集 蓝光4K HDR + 蓝光4K REMUX 原盘 中英配音 特效中英字幕
+#### 《碟中谍》（1996-2025）1-8合集 蓝光4K HDR 多国配音 特效字幕
 
 夸克：https://pan.quark.cn/s/a8b26dc8a55d
 
@@ -857,7 +857,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNxyulHfmbh7n_nz75h3--gpA1?pwd=3sx9#
 
-#### 《边境杀手》（2015-2018）系列合集 4K + 蓝光4K原盘
+#### 《边境杀手》（2015-2018）系列合集 4K HDR 特效字幕
 
 夸克：https://pan.quark.cn/s/6d681eda6072
 

@@ -61,14 +61,6 @@
 
 ## 周六
 
-#### 《铁甲小宝 重制版》（1997）4K + 1080P 中字 更新中.. 国日双语
-
-夸克：https://pan.quark.cn/s/452891f098bb
-
-迅雷：https://pan.xunlei.com/s/VO6pFK_LzM5oaPTtXGWIWWjkA1?pwd=dbmx#
-
-阿里：[https://www.alipan.com/s/KnbUtPiTHrU](https://www.alipan.com/s/KnbUtPiTHrU/folder/659d3131d537835cea0c4b2487543fc210b070f5)
-
 #### 《薰香花朵凛然绽放》（2025）1080P 中字 13集 更新中..
 
 夸克：https://pan.quark.cn/s/84f1b0b669b7

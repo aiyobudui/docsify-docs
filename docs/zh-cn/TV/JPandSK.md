@@ -23,7 +23,7 @@
 
 ## 已完结的...
 
-#### 《弥留之国的爱丽丝》（2020-2025）1-3季全 1080P 中字 （末日逃生剧）
+#### 《弥留之国的爱丽丝》（2020-2025）1-3季全 1080P 中字（末日逃生剧）
 
 夸克：https://pan.quark.cn/s/55936c1a3ada
 
@@ -633,4 +633,14 @@
 
 夸克：https://pan.quark.cn/s/1aa3b6807304
 
+#### 《超级战队 系列合集》43部 1080P高码 中字 （特摄剧）
 
+夸克：https://pan.quark.cn/s/aa5d6b4d22b3
+
+#### 《铁甲小宝 重制版》（1997）4K + 1080P 中字 国日双语（特摄剧）
+
+夸克：https://pan.quark.cn/s/452891f098bb
+
+迅雷：https://pan.xunlei.com/s/VO6pFK_LzM5oaPTtXGWIWWjkA1?pwd=dbmx#
+
+阿里：[https://www.alipan.com/s/KnbUtPiTHrU](https://www.alipan.com/s/KnbUtPiTHrU/folder/659d3131d537835cea0c4b2487543fc210b070f5)

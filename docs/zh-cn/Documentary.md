@@ -48,7 +48,7 @@
 
 阿里：<https://www.aliyundrive.com/s/cnN53i43GmS>
 
-#### 《地球脉动》（2006-2023）1-3季全 4K HDR + 蓝光原盘 多国配音 特效中英字幕（多版本）（BBC纪录片）
+#### 《地球脉动》（2006-2023）1-3季全 4K HDR + 1080P 多国配音 特效中英字幕（多版本）（BBC纪录片）
 
 夸克：https://pan.quark.cn/s/afa2b1757f2b
 

@@ -539,7 +539,7 @@
 
 阿里：https://www.aliyundrive.com/s/aPTnJXmCn61
 
-#### 敦刻尔克（2017）蓝光4K+REMUX 原盘.中英配音 中英字幕（必看战争题材）
+#### 《敦刻尔克》（2017）蓝光4K HDR 中英配音 中英字幕（必看战争题材）
 
 夸克：https://pan.quark.cn/s/201dcb41ba98
 

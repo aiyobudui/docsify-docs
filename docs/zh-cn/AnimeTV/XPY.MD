@@ -58,7 +58,7 @@
 
 #### 《熊出没 系列合集》（2013-2025）TV剧集 + 电影版 1080P + 4K
 
-夸克：https://pan.quark.cn/s/5e3a1daa9afe
+夸克：https://pan.quark.cn/s/ece8ffa44f40
 
 #### 《海绵宝宝》334集全 1-13季全 国语配音（附大电影）
 

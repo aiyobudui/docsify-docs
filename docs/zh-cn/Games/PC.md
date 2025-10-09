@@ -48,6 +48,34 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《晦暗神祇2（Dark Deity 2）》v1.14 汉化版（附第一部 全DLC 豪华版）
+
+夸克：https://pan.quark.cn/s/380f418cd26a
+
+#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.0 中文版（开放世界冒险）
+
+夸克：https://pan.quark.cn/s/6758e2260430
+
+#### 《狙击手：幽灵战士契约2（Sniper Ghost Warrior Contracts 2）豪华版》Build.05092024 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c89ba9c589a4
+
+#### 《亩地（ACRES）》v2025.10.9 中文版（农作物策略模拟）
+
+夸克：https://pan.quark.cn/s/7d86671aeb43
+
+#### 《卡瑞玛拉：枯肢之下（CARIMARA Beneath the forlorn limbs）》v2025.10.9 中文版
+
+夸克：https://pan.quark.cn/s/9eaa84b943a1
+
+#### 《巴别塔：垂直国度（STARIO Haven Tower）》v0.2.12.4110 中文版
+
+夸克：https://pan.quark.cn/s/cdaa63cf783d
+
+#### 《合金装备5：原爆点（Metal Gear Solid 5 Ground Zeroes）》v1.005 汉化版
+
+夸克：https://pan.quark.cn/s/b9b445b11c79
+
 #### 《60分钟绝灭：密室逃脱（60 Minutes to Extinction Escape Room）》v1.0.1 中文版
 
 夸克：https://pan.quark.cn/s/58712c9739d0
