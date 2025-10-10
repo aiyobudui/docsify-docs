@@ -54,6 +54,14 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《绝对魔权（Absolum）》v2025.10.10 中文版
+
+夸克：https://pan.quark.cn/s/1179f67a6076
+
+#### 《狂野的心（The Wild at Heart）》v1.1.9.0 中文版（丰富多彩绘本冒险）
+
+夸克：https://pan.quark.cn/s/f98173adfa12
+
 #### 《晦暗神祇2（Dark Deity 2）》v1.14 汉化版（附第一部 全DLC 豪华版）
 
 夸克：https://pan.quark.cn/s/380f418cd26a

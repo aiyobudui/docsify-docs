@@ -37,6 +37,10 @@
 
 迅雷：https://pan.xunlei.com/s/VOTljdYajNCVYVS8cabGPjuOA1?pwd=gaq7#
 
+#### 《流氓读书会》（2025）1080P 10集全 中字（学习小组）
+
+夸克：https://pan.quark.cn/s/748c9d196576
+
 #### 《比天堂还美丽》（2025）1080P 12集全 中字
 
 夸克：https://pan.quark.cn/s/abe763f1e893
