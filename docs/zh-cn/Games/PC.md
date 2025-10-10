@@ -130,6 +130,20 @@
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
 
+#### 《异星工厂（Factorio）》v2.0.69 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/abf35a685935
+
+#### 《恐鬼症（Phasmophobia）》v0.14.2.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/f06faddc881c
+
+#### 《勇者斗恶龙 创世小玩家2 破坏神席德与空荡岛（Dragon Quest Builders 2）》v1.7.3d 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/35a07d7183e8
+
+迅雷：https://pan.xunlei.com/s/VNtedJfEj846VJQ5OdDj8k6JA1?pwd=4av2#
+
 #### 《群星（Stellaris）终极版》v4.1.5 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e812eb1562dd
@@ -139,40 +153,6 @@
 #### 《林间小世界（Tiny Glade）》v1.14.3 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/c0419a8ccfd6
-
-#### 《超市模拟器（Supermarket Simulator）》v1.1.1 中文版
-
-夸克：https://pan.quark.cn/s/bbd59beca72d
-
-迅雷：https://pan.xunlei.com/s/VNri90IcCAPiwlDMNmgWCYvLA1?pwd=btgj#
-
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.8s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
-
-#### 《美国卡车模拟（American Truck Simulator）高级版》v1.56.1.7s 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b7c28d5b7861
-
-迅雷：https://pan.xunlei.com/s/VNytlxE8Cdcop3newiJvbDroA1?pwd=rzhu#
-
-#### 《救国少女之斯娜静歌（Snezhinka Sentinel Girls2）》v1.2.4 中文版
-
-夸克：https://pan.quark.cn/s/01766735c4df
-
-#### 《控制（Control）终极合辑版》v1.33 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fe8828dd6a65
-
-#### 《无人深空（No Man's Sky）》v6.06 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ebcd2a9f4907
-
-#### 《缉私警察（Contraband Police）》v20251002 中文版
-
-夸克：https://pan.quark.cn/s/d089a142e65d
 
 ---
 
@@ -367,6 +347,40 @@
 ---
 
 ## 已有游戏
+
+#### 《超市模拟器（Supermarket Simulator）》v1.1.1 中文版
+
+夸克：https://pan.quark.cn/s/bbd59beca72d
+
+迅雷：https://pan.xunlei.com/s/VNri90IcCAPiwlDMNmgWCYvLA1?pwd=btgj#
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.8s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
+
+#### 《美国卡车模拟（American Truck Simulator）高级版》v1.56.1.7s 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b7c28d5b7861
+
+迅雷：https://pan.xunlei.com/s/VNytlxE8Cdcop3newiJvbDroA1?pwd=rzhu#
+
+#### 《救国少女之斯娜静歌（Snezhinka Sentinel Girls2）》v1.2.4 中文版
+
+夸克：https://pan.quark.cn/s/01766735c4df
+
+#### 《控制（Control）终极合辑版》v1.33 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fe8828dd6a65
+
+#### 《无人深空（No Man's Sky）》v6.06 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ebcd2a9f4907
+
+#### 《缉私警察（Contraband Police）》v20251002 中文版
+
+夸克：https://pan.quark.cn/s/d089a142e65d
 
 #### 《土豆兄弟（Brotato）》v1.1.12.1 全DLC 中文版
 
@@ -1159,10 +1173,6 @@
 #### 《鸦卫奇旅（Ravenswatch）》v1.03.01.00.26879 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b9dde09b6e05
-
-#### 《恐鬼症（Phasmophobia）》v0.14.0.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/f06faddc881c
 
 #### 《Puzzle Quest：不朽版》v1.0.0.3388 中文版（消消乐游戏）
 
@@ -3832,10 +3842,6 @@
 #### 《Eternal Strands》v1.0.14.0600 中文版（永恒之链）
 
 夸克：https://pan.quark.cn/s/71ecb0cb40c0
-
-#### 《异星工厂（Factorio）》v2.0.55 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/abf35a685935
 
 #### 《信长之野望·新生 with 威力加強版（NOBUNAGAS AMBITION Awakening）》v1.1.6 全DLC 豪华中文版
 
@@ -9721,15 +9727,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNttNSKhTXVAZexRrfO-fkKIA1?pwd=kkc5#
 
-#### 《勇者斗恶龙创世小玩家》阿雷夫加尔德复兴记 v1.0.1 中文版
+#### 《勇者斗恶龙 创世小玩家 阿雷夫加尔德复兴记（Dragon Quest Builders）》 v1.0.1 中文版
 
 夸克：https://pan.quark.cn/s/bc7362bd4c7b
-
-#### 《勇者斗恶龙 创世小玩家2》最新 中文版 v1.7.3a PC版
-
-夸克：https://pan.quark.cn/s/35a07d7183e8
-
-迅雷：https://pan.xunlei.com/s/VNtedJfEj846VJQ5OdDj8k6JA1?pwd=4av2#
 
 #### 《无限神速斩 勇者斗恶龙 达伊的大冒险》最新 中文版 PC版
 
