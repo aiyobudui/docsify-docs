@@ -114,25 +114,6 @@
 
 夸克：https://pan.quark.cn/s/2a623d45e1ba
 
-#### 《口袋妖怪 游戏合集》掌机模拟器游戏 3DS、GBA、NDS格式（精灵宝可梦 合集）
-《口袋妖怪 太阳月亮 终极版》  
-《口袋妖怪 XY》  
-《口袋妖怪 红宝石蓝宝石 终极版》  
-《口袋妖怪 永恒之焱zero》  
-《口袋妖怪 漆黑的魅影5.0EX+BW》  
-《口袋妖怪 漆黑的魅影5.0EX+DP》  
-《口袋妖怪 火红 中文版》  
-《口袋妖怪 绿宝石386 中文版》  
-《口袋妖怪 叶绿386 中文版》  
-《口袋妖怪 超级绿宝石 8.0改》  
-《口袋妖怪 白金》  
-《口袋妖怪 金心银灵》  
-《口袋妖怪 钻石珍珠》  
-《口袋妖怪 白黑2》  
-《口袋妖怪 黑白v3 修正版》  
-
-夸克：https://pan.quark.cn/s/2fd539e5c219
-
 ---
 
 ## 最近更新
@@ -10228,11 +10209,3 @@
 
 ## 打赏站长
 <img src="/assets/img/zan.png">
-
-<!-- 悬浮小猫 -->
-<div class="/docsify-example-panels">
-  <div class="/docsify-example-panels floating-cat">
-    <img src="/assets/img/floating-cat.png">
-  </div>
-</div>
-
