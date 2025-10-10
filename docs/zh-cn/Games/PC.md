@@ -48,6 +48,12 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《小小梦魇3（Little Nightmares 3）》v2025.10.10 全DLC 中文 联机版（附前2部 恐怖解密）
+
+夸克：https://pan.quark.cn/s/23c16824e3ac
+
+迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
 #### 《晦暗神祇2（Dark Deity 2）》v1.14 汉化版（附第一部 全DLC 豪华版）
 
 夸克：https://pan.quark.cn/s/380f418cd26a
@@ -9964,12 +9970,6 @@
 #### 《层层恐惧 系列合集（Layers of Fear）》3部 最新 全DLC 中文版（恐怖解密）
 
 夸克：https://pan.quark.cn/s/e0308f3b4b16
-
-#### 《小小梦魇 系列合集（Little Nightmares）》2部 最新 全DLC 中文版（恐怖解密）
-
-夸克：https://pan.quark.cn/s/23c16824e3ac
-
-迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
 #### 《纸嫁衣 系列合集（Paper Bride 1-6）》6部 最新 中文版（恐怖游戏）
 
