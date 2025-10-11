@@ -58,6 +58,20 @@
 
 夸克：https://pan.quark.cn/s/bfc912b4ae28
 
+#### 《奥术之路（Arcane Path）》v2025.10.11 中文版（卡牌策略）
+
+夸克：https://pan.quark.cn/s/7cc527717d68
+
+#### 《三国志 系列合集 威力加强版》最新 中文版
+
+夸克：https://pan.quark.cn/s/791c98f684de
+
+迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
+
+#### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/0015412d5e95
+
 #### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/3f523ff18fd5
@@ -97,6 +111,10 @@
 ---
 
 ## 最近更新
+
+#### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
+
+夸克：https://pan.quark.cn/s/d069de18760a
 
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
 
@@ -2535,10 +2553,6 @@
 #### 《警察模拟器：巡警（Police Simulator Patrol Officers）》v18.2.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/22a57b547f78
-
-#### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）》v2025.8.12 中文版
-
-夸克：https://pan.quark.cn/s/d069de18760a
 
 #### 《忍者外传：怒之羁绊（NINJA GAIDEN Ragebound）》v2025.8.12 中文版
 
@@ -7779,10 +7793,6 @@
 
 夸克：https://pan.quark.cn/s/dc5d9df4a43e
 
-#### 《三国志11 原版+PK》附MOD + 剧本
-
-迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
-
 #### 《零世代（Generation Zero）》v2825950 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/bf2664f019fa
@@ -9466,10 +9476,6 @@
 夸克：https://pan.quark.cn/s/a2400a6fb324
 
 迅雷：https://pan.xunlei.com/s/VNvwCV5eX7vYJUwlLtaXIW52A1?pwd=jriq#
-
-#### 《三国志14 威力加强版》v1.0.10
-
-夸克：https://pan.quark.cn/s/791c98f684de
 
 #### 《图灵完备》最新 中文版 版本号看文件名
 
