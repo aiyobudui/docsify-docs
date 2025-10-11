@@ -54,6 +54,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3f523ff18fd5
+
 #### 《绝对魔权（Absolum）》v2025.10.10 中文版
 
 夸克：https://pan.quark.cn/s/1179f67a6076
