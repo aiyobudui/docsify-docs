@@ -54,6 +54,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《幻灵降世录（Lost Eidolons）》v1.5.4.R36 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bfc912b4ae28
+
 #### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/3f523ff18fd5
@@ -90,37 +94,17 @@
 
 夸克：https://pan.quark.cn/s/cdaa63cf783d
 
-#### 《合金装备5：原爆点（Metal Gear Solid 5 Ground Zeroes）》v1.005 汉化版
-
-夸克：https://pan.quark.cn/s/b9b445b11c79
-
-#### 《60分钟绝灭：密室逃脱（60 Minutes to Extinction Escape Room）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/58712c9739d0
-
-#### 《小小火箭实验室（Little Rocket Lab）》v1.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a689bd7dd217
-
-#### 《星战王牌（Battle Suit Aces）》v1.0.283 中文版（剧情卡牌游戏）
-
-夸克：https://pan.quark.cn/s/8f79fa90212a
-
-#### 《海员人生：行船模拟（Seafarer The Ship Sim）》v0.0.1050 中文版
-
-夸克：https://pan.quark.cn/s/1c363261b886
-
-#### 《枪豆人（Bang Bang Barrage）》v1.0.6 中文版（多人本地联机）
-
-夸克：https://pan.quark.cn/s/8c1d759f649f
-
-#### 《Blood of Mehran》v1.0.16 中文版
-
-夸克：https://pan.quark.cn/s/2a623d45e1ba
-
 ---
 
 ## 最近更新
+
+#### 《敲棺盖（Knock on the Coffin Lid）》v1.3.9.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e15f4cfb5227
+
+#### 《遵命，陛下：寒冬（Yes Your Grace 2 Snowfall）》v1.0.32 中文版
+
+夸克：https://pan.quark.cn/s/2d539a29df7b
 
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
@@ -351,6 +335,34 @@
 ---
 
 ## 已有游戏
+
+#### 《合金装备5：原爆点（Metal Gear Solid 5 Ground Zeroes）》v1.005 汉化版
+
+夸克：https://pan.quark.cn/s/b9b445b11c79
+
+#### 《60分钟绝灭：密室逃脱（60 Minutes to Extinction Escape Room）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/58712c9739d0
+
+#### 《小小火箭实验室（Little Rocket Lab）》v1.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a689bd7dd217
+
+#### 《星战王牌（Battle Suit Aces）》v1.0.283 中文版（剧情卡牌游戏）
+
+夸克：https://pan.quark.cn/s/8f79fa90212a
+
+#### 《海员人生：行船模拟（Seafarer The Ship Sim）》v0.0.1050 中文版
+
+夸克：https://pan.quark.cn/s/1c363261b886
+
+#### 《枪豆人（Bang Bang Barrage）》v1.0.6 中文版（多人本地联机）
+
+夸克：https://pan.quark.cn/s/8c1d759f649f
+
+#### 《Blood of Mehran》v1.0.16 中文版
+
+夸克：https://pan.quark.cn/s/2a623d45e1ba
 
 #### 《超市模拟器（Supermarket Simulator）》v1.1.1 中文版
 
@@ -1497,10 +1509,6 @@
 #### 《超灵秘法社（Mind Over Magic）》v1.0.546 中文版
 
 夸克：https://pan.quark.cn/s/74f6370ffdf1
-
-#### 《敲棺盖（Knock on the Coffin Lid）》v1.3.5.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e15f4cfb5227
 
 #### 《逸剑风云决（Wandering Sword）》v1.24.30 全DLC 中文版
 
@@ -3880,10 +3888,6 @@
 #### 《骰子浪游者（Diceomancer）》v1.1.18 中文版
 
 夸克：https://pan.quark.cn/s/5d828e2e8c6c
-
-#### 《遵命，陛下：寒冬（Yes Your Grace 2 Snowfall）》v1.0.10776 中文版
-
-夸克：https://pan.quark.cn/s/2d539a29df7b
 
 #### 《血染小镇（Paint the Town Red）》v1.3.4 中文 联机版
 
