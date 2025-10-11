@@ -98,6 +98,10 @@
 
 ## 最近更新
 
+#### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
+
+夸克：https://pan.quark.cn/s/d88da55c16aa
+
 #### 《敲棺盖（Knock on the Coffin Lid）》v1.3.9.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e15f4cfb5227
@@ -105,6 +109,10 @@
 #### 《遵命，陛下：寒冬（Yes Your Grace 2 Snowfall）》v1.0.32 中文版
 
 夸克：https://pan.quark.cn/s/2d539a29df7b
+
+#### 《精神城市：洛菲会议（Spirit City：Lofi Sessions）》v2.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e34562091a8d
 
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
@@ -979,10 +987,6 @@
 夸克：https://pan.quark.cn/s/1a4fa103227f
 
 迅雷：https://pan.xunlei.com/s/VO0IhA8LA2R6D1dn8o2sLjcoA1?pwd=d7si#
-
-#### 《我在地府打麻将（Demonic Mahjong）》v0.2.24 中文版
-
-夸克：https://pan.quark.cn/s/d88da55c16aa
 
 #### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.8 中文版（鸭子侦探）
 
@@ -3149,10 +3153,6 @@
 #### 《旁观者：列车长（Beholder Conductor）》v1.0.4.275 中文版
 
 夸克：https://pan.quark.cn/s/0b83bd812648
-
-#### 《精神城市：洛菲会议（Spirit City：Lofi Sessions）》v1.11.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e34562091a8d
 
 #### 《诺兰德（Norland）》Build.19064798 中文版
 
