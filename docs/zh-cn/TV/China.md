@@ -21,6 +21,8 @@
 
 夸克：https://pan.quark.cn/s/ba0e24a448ba
 
+迅雷：https://pan.xunlei.com/s/VObNle_owdSKcuxmDQFJBylhA1?pwd=nhmy#
+
 #### 《一笑随歌》（2025）4K 38集 更新中..
 
 夸克：https://pan.quark.cn/s/ca5012594196
@@ -29,7 +31,7 @@
 
 夸克：https://pan.quark.cn/s/8b0dff33c504
 
-#### 《绝命法官》（2025）4K 20集 更新中..（国粤双配音更新）
+#### 《绝命法官》（2025）4K 20集全（国粤双配音更新）
 
 夸克：https://pan.quark.cn/s/f47bd34df11b
 
@@ -51,7 +53,7 @@
 
 夸克：https://pan.quark.cn/s/264182e782f8
 
-#### 《欢乐家长群》（2024-2025）第二季 4K 40集 更新中..（附第一季）
+#### 《欢乐家长群》（2024-2025）1-2季全 4K
 
 夸克：和谐
 
