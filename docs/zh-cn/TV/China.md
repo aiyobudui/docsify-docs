@@ -77,7 +77,7 @@
 
 #### 《凡人修仙传》（2025）4K 60帧 30集全（杨洋 金晨）真人版
 
-夸克：
+夸克：https://pan.quark.cn/s/523e217da23a
 
 迅雷：https://pan.xunlei.com/s/VOa0hSA_8sxik56E81oWtmMqA1?pwd=ssj6#
 
