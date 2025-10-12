@@ -183,7 +183,7 @@
 
 阿里：<https://www.aliyundrive.com/s/DdBcNMSKrds>
 
-#### 《秘密关卡》（2024）4K HDR + 4K杜比视界 + 1080P》（科幻）
+#### 《秘密关卡》（2024）4K HDR 内封中字（科幻）
 
 夸克：https://pan.quark.cn/s/d7949d0f63f6
 

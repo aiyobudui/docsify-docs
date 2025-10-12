@@ -82,6 +82,10 @@
 
 阿里：https://www.aliyundrive.com/s/ZhH5CQQGG34
 
+#### 《招魂 系列合集》（1952-2025）8部 4K HDR 中字（招魂4：终章）
+
+夸克：https://pan.quark.cn/s/988747990125
+
 #### 《惊变28年 + 惊变28周 + 惊变28天》  (2025) 1-3部 4K+1080P 中字（科幻 丧尸 恐怖）
 
 夸克：https://pan.quark.cn/s/5635d30b829b
@@ -121,6 +125,12 @@
 #### 《角斗士》（2020-2024）1-2部 4K+1080P 国英双配音 中字
 
 夸克：https://pan.quark.cn/s/b0fa163f80b2
+
+#### 《绝地战警》1-3部 4K HDR 国英配音 中字
+
+夸克：https://pan.quark.cn/s/d74d2ed3cf0d
+
+迅雷：https://pan.xunlei.com/s/VO2T3mHgMJTX9TD_mzqoANrWA1?pwd=r2gd#
 
 #### 《饥饿站台2》（2019-2024）1080P 中字 惊悚（附第一部）
 
@@ -413,7 +423,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNxx5WIgX-kfgYHiVt5DO64xA1?pwd=kjg6#
 
-#### 《伸冤人》1-3部  4K HDR + 1080P 中英配音.特效中英字幕
+#### 《伸冤人》1-3部 4K HDR 中英配音 特效中英字幕
 
 夸克：https://pan.quark.cn/s/e6d995a4e891
 

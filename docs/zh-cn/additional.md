@@ -10,6 +10,10 @@
 
 夸克：https://pan.quark.cn/s/191b33cc52a5
 
+#### 《NBA常规赛 24-25赛季 全场录像回放》NBA回放
+
+夸克：https://pan.quark.cn/s/c6f6e03b4f87
+
 #### 《几何画板》v5.06 汉化中文版（软件）
 
 夸克：https://pan.quark.cn/s/c7e1a18fe28d

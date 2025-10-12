@@ -58,6 +58,22 @@
 
 夸克：https://pan.quark.cn/s/bfc912b4ae28
 
+#### 《MustScream》Build.19536362 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/a3175f7c529a
+
+#### 《神话与传说（Myths and Legends）》v2025.10.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/071101dfef03
+
+#### 《骰子传奇（Dice Legends）》v2025.10.12 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/7af163c23677
+
+#### 《死亡循环（SurrounDead）》Build.19622939 英文版
+
+夸克：https://pan.quark.cn/s/54a985e3d4f6
+
 #### 《奥术之路（Arcane Path）》v2025.10.11 中文版（卡牌策略）
 
 夸克：https://pan.quark.cn/s/7cc527717d68
@@ -68,46 +84,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
 
-#### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
-
-夸克：https://pan.quark.cn/s/0015412d5e95
-
-#### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3f523ff18fd5
-
-#### 《绝对魔权（Absolum）》v2025.10.10 中文版
-
-夸克：https://pan.quark.cn/s/1179f67a6076
-
-#### 《狂野的心（The Wild at Heart）》v1.1.9.0 中文版（丰富多彩绘本冒险）
-
-夸克：https://pan.quark.cn/s/f98173adfa12
-
-#### 《晦暗神祇2（Dark Deity 2）》v1.14 汉化版（附第一部 全DLC 豪华版）
-
-夸克：https://pan.quark.cn/s/380f418cd26a
-
-#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.0 中文版（开放世界冒险）
-
-夸克：https://pan.quark.cn/s/6758e2260430
-
-#### 《狙击手：幽灵战士契约2（Sniper Ghost Warrior Contracts 2）豪华版》Build.05092024 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c89ba9c589a4
-
-#### 《亩地（ACRES）》v2025.10.9 中文版（农作物策略模拟）
-
-夸克：https://pan.quark.cn/s/7d86671aeb43
-
-#### 《卡瑞玛拉：枯肢之下（CARIMARA Beneath the forlorn limbs）》v2025.10.9 中文版
-
-夸克：https://pan.quark.cn/s/9eaa84b943a1
-
-#### 《巴别塔：垂直国度（STARIO Haven Tower）》v0.2.12.4110 中文版
-
-夸克：https://pan.quark.cn/s/cdaa63cf783d
-
 ---
 
 ## 最近更新
@@ -115,6 +91,10 @@
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
 
 夸克：https://pan.quark.cn/s/d069de18760a
+
+#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/49dd6d0d10cf
 
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
 
@@ -151,22 +131,6 @@
 #### 《恐鬼症（Phasmophobia）》v0.14.2.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/f06faddc881c
-
-#### 《勇者斗恶龙 创世小玩家2 破坏神席德与空荡岛（Dragon Quest Builders 2）》v1.7.3d 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/35a07d7183e8
-
-迅雷：https://pan.xunlei.com/s/VNtedJfEj846VJQ5OdDj8k6JA1?pwd=4av2#
-
-#### 《群星（Stellaris）终极版》v4.1.5 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e812eb1562dd
-
-迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
-
-#### 《林间小世界（Tiny Glade）》v1.14.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c0419a8ccfd6
 
 ---
 
@@ -361,6 +325,62 @@
 ---
 
 ## 已有游戏
+
+#### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/0015412d5e95
+
+#### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3f523ff18fd5
+
+#### 《绝对魔权（Absolum）》v2025.10.10 中文版
+
+夸克：https://pan.quark.cn/s/1179f67a6076
+
+#### 《狂野的心（The Wild at Heart）》v1.1.9.0 中文版（丰富多彩绘本冒险）
+
+夸克：https://pan.quark.cn/s/f98173adfa12
+
+#### 《晦暗神祇2（Dark Deity 2）》v1.14 汉化版（附第一部 全DLC 豪华版）
+
+夸克：https://pan.quark.cn/s/380f418cd26a
+
+#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.0 中文版（开放世界冒险）
+
+夸克：https://pan.quark.cn/s/6758e2260430
+
+#### 《狙击手：幽灵战士契约2（Sniper Ghost Warrior Contracts 2）豪华版》Build.05092024 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c89ba9c589a4
+
+#### 《亩地（ACRES）》v2025.10.9 中文版（农作物策略模拟）
+
+夸克：https://pan.quark.cn/s/7d86671aeb43
+
+#### 《卡瑞玛拉：枯肢之下（CARIMARA Beneath the forlorn limbs）》v2025.10.9 中文版
+
+夸克：https://pan.quark.cn/s/9eaa84b943a1
+
+#### 《巴别塔：垂直国度（STARIO Haven Tower）》v0.2.12.4110 中文版
+
+夸克：https://pan.quark.cn/s/cdaa63cf783d
+
+#### 《勇者斗恶龙 创世小玩家2 破坏神席德与空荡岛（Dragon Quest Builders 2）》v1.7.3d 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/35a07d7183e8
+
+迅雷：https://pan.xunlei.com/s/VNtedJfEj846VJQ5OdDj8k6JA1?pwd=4av2#
+
+#### 《群星（Stellaris）终极版》v4.1.5 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e812eb1562dd
+
+迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
+
+#### 《林间小世界（Tiny Glade）》v1.14.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c0419a8ccfd6
 
 #### 《合金装备5：原爆点（Metal Gear Solid 5 Ground Zeroes）》v1.005 汉化版
 
@@ -1267,10 +1287,6 @@
 #### 《多重人生（The Alters）豪华版》v1.3.0.7 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/9acd136be1ad
-
-#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.04 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/49dd6d0d10cf
 
 #### 《房产达人（House Flipper）》v1.25258 全DLC 中文版
 
