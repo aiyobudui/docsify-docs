@@ -19,7 +19,7 @@
 
 #### 《入青云》（2025）4K 36集更新中..
 
-夸克：https://pan.quark.cn/s/2b9f48514af3
+夸克：https://pan.quark.cn/s/ba0e24a448ba
 
 #### 《一笑随歌》（2025）4K 38集 更新中..
 
