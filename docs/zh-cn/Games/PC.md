@@ -92,6 +92,10 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
+#### 《维多利亚3（Victoria 3）豪华版》v1.10.6 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/5b0145311ea9
+
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
 
 夸克：https://pan.quark.cn/s/d069de18760a
@@ -1011,10 +1015,6 @@
 #### 《兽人必须死! 死亡陷阱（Orcs Must Die Deathtrap）》v2.1.1 中文版（射击塔防游戏）
 
 夸克：https://pan.quark.cn/s/248302b25eb3
-
-#### 《维多利亚3（Victoria 3）豪华版》v1.10.0 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/5b0145311ea9
 
 #### 《地狱丧钟（Hell Clock）支持者版》v2025.9.23 全DLC 中文版
 
