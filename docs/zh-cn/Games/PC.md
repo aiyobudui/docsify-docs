@@ -88,6 +88,10 @@
 
 ## 最近更新
 
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.4 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
 
 夸克：https://pan.quark.cn/s/d069de18760a
@@ -96,21 +100,15 @@
 
 夸克：https://pan.quark.cn/s/49dd6d0d10cf
 
-#### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
+---
 
-夸克：https://pan.quark.cn/s/d88da55c16aa
+## 顶置游戏
 
-#### 《敲棺盖（Knock on the Coffin Lid）》v1.3.9.0 全DLC 中文版
+#### 《幻兽帕鲁（Palworld）》v0.6.7.79736 中文 联机版
 
-夸克：https://pan.quark.cn/s/e15f4cfb5227
+夸克：https://pan.quark.cn/s/51d73c209195
 
-#### 《遵命，陛下：寒冬（Yes Your Grace 2 Snowfall）》v1.0.32 中文版
-
-夸克：https://pan.quark.cn/s/2d539a29df7b
-
-#### 《精神城市：洛菲会议（Spirit City：Lofi Sessions）》v2.1.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e34562091a8d
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
@@ -123,24 +121,6 @@
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28891 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
-
-#### 《异星工厂（Factorio）》v2.0.69 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/abf35a685935
-
-#### 《恐鬼症（Phasmophobia）》v0.14.2.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/f06faddc881c
-
----
-
-## 顶置游戏
-
-#### 《幻兽帕鲁（Palworld）》v0.6.7.79736 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《失落之魂（Lost Soul Aside）》v1.011 全DLC 中文版
 
@@ -173,10 +153,6 @@
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.2 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
@@ -325,6 +301,30 @@
 ---
 
 ## 已有游戏
+
+#### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
+
+夸克：https://pan.quark.cn/s/d88da55c16aa
+
+#### 《敲棺盖（Knock on the Coffin Lid）》v1.3.9.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e15f4cfb5227
+
+#### 《遵命，陛下：寒冬（Yes Your Grace 2 Snowfall）》v1.0.32 中文版
+
+夸克：https://pan.quark.cn/s/2d539a29df7b
+
+#### 《精神城市：洛菲会议（Spirit City：Lofi Sessions）》v2.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e34562091a8d
+
+#### 《异星工厂（Factorio）》v2.0.69 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/abf35a685935
+
+#### 《恐鬼症（Phasmophobia）》v0.14.2.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/f06faddc881c
 
 #### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
 
