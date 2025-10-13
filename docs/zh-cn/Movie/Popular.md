@@ -328,10 +328,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO6klntzWONH4-AzNor-thkEA1?pwd=phmh#
 
-#### 《拿破仑》导剪版》（2023）1080P 中字
-
-夸克：https://pan.quark.cn/s/37114a73b7d6
-
 #### 《正义联盟：战争世界》（2023）蓝光 1080P 中字
 
 夸克：https://pan.quark.cn/s/e55c26f8c435
@@ -422,9 +418,9 @@
 
 迅雷：https://pan.xunlei.com/s/VO2EN5enkc8WSfqCFsh9qBTyA1?pwd=yth8#
 
-#### 《疯狂的麦克斯：狂暴女神》（2024）4K （合集系列在另一个链接中）
+#### 《疯狂的麦克斯：狂暴女神》（2024）4K
 
-夸克：https://pan.quark.cn/s/fa479938a340
+夸克：https://pan.quark.cn/s/2786e02fadb3
 
 迅雷：https://pan.xunlei.com/s/VO0hXvul2Gfl8-TCzV-hzU1nA1?pwd=vupy#
 
@@ -552,7 +548,7 @@
 
 百度：<https://pan.baidu.com/s/1PIx4zNkC_IhTlxAgnyNgtg?pwd=0000>
 
-#### 《冒牌特工》（2024）2024》（许君聪 潘斌龙 克拉拉）喜剧 冒险
+#### 《冒牌特工》（2024）4K 60帧
 
 夸克：https://pan.quark.cn/s/27e415869721
 
@@ -736,7 +732,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNns3uPfjLWq4F3YV8zHB1JNA1?pwd=rd8p#
 
-#### 《拿破仑》（2023）4K HDR 杜比视界 中字（动作 传记 历史 战争 冒险）
+#### 《拿破仑》（2023）4K HDR  中字（动作 传记 历史 战争 冒险）附导演剪辑版
 
 夸克：https://pan.quark.cn/s/a549d0c7782a
 
@@ -1175,7 +1171,7 @@
 
 阿里：https://www.aliyundrive.com/s/iD97QA4vEA4
 
-#### 《蓝甲虫》（2023）4K HDR 外挂字幕 科幻新电影
+#### 《蓝甲虫》（2023）4K HDR 外挂字幕 （科幻）
 
 夸克：https://pan.quark.cn/s/c85e889b84ed
 
@@ -1279,7 +1275,7 @@
 
 阿里：https://www.aliyundrive.com/s/aDK18huF1px
 
-#### 《疯狂元素城》（2023）4K HDR 杜比视界（皮克斯最新动画电影）
+#### 《疯狂元素城》（2023）1080P 国英双语音轨 特效字幕（皮克斯最新动画电影）
 
 夸克：https://pan.quark.cn/s/c3d6089211a7
 

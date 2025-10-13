@@ -531,7 +531,7 @@
 
 阿里：https://www.aliyundrive.com/s/9RcoYFd1fWh
 
-#### 《疾速追杀》1-4部 蓝光4K+1080P 特效中英字幕
+#### 《疾速追杀》1-4部 蓝光4K 中字
 
 夸克：https://pan.quark.cn/s/8a777926e06c
 
@@ -563,7 +563,7 @@
 
 阿里：https://www.aliyundrive.com/s/84r8V63hUgf
 
-#### 《疯狂的麦克斯》1-4部 UHD蓝光4K 中英配音.特效中英字幕
+#### 《疯狂的麦克斯》1-5部 蓝光4K 中英配音 特效中英字幕
 
 夸克：https://pan.quark.cn/s/2786e02fadb3
 
@@ -576,6 +576,12 @@
 夸克：https://pan.quark.cn/s/78dd57e33061
 
 阿里：https://www.aliyundrive.com/s/XUnDHo6Gb4A
+
+#### 《前任》1-4部 4K + 1080P 中字
+
+夸克：https://pan.quark.cn/s/d3f4a675bafb
+
+迅雷：https://pan.xunlei.com/s/VNl7bgVBMDpxOhL6AldG2hhHA1?pwd=auty#
 
 #### 《变形金刚》（2007-2024）1-8部 蓝光4K HDR 国英音轨 特效中英字幕
 

@@ -393,7 +393,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNwOqEWgK0-h8xzMlsJP9AaGA1?pwd=iyjf#3
 
-#### 《僵尸肖恩》（2004）UHD 蓝光4K HDR+1080P（搞笑丧尸电影）
+#### 《僵尸肖恩》（2004）蓝光4K HDR（搞笑丧尸电影）
 
 夸克：https://pan.quark.cn/s/8537f48d0991
 
@@ -413,7 +413,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNpt3floGUWJRvStHaFPunRzA1?pwd=97x7#
 
-#### 绿皮书（2018）蓝光4K HDR 中英配音 特效字幕
+#### 《绿皮书》（2018）蓝光4K HDR 中英配音 特效字幕
 
 夸克：https://pan.quark.cn/s/90d04b01917b
 

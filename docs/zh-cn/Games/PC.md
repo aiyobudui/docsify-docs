@@ -6683,7 +6683,7 @@
 
 夸克：https://pan.quark.cn/s/0939635634d9
 
-#### 《疑案追声（Unheard）》v1.0_67214 中文版
+#### 《疑案追声（Unheard）》v1.0.67214 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/efa0689869a3
 
