@@ -44,6 +44,14 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
+#### 《宝可梦传说Z-A》v1.0.1 全DLC NS整合 中文版
+
+夸克：https://pan.quark.cn/s/dcbd1b6a2883
+
+#### 《小小梦魇3 Little Nightmares III》v1.0.2 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/614a0eba58bc
+
 #### 《最终幻想战略版 伊瓦利斯编年史》v1.2.0 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/6cb1efda4603
