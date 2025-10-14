@@ -54,43 +54,47 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《特技摩托（Trials Rising）黄金版》Build.10831717 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0804bb6334cf
+
+#### 《无双大蛇2 + 无双大蛇3》最新 全DLC 简中 终极版
+
+夸克：https://pan.quark.cn/s/006cca925f8e
+
+#### 《龙的传人：孤旅（Dragonkin The Banished）》v0.6.35.44610 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8d2b0b6ea1be
+
+#### 《贪婪之秋2 垂死世界（Kingdom Come Deliverance 2）》2025.3.27 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/3fbb5a637da1
+
+#### 《前学期（Last Term）》v1.01 中文版（校园诡异循环恐怖游戏）
+
+夸克：https://pan.quark.cn/s/32b79b533c19
+
 #### 《幻灵降世录（Lost Eidolons）》v1.5.4.R36 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bfc912b4ae28
-
-#### 《MustScream》Build.19536362 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/a3175f7c529a
-
-#### 《神话与传说（Myths and Legends）》v2025.10.12 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/071101dfef03
-
-#### 《骰子传奇（Dice Legends）》v2025.10.12 中文版（肉鸽卡牌）
-
-夸克：https://pan.quark.cn/s/7af163c23677
-
-#### 《死亡循环（SurrounDead）》Build.19622939 英文版
-
-夸克：https://pan.quark.cn/s/54a985e3d4f6
-
-#### 《奥术之路（Arcane Path）》v2025.10.11 中文版（卡牌策略）
-
-夸克：https://pan.quark.cn/s/7cc527717d68
-
-#### 《三国志 系列合集 威力加强版》最新 中文版
-
-夸克：https://pan.quark.cn/s/791c98f684de
-
-迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
 
 ---
 
 ## 最近更新
 
+#### 《泰坦之旅2（Titan Quest II）》v2025.10.8 汉化 联机版
+
+夸克：https://pan.quark.cn/s/93ad3c9932d1
+
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.4 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《铁拳8（TEKKEN 8）终结版》v1.13.00 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/313617e0df66
+
+迅雷：https://pan.xunlei.com/s/VNtgtW7IJA2GZtcy395CkVRQA1?pwd=gymf#
 
 #### 《维多利亚3（Victoria 3）豪华版》v1.10.6 全DLC 中文 联机版
 
@@ -305,6 +309,32 @@
 ---
 
 ## 已有游戏
+
+#### 《MustScream》Build.19536362 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/a3175f7c529a
+
+#### 《神话与传说（Myths and Legends）》v2025.10.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/071101dfef03
+
+#### 《骰子传奇（Dice Legends）》v2025.10.12 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/7af163c23677
+
+#### 《死亡循环（SurrounDead）》Build.19622939 英文版
+
+夸克：https://pan.quark.cn/s/54a985e3d4f6
+
+#### 《奥术之路（Arcane Path）》v2025.10.11 中文版（卡牌策略）
+
+夸克：https://pan.quark.cn/s/7cc527717d68
+
+#### 《三国志 系列合集 威力加强版》最新 中文版
+
+夸克：https://pan.quark.cn/s/791c98f684de
+
+迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
 
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
 
@@ -2439,10 +2469,6 @@
 #### 《JDM：漂移大师（JDM Japanese Drift Master）》v1.6.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/6728601e9a33
-
-#### 《泰坦之旅2（Titan Quest II）》v2025.8.14 汉化 联机版
-
-夸克：https://pan.quark.cn/s/93ad3c9932d1
 
 #### 《恐惧地带（Dreadzone）》v1.4.5.2 中文 联机版
 
@@ -5163,12 +5189,6 @@
 
 夸克：https://pan.quark.cn/s/1f31ce2ea25b
 
-#### 《铁拳8（TEKKEN 8）终结版》v1.13.00 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/313617e0df66
-
-迅雷：https://pan.xunlei.com/s/VNtgtW7IJA2GZtcy395CkVRQA1?pwd=gymf#
-
 #### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.1.22498 中文版（附MOD+地图包+秘籍）
 
 夸克：https://pan.quark.cn/s/cb54f62be869
@@ -5252,10 +5272,6 @@
 #### 《搬家模拟器（Unpacking）》v1.3 中文版
 
 夸克：https://pan.quark.cn/s/63eb0214a798
-
-#### 《贪婪之秋2垂死世界（Kingdom Come Deliverance 2）》2025.3.27 中文版
-
-夸克：https://pan.quark.cn/s/3fbb5a637da1
 
 #### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
 
@@ -8457,7 +8473,7 @@
 
 #### 《全面战争模拟器（Totally Accurate Battle Simulator）》v1.1.8 全DLC 豪华中文版
 
-夸克：https://pan.quark.cn/s/0049e8b79b76
+夸克：https://pan.quark.cn/s/c6f9e205035b
 
 #### 《龙珠格斗Z（Dragon Ball FighterZ Android）》v1.31 全DLC 中文版（龙珠战士Z）
 
@@ -9404,10 +9420,6 @@
 夸克：https://pan.quark.cn/s/9d7fb9261e7e
 
 迅雷：https://pan.xunlei.com/s/VNvwBoEIWU6rieOLqxy18Wq8A1?pwd=cy8x#
-
-#### 《无双大蛇3》v1.0.0.9 全DLC 豪华终极版
-
-夸克：https://pan.quark.cn/s/006cca925f8e
 
 #### 《CS1.6》（反恐精英） 中文联机版 添加了AI机器人
 

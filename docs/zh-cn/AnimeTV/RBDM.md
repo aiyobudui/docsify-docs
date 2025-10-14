@@ -23,15 +23,19 @@
 
 ## 周一
 
-  
+#### 《一拳超人》1080P 第三季 更新中..（附1-2季台粤日英配音+OVA+英雄之路）
+
+夸克：https://pan.quark.cn/s/3db3f3c86cdd
+
+迅雷：https://pan.xunlei.com/s/VNnSbqTuVIOJAHKixEcO16ToA1?pwd=b6d8#
+
+阿里：https://www.aliyundrive.com/s/ZCWLJqpbnmA
 
 ---
 
 ## 周二
 
-#### 《碧蓝之海》（2018-2025）第二季 1080P 中字 更新中..（附第一季+真人电影版）
-
-夸克：https://pan.quark.cn/s/5d148ae89b1e
+  
 
 ----
 
@@ -43,27 +47,29 @@
 
 ## 周四
 
-#### 《赛马娘 芦毛灰姑娘》1080P 简中 更新中..（上半部分 ）
+#### 《赛马娘 芦毛灰姑娘》1080P 简中 更新中..（附1-3季+四格1-2季+ Road to the Top +剧场版 新时代之门）
 
-夸克：https://pan.quark.cn/s/e6709fd4785d
+夸克：https://pan.quark.cn/s/cfe362956a3c
+
+迅雷：https://pan.xunlei.com/s/VO5abMFgND3LigDK3dhDb-ltA1?pwd=aw84#
 
 ----
 
 ## 周五
 
-#### 《胆大党》（2024）1080P 中字 第二季更新中..（附第一季+漫画）
-
-夸克：https://pan.quark.cn/s/8a8d53dbb0e5
-
-迅雷：https://pan.xunlei.com/s/VO8lXH4UMTcybu-q8YLRyLpyA1?pwd=87jz#
+  
 
 ----
 
 ## 周六
 
-#### 《薰香花朵凛然绽放》（2025）1080P 中字 13集 更新中..
+#### 《间谍过家家》第3季 更新中..（附1-2季全+剧场版+漫画）
 
-夸克：https://pan.quark.cn/s/84f1b0b669b7
+夸克：https://pan.quark.cn/s/56e3f3d69faa
+
+迅雷：https://pan.xunlei.com/s/VNlqOzf1LK7PkT06lZVK8fYvA1?pwd=cbeq#
+
+阿里：<https://www.aliyundrive.com/s/WBQSiFzLGor>
 
 ----
 
@@ -89,6 +95,20 @@
 ----
 
 ## 近期完结
+
+#### 《薰香花朵凛然绽放》（2025）1080P 中字 13集全
+
+夸克：https://pan.quark.cn/s/84f1b0b669b7
+
+#### 《胆大党》（2024）1-2季全 + 漫画 1080P 中字
+
+夸克：https://pan.quark.cn/s/8a8d53dbb0e5
+
+迅雷：https://pan.xunlei.com/s/VO8lXH4UMTcybu-q8YLRyLpyA1?pwd=87jz#
+
+#### 《碧蓝之海》（2018-2025）1-2集全+真人电影版1080P 中字
+
+夸克：https://pan.quark.cn/s/5d148ae89b1e
 
 #### 《莉可丽丝》（2022-2025）1-2季全 蓝光1080P 简中
 
@@ -308,14 +328,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNx2oBXTTXiGjcwDSnXVMxjgA1?pwd=83rg#
 
-#### 《间谍过家家》 1-2季全+剧场版+漫画 1080P 中字（第一季国粤日配音 中日字幕）
-
-夸克：https://pan.quark.cn/s/56e3f3d69faa
-
-迅雷：https://pan.xunlei.com/s/VNlqOzf1LK7PkT06lZVK8fYvA1?pwd=cbeq#
-
-阿里：<https://www.aliyundrive.com/s/WBQSiFzLGor>
-
 #### 《异修罗》（2024年1月新番）1080P 中字 12集全
 
 夸克：https://pan.quark.cn/s/cd51640dd079
@@ -494,14 +506,6 @@
 
 阿里：<https://www.aliyundrive.com/s/JAfCN2r9eP5>
 
-#### 《一拳超人》 1080P.1-2季.台粤日英配音.简中+OVA+ODA
-
-夸克：https://pan.quark.cn/s/3db3f3c86cdd
-
-迅雷：https://pan.xunlei.com/s/VNnSbqTuVIOJAHKixEcO16ToA1?pwd=b6d8#
-
-阿里：https://www.aliyundrive.com/s/ZCWLJqpbnmA
-
 #### 《剑风传奇》1-3季+黄金时代篇+重置版+剧场版+漫画.又名：烙印战士
 
 夸克：https://pan.quark.cn/s/b9873f00805e
@@ -575,12 +579,6 @@
 夸克：https://pan.quark.cn/s/370eeb5a1e02
 
 迅雷：https://pan.xunlei.com/s/VO2TpLG9AEQb87JzoF1CipE4A1?pwd=k2cz#
-
-#### 《赛马娘》1080P 1-3季+四格1-2季+Road to the Top 全
-
-夸克：https://pan.quark.cn/s/cfe362956a3c
-
-迅雷：https://pan.xunlei.com/s/VO5abMFgND3LigDK3dhDb-ltA1?pwd=aw84#
 
 #### 《EVA新世纪福音战士》4K 高码 tv版+剧场版全 外挂中文字幕
 
