@@ -112,6 +112,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNtgtW7IJA2GZtcy395CkVRQA1?pwd=gymf#
 
+#### 《夜族崛起（V Rising）》v1.1.10.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/5a67bba62d22
+
+#### 《猫娘小厨（Cuisineer）》v1.2.14794 中文版
+
+夸克：https://pan.quark.cn/s/b8d3cee0aa13
+
+#### 《水果巴士（Fruitbus）》v2025.10.7 中文版
+
+夸克：https://pan.quark.cn/s/44d75cc9e95b
+
 #### 《最后的咒语（The Last Spell）》v1.2.20.4.s.de 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/da09d7e24047
@@ -2608,10 +2620,6 @@
 
 夸克：https://pan.quark.cn/s/a0efccb4795b
 
-#### 《水果巴士（Fruitbus）》v1.0.14 中文版
-
-夸克：https://pan.quark.cn/s/44d75cc9e95b
-
 #### 《警察模拟器：巡警（Police Simulator Patrol Officers）》v18.2.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/22a57b547f78
@@ -4331,10 +4339,6 @@
 
 夸克：https://pan.quark.cn/s/09119e378b8c
 
-#### 《夜族崛起（V Rising）》v1.1.8.0 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/5a67bba62d22
-
 #### 《杀戮尖塔（Slay the Spire）》v2.3.4 中文版 + MOD整合版
 
 夸克：https://pan.quark.cn/s/4a575dc211fc
@@ -5564,10 +5568,6 @@
 夸克：https://pan.quark.cn/s/d4d6fb688d1c
 
 迅雷：https://pan.xunlei.com/s/VNt5RT3X-FPbkx1M9mCTP0NEA1?pwd=nawh#
-
-#### 《猫娘小厨（Cuisineer）》v1.1.4037 中文版
-
-夸克：https://pan.quark.cn/s/b8d3cee0aa13
 
 #### 《揍击派对（Pummel Party）》v1.14.1j 中文 联机版
 
