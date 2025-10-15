@@ -58,9 +58,17 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《CUFFBUST 豪华版》v1.0.0 全DLC 中文 联机版（欢乐越狱游戏）
+
+夸克：https://pan.quark.cn/s/ea6ad4ee305d
+
 #### 《特技摩托（Trials Rising）黄金版》Build.10831717 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0804bb6334cf
+
+#### 《毁灭之王（Lords of Ravage）》v1.0-1-26 中文版
+
+夸克：https://pan.quark.cn/s/afbf67272f43
 
 #### 《爱，死亡和小猪（Spindle）》v1.0.3 中文版
 
