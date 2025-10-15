@@ -94,6 +94,10 @@
 
 ## 最近更新
 
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.0.101 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
 #### 《帝国时代2 决定版（Age of Empires II）》v158041 全DLC 中文 联机版（新增DLC）
 
 夸克：https://pan.quark.cn/s/0c0f7a82ce32
@@ -229,10 +233,6 @@
 #### 《夺宝奇兵：古老之圈（Indiana Jones and the Great Circle）高级版》v1.0.9.0 全DLC 中文版（显卡需支持光追）
 
 夸克：https://pan.quark.cn/s/e037632f1250
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.0.77 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
 
 #### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.1.2 全DLC 中文版（合金装备食蛇者）
 
