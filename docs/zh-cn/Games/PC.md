@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《全面战争：三国（Total War Three Kingdoms）》v1.7.1 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6f9e205035b
+
 #### 《小小梦魇3（Little Nightmares 3）》v2025.10.10 全DLC 中文 联机版（附前2部 恐怖解密）
 
 夸克：https://pan.quark.cn/s/23c16824e3ac
@@ -57,6 +61,14 @@
 #### 《特技摩托（Trials Rising）黄金版》Build.10831717 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0804bb6334cf
+
+#### 《爱，死亡和小猪（Spindle）》v1.0.3 中文版
+
+夸克：https://pan.quark.cn/s/4fd0230d560b
+
+#### 《拭尘忆往：往昔信忆（Undusted Letters from the Past）》v2025.10.15 全DLC 中文版（休闲游戏）
+
+夸克：https://pan.quark.cn/s/fe8be439e882
 
 #### 《无双大蛇2 + 无双大蛇3》最新 全DLC 简中 终极版
 
@@ -82,6 +94,10 @@
 
 ## 最近更新
 
+#### 《帝国时代2 决定版（Age of Empires II）》v158041 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/0c0f7a82ce32
+
 #### 《泰坦之旅2（Titan Quest II）》v2025.10.8 汉化 联机版
 
 夸克：https://pan.quark.cn/s/93ad3c9932d1
@@ -90,11 +106,15 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
-#### 《铁拳8（TEKKEN 8）终结版》v1.13.00 全DLC 中文 联机版
+#### 《铁拳8（TEKKEN 8）终结版》v2.06.01 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/313617e0df66
 
 迅雷：https://pan.xunlei.com/s/VNtgtW7IJA2GZtcy395CkVRQA1?pwd=gymf#
+
+#### 《最后的咒语（The Last Spell）》v1.2.20.4.s.de 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/da09d7e24047
 
 #### 《维多利亚3（Victoria 3）豪华版》v1.10.6 全DLC 中文 联机版
 
@@ -3977,10 +3997,6 @@
 
 夸克：https://pan.quark.cn/s/dbc0aedb8e16
 
-#### 《最后的咒语（The Last Spell）》v1.2.20.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/da09d7e24047
-
 #### 《伽马绿宝石（Gamma Emerald）》v3.0.1.1 中文版（gamma绿宝石）同人玩家开发宝可梦
 
 夸克：https://pan.quark.cn/s/84a0c1b23662
@@ -4420,10 +4436,6 @@
 #### 《无主之地3（Borderlands 3）超级豪华版》Build.15245523 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/b6ed39351377
-
-#### 《帝国时代2 决定版（Age of Empires II）》v101.103.12349.0 全DLC 中文 联机版（新增三国DLC）
-
-夸克：https://pan.quark.cn/s/0c0f7a82ce32
 
 #### 《尘路之旅（Dustborn）》v1.13 中文版
 
