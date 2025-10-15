@@ -651,4 +651,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO6pFK_LzM5oaPTtXGWIWWjkA1?pwd=dbmx#
 
-阿里：[https://www.alipan.com/s/KnbUtPiTHrU](https://www.alipan.com/s/KnbUtPiTHrU/folder/659d3131d537835cea0c4b2487543fc210b070f5)
+#### 《东京爱情故事》（1991）蓝光1080P 国台日配音 中字 （附2020版+漫画）
+
+夸克：https://pan.quark.cn/s/2a5ce140b16a
