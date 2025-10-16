@@ -58,6 +58,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《铁道公司（Railroad Corporation）完全收藏版》v1.1.13425 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e7d14ce6636e
+
+#### 《一起玩农场2（Farm Together 2）》v2025.10.15 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/2f8ffe329c9b
+
+#### 《球比伦战记（BALL x PIT）》v2025.10.16 中文版
+
+夸克：https://pan.quark.cn/s/c29ed4342a45
+
 #### 《CUFFBUST 豪华版》v1.0.0 全DLC 中文 联机版（欢乐越狱游戏）
 
 夸克：https://pan.quark.cn/s/ea6ad4ee305d
@@ -82,33 +94,41 @@
 
 夸克：https://pan.quark.cn/s/006cca925f8e
 
-#### 《龙的传人：孤旅（Dragonkin The Banished）》v0.6.35.44610 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8d2b0b6ea1be
-
-#### 《贪婪之秋2 垂死世界（Kingdom Come Deliverance 2）》2025.3.27 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/3fbb5a637da1
-
-#### 《前学期（Last Term）》v1.01 中文版（校园诡异循环恐怖游戏）
-
-夸克：https://pan.quark.cn/s/32b79b533c19
-
-#### 《幻灵降世录（Lost Eidolons）》v1.5.4.R36 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bfc912b4ae28
-
 ---
 
 ## 最近更新
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.0.15 中文版
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.0.101 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4912658febe6
 
+#### 《碧蓝幻想Versus：崛起（Granblue Fantasy Versus Rising）豪华版》v2.30 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/2137424e1c9f
+
+#### 《星之海（Sea of Stars）》v2.0.59021 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7cf9121649c1
+
 #### 《帝国时代2 决定版（Age of Empires II）》v158041 全DLC 中文 联机版（新增DLC）
 
 夸克：https://pan.quark.cn/s/0c0f7a82ce32
+
+#### 《Luto》v2025.10.15 中文版（心理恐怖叙事游戏）
+
+夸克：https://pan.quark.cn/s/115c8ddd4f4d
+
+#### 《警区（The Precinct）》v1.9.20284 中文版
+
+夸克：https://pan.quark.cn/s/9e02b38ca188
+
+#### 《寇瑞登（Coridden）》v1.3.3 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/5053f5811c65
 
 #### 《泰坦之旅2（Titan Quest II）》v2025.10.8 汉化 联机版
 
@@ -139,18 +159,6 @@
 #### 《最后的咒语（The Last Spell）》v1.2.20.4.s.de 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/da09d7e24047
-
-#### 《维多利亚3（Victoria 3）豪华版》v1.10.6 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/5b0145311ea9
-
-#### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
-
-夸克：https://pan.quark.cn/s/d069de18760a
-
-#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/49dd6d0d10cf
 
 ---
 
@@ -349,6 +357,34 @@
 ---
 
 ## 已有游戏
+
+#### 《维多利亚3（Victoria 3）豪华版》v1.10.6 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/5b0145311ea9
+
+#### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
+
+夸克：https://pan.quark.cn/s/d069de18760a
+
+#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/49dd6d0d10cf
+
+#### 《龙的传人：孤旅（Dragonkin The Banished）》v0.6.35.44610 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8d2b0b6ea1be
+
+#### 《贪婪之秋2 垂死世界（Kingdom Come Deliverance 2）》2025.3.27 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/3fbb5a637da1
+
+#### 《前学期（Last Term）》v1.01 中文版（校园诡异循环恐怖游戏）
+
+夸克：https://pan.quark.cn/s/32b79b533c19
+
+#### 《幻灵降世录（Lost Eidolons）》v1.5.4.R36 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bfc912b4ae28
 
 #### 《MustScream》Build.19536362 中文版（恐怖游戏）
 
@@ -2772,10 +2808,6 @@
 
 夸克：https://pan.quark.cn/s/fa820882f4ec
 
-#### 《碧蓝幻想Versus：崛起（Granblue Fantasy Versus Rising）》v2.21 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/2137424e1c9f
-
 #### 《ShellShock Live》v1.1.1c 中文 联机版（多人在线坦克游戏）
 
 夸克：https://pan.quark.cn/s/1768e86bfb67
@@ -2923,10 +2955,6 @@
 #### 《寂静之歌（Songs Of Silence）》v1.4.2 豪华中文 联机版
 
 夸克：https://pan.quark.cn/s/60e04ec94244
-
-#### 《Luto》Build.19385423 中文版（心理恐怖叙事游戏）
-
-夸克：https://pan.quark.cn/s/115c8ddd4f4d
 
 #### 《代号：海洋守护者（Codename Ocean Keeper）》v1.0.4 中文版（塔防游戏）
 
@@ -3550,10 +3578,6 @@
 
 夸克：https://pan.quark.cn/s/db98d984c910
 
-#### 《警区（The Precinct）》v1.8.18866 中文版
-
-夸克：https://pan.quark.cn/s/9e02b38ca188
-
 #### 《风暴崛起（Tempest Rising）》v1.2.0.46253 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/c164538c9a59
@@ -3993,10 +4017,6 @@
 
 夸克：https://pan.quark.cn/s/01305fbb118a
 
-#### 《Coridden》v1.2.9 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/5053f5811c65
-
 #### 《黄金像凶杀案再起（The Rise of the Golden Idol）》v1.5.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b903b4d498ba
@@ -4270,10 +4290,6 @@
 #### 《瘟疫公司（Plague Inc Evolved）》v1.20.1.1a 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/bf616eb4e66d
-
-#### 《星之海（Sea of Stars）》v2.0.58728 全DLC  中文版
-
-夸克：https://pan.quark.cn/s/7cf9121649c1
 
 #### 《失落的记录：绽放与愤怒（Lost Records Bloom and Rage）》v2.03.131125 全DLC 中文版
 
@@ -5158,10 +5174,6 @@
 #### 《蜂语镇（Apico）》v4.3 中文 联机版（已安装官方MOD）
 
 夸克：https://pan.quark.cn/s/37cc167f5206
-
-#### 《逃离鸭科夫（Escape From Duckov）》最新 试玩版 中文版（可能需要验证）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《菜市场模拟器（Old Market Simulator）》v1.5.5 中文 联机版
 
