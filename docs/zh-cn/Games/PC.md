@@ -106,7 +106,7 @@
 
 夸克：https://pan.quark.cn/s/4912658febe6
 
-#### 《碧蓝幻想Versus：崛起（Granblue Fantasy Versus Rising）豪华版》v2.30 全DLC 中文 联机版
+#### 《碧蓝幻想Versus 崛起（Granblue Fantasy Versus Rising）豪华版》v2.30 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/2137424e1c9f
 
