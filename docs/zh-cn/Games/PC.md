@@ -48,19 +48,21 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《守护者（Keeper）》v2025.10.17 中文版（温情奇异探索）
+
+夸克：https://pan.quark.cn/s/c5c0bdca03a0
+
 #### 《全面战争：三国（Total War Three Kingdoms）》v1.7.1 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/c6f9e205035b
 
-#### 《小小梦魇3（Little Nightmares 3）》v2025.10.10 全DLC 中文 联机版（附前2部 恐怖解密）
-
-夸克：https://pan.quark.cn/s/23c16824e3ac
-
-迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
-
 #### 《怪物之家2 勋章（Dad's Monster House 2 MEDAL）》v2025.10.17 中文版（惊悚冒险）
 
 夸克：https://pan.quark.cn/s/5dbea36f62f6
+
+#### 《异梦物语（Dreams of Another）》v2025.10.17 中文版（探索动作）
+
+夸克：https://pan.quark.cn/s/4d1ace753b64
 
 #### 《无名者 屠龙（The Nameless Slay Dragon）》v2025.10.12 中文版
 
@@ -94,13 +96,23 @@
 
 ## 最近更新
 
-#### 《杀手 暗杀世界（HITMAN World of Assassination）豪华版》v3.240.1 全DLC 中文版（含杀手1 杀手2 杀手3)
+#### 《小小梦魇3（Little Nightmares 3）》v2025.10.17 全DLC 中文 联机版（附前2部 恐怖解密）
+
+夸克：https://pan.quark.cn/s/23c16824e3ac
+
+迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《杀手 暗杀世界（HITMAN World of Assassination）豪华版》v3.240.1 全DLC 中文版（杀手1 杀手2 杀手3)
 
 夸克：https://pan.quark.cn/s/88d4e323e453
 
 #### 《灵魂面甲（Soulmask）》v0.5.14 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/17b6423c5409
+
+#### 《饥荒（Dont Starve Together）》v692916 全DLC 中文 LAN联机版
+
+夸克：https://pan.quark.cn/s/cbadff66e8dc
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.0.20 中文版
 
@@ -135,10 +147,6 @@
 #### 《超级滑刃战士（Super Drift Blade）》v1.0.2.4 中文版
 
 夸克：https://pan.quark.cn/s/5f7adc7ba1a5
-
-#### 《饥荒（Dont Starve Together）》Build.682257 全DLC 中文 LAN联机版
-
-夸克：https://pan.quark.cn/s/cbadff66e8dc
 
 #### 《寓言之地 （Fabledom）》v1.083 中文版
 

@@ -27,17 +27,21 @@
 
 #### 《入青云》（2025）4K 36集更新中..
 
-夸克：https://pan.quark.cn/s/ba0e24a448ba
+夸克：https://pan.quark.cn/s/1a6c234973a6
 
 迅雷：https://pan.xunlei.com/s/VObNle_owdSKcuxmDQFJBylhA1?pwd=nhmy#
 
-#### 《一笑随歌》（2025）4K 38集 更新中..
+#### 《一笑随歌》（2025）4K 38集全
 
-夸克：https://pan.quark.cn/s/ca5012594196
+夸克：和谐
 
-#### 《许我耀眼》（2025）4K 32集更新中..
+迅雷:https://pan.xunlei.com/s/VOboMU63ItBM_I0J0sVsvLR5A1?pwd=9t7p#
 
-夸克：https://pan.quark.cn/s/8b0dff33c504
+#### 《许我耀眼》（2025）4K 32集全
+
+夸克：和谐
+
+迅雷：https://pan.xunlei.com/s/VOboNA1mQIdYBazWxE43NNClA1?pwd=tfsk#
 
 #### 《绝命法官》（2025）4K 20集全（国粤双配音更新）
 
