@@ -94,7 +94,7 @@
 
 ## 最近更新
 
-#### 《杀手 暗杀世界（HITMAN World of Assassination）豪华版》v3.240.1 全DLC 中文版（含杀手1 杀手2 杀手3）
+#### 《杀手 暗杀世界（HITMAN World of Assassination）豪华版》v3.240.1 全DLC 中文版（含杀手1 杀手2 杀手3)
 
 夸克：https://pan.quark.cn/s/88d4e323e453
 
@@ -113,6 +113,12 @@
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.0.101 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《中世纪王朝（Medieval Dynasty）终极版）》v2.4.1.3 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/32cb69fc196a
+
+迅雷：https://pan.xunlei.com/s/VO36_DlzI2PMsp3e2egTj-d0A1?pwd=icc2#
 
 #### 《欢欣森活（Mirthwood）》v1.0.94p3 中文版
 
@@ -3481,12 +3487,6 @@
 #### 《灵魂射手：死亡使者（Soulslinger Envoy of Death）》v1.03 中文版（射击肉鸽）
 
 夸克：https://pan.quark.cn/s/c0f971484682
-
-#### 《中世纪王朝（Medieval Dynasty）终极版）》v2.4.0.4 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/32cb69fc196a
-
-迅雷：https://pan.xunlei.com/s/VO36_DlzI2PMsp3e2egTj-d0A1?pwd=icc2#
 
 #### 《造作海岛（Tinkerlands）》v45822.45 中文 联机版
 
@@ -7678,10 +7678,6 @@
 #### 《布鲁姆镇：另一段故事（Bloomtown A Different Story）》v1.0.1 中文版
 
 夸克：https://pan.quark.cn/s/903086232c61
-
-#### 《无名者：屠龙（The Nameless - Slay Dragon）》v2024.9.27 中文版
-
-夸克：https://pan.quark.cn/s/df29a32aa1c1
 
 #### 《皇牌空战7：未知空域（ACE.COMBAT.7.SKIES.UNKNOWN）》v2.3.0.13 全DLC 豪华中文 联机版
 
