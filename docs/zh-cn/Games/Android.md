@@ -28,6 +28,10 @@
 
 ---
 
+#### 《下一站江湖2》v0.1 安卓 中文版
+
+夸克：https://pan.quark.cn/s/3a2c39dd4919
+
 #### 《大侠立志传》V1.2.117 全DLC 安卓完整版 内置控制台（Steam移植）
 
 夸克：https://pan.quark.cn/s/0aa78f825f7b

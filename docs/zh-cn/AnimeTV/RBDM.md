@@ -580,7 +580,7 @@
 
 迅雷：https://pan.xunlei.com/s/VO2TpLG9AEQb87JzoF1CipE4A1?pwd=k2cz#
 
-#### 《EVA新世纪福音战士》4K 高码 tv版+剧场版全 外挂中文字幕
+#### 《新世纪福音战士》4K 高码 TV重制版+剧场版全 国日英配音 中字
 
 夸克：https://pan.quark.cn/s/fb72b23f786f
 
