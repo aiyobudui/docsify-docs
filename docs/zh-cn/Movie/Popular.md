@@ -1253,9 +1253,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNxrSztt2PwfDZ_VWomkehfHA1?pwd=bvrx#
 
-#### 《龙与地下城：侠盗荣耀》（2023）4K HDR 60帧+杜比视界版 国英多音轨
+#### 《龙与地下城：侠盗荣耀》（2023）4K HDR 60帧 国英多音轨
 
-夸克：https://pan.quark.cn/s/4a389196a931
+夸克：https://pan.quark.cn/s/1e0cc6392b6b
 
 迅雷：https://pan.xunlei.com/s/VNxrUBTgUjruG6S-5-WnnildA1?pwd=6g3e#
 

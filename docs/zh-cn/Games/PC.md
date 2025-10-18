@@ -60,9 +60,29 @@
 
 夸克：https://pan.quark.cn/s/5dbea36f62f6
 
+#### 《盒子：丢失的碎片（Boxes Lost Fragments）》Build.14157330 中文版
+
+夸克：https://pan.quark.cn/s/3e80883aa6c9
+
+#### 《武士的精神（The Spirit of the Samurai）》v1.0.15 中文版
+
+夸克：https://pan.quark.cn/s/e32681da0106
+
+#### 《Cal & Bomba》v2.3.1.3 中文版（编程解谜）
+
+夸克：https://pan.quark.cn/s/6623669f34cf
+
+#### 《娜菲 ～月光迷宫X～（Neffy Moonlight Labyrinth X）》v2025.10.18 中文版
+
+夸克：https://pan.quark.cn/s/13300c157c8d
+
 #### 《异梦物语（Dreams of Another）》v2025.10.17 中文版（探索动作）
 
 夸克：https://pan.quark.cn/s/4d1ace753b64
+
+#### 《极度恐慌2：起源计划（F.E.A.R. 2 Project Origin）》v1.05 全DLC 汉化版（支持联机）
+
+夸克：https://pan.quark.cn/s/1c85f296d32a
 
 #### 《无名者 屠龙（The Nameless Slay Dragon）》v2025.10.12 中文版
 
@@ -102,7 +122,15 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
-#### 《杀手 暗杀世界（HITMAN World of Assassination）豪华版》v3.240.1 全DLC 中文版（杀手1 杀手2 杀手3)
+#### 《我们的冒险者公会（Our Adventurer Guild）》v1.7 全DLC 中文版（新增DLC）
+
+夸克：https://pan.quark.cn/s/ed99205bc66b
+
+#### 《余烬骑士（Ember Knights）》v2.3.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ecfbdc37386f
+
+#### 《杀手 暗杀世界（HITMAN World of Assassination)豪华版》v3.240.1 全DLC 中文版（杀手1 杀手2 杀手3)
 
 夸克：https://pan.quark.cn/s/88d4e323e453
 
@@ -3609,10 +3637,6 @@
 #### 《风暴崛起（Tempest Rising）》v1.2.0.46253 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/c164538c9a59
-
-#### 《我们的冒险者公会（Our Adventurer Guild）》v1.6 中文版
-
-夸克：https://pan.quark.cn/s/ed99205bc66b
 
 #### 《北欧之烬：诸神黄昏幸存者（Nordic Ashes Survivors of Ragnarok）》v2.0.4 全DLC 中文版
 
@@ -7377,10 +7401,6 @@
 
 夸克：https://pan.quark.cn/s/66cf814fb3cd
 
-#### 《余烬骑士（Ember Knights）》v2.0.0.b4510 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ecfbdc37386f
-
 #### 《尼尔机械纪元（NieR：Automata）》Build.7020666 全DLC 中文 特别版
 
 夸克：https://pan.quark.cn/s/9e3b76f2e962
@@ -10294,8 +10314,3 @@
 夸克：https://pan.quark.cn/s/9aa9720dd675
 
 #### 《逃生试炼》没有可联机的学习版，全程联网，不要在问了
-
----
-
-## 打赏站长
-<img src="/assets/img/zan.png">

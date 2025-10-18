@@ -74,7 +74,7 @@
 
 阿里：https://www.aliyundrive.com/s/cnSKMAU8MGc
 
-#### 《哈利波特》1-8部 UHD蓝光4K HDR + 蓝光1080P 中英配音 中英特效字幕
+#### 《哈利波特 系列合集》1-8部 蓝光4K HDR 中英配音 中英特效字幕
 
 夸克：https://pan.quark.cn/s/2f4026bcaaaf
 
