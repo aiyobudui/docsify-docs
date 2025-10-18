@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/5dbea36f62f6
 
+#### 《黑色洛城（L.A. Noire）》v2675.1 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/c6839c9dfd4f
+
 #### 《盒子：丢失的碎片（Boxes Lost Fragments）》Build.14157330 中文版
 
 夸克：https://pan.quark.cn/s/3e80883aa6c9
@@ -122,13 +126,17 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
-#### 《我们的冒险者公会（Our Adventurer Guild）》v1.7 全DLC 中文版（新增DLC）
+#### 《人渣（SCUM）豪华版》v1.1.0.2 全DLC 中文 联机版
 
-夸克：https://pan.quark.cn/s/ed99205bc66b
+夸克：https://pan.quark.cn/s/e1be35435129
 
 #### 《余烬骑士（Ember Knights）》v2.3.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/ecfbdc37386f
+
+#### 《我们的冒险者公会（Our Adventurer Guild）》v1.7 全DLC 中文版（新增DLC）
+
+夸克：https://pan.quark.cn/s/ed99205bc66b
 
 #### 《杀手 暗杀世界（HITMAN World of Assassination)豪华版》v3.240.1 全DLC 中文版（杀手1 杀手2 杀手3)
 
@@ -1787,10 +1795,6 @@
 #### 《雾锁王国（Enshrouded）》v729115 中文 联机版
 
 夸克：https://pan.quark.cn/s/cb96556f07cd
-
-#### 《人渣（SCUM）豪华版》v1.0.2.2.98029 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e1be35435129
 
 #### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版（电脑版）
 
