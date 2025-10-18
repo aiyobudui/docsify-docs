@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《星链：阿特拉斯之战（Starlink Battle for Atlas）豪华版》v2025.10.18 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/003af8c638ef
+
 #### 《守护者（Keeper）》v2025.10.17 中文版（温情奇异探索）
 
 夸克：https://pan.quark.cn/s/c5c0bdca03a0
