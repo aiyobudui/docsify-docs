@@ -31,6 +31,10 @@
 
 迅雷：https://pan.xunlei.com/s/VObNle_owdSKcuxmDQFJBylhA1?pwd=nhmy#
 
+#### 《回魂计》（2025）1080P 高码 9集全
+
+夸克：https://pan.quark.cn/s/e0502dc583bf
+
 #### 《一笑随歌》（2025）4K 38集全
 
 夸克：和谐
