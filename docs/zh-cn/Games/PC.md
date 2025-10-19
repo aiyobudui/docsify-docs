@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/c6f9e205035b
 
+#### 《地球不屈（Terra Invicta）》v0.4.105 中文版
+
+夸克：https://pan.quark.cn/s/9ca7438200cb
+
 #### 《KeepUp Survival》v2025.10.15 全DLC 中文版（维持生存）
 
 夸克：https://pan.quark.cn/s/96ca98db61cf
