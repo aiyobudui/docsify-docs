@@ -48,6 +48,26 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《挖掘者：银河宝藏（Digger Galactic Treasures）》v1.10.2 中文版
+
+夸克：https://pan.quark.cn/s/459ef9047d4c
+
+#### 《无尽地牢（ENDLESS Dungeon）终结版》v1.6.11055 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b7809b2a53e5
+
+#### 《武装突袭 重铸者（Arma Reforger）豪华版》v1.4.0.55 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1dca1aede3e0
+
+#### 《自在城镇（Town To City）》v0.1.4 中文版
+
+夸克：https://pan.quark.cn/s/f7a7740b9c92
+
+#### 《灵境修仙界（Spirit Realm）》v0.5.7.0.9 中文版
+
+夸克：https://pan.quark.cn/s/f517933cc043
+
 #### 《星链：阿特拉斯之战（Starlink Battle for Atlas）豪华版》v2025.10.18 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/003af8c638ef
@@ -84,34 +104,6 @@
 
 夸克：https://pan.quark.cn/s/0c572c4d12c1
 
-#### 《黑色洛城（L.A. Noire）》v2675.1 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/c6839c9dfd4f
-
-#### 《盒子：丢失的碎片（Boxes Lost Fragments）》Build.14157330 中文版
-
-夸克：https://pan.quark.cn/s/3e80883aa6c9
-
-#### 《武士的精神（The Spirit of the Samurai）》v1.0.15 中文版
-
-夸克：https://pan.quark.cn/s/e32681da0106
-
-#### 《Cal & Bomba》v2.3.1.3 中文版（编程解谜）
-
-夸克：https://pan.quark.cn/s/6623669f34cf
-
-#### 《娜菲 ～月光迷宫X～（Neffy Moonlight Labyrinth X）》v2025.10.18 中文版
-
-夸克：https://pan.quark.cn/s/13300c157c8d
-
-#### 《异梦物语（Dreams of Another）》v2025.10.17 中文版（探索动作）
-
-夸克：https://pan.quark.cn/s/4d1ace753b64
-
-#### 《极度恐慌2：起源计划（F.E.A.R. 2 Project Origin）》v1.05 全DLC 汉化版（支持联机）
-
-夸克：https://pan.quark.cn/s/1c85f296d32a
-
 ---
 
 ## 最近更新
@@ -131,6 +123,14 @@
 夸克：https://pan.quark.cn/s/ec9392c8a6d4
 
 迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
+
+#### 《传说与战术自走棋（Tales Tactics）》v1.13 中文版
+
+夸克：https://pan.quark.cn/s/81ddc85d0603
+
+#### 《合金装备5：幻痛（Metal Gear Solid V The Phantom Pain）》v1.15 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/783c4ed9f794
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.0.25 中文版
 
@@ -173,48 +173,6 @@
 #### 《灵魂面甲（Soulmask）》v0.5.14 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/17b6423c5409
-
-#### 《饥荒（Dont Starve Together）》v692916 全DLC 中文 LAN联机版
-
-夸克：https://pan.quark.cn/s/cbadff66e8dc
-
-#### 《最后纪元（Last Epoch）豪华版》v1.3.6 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.0.101 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
-
-#### 《中世纪王朝（Medieval Dynasty）终极版）》v2.4.1.3 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/32cb69fc196a
-
-迅雷：https://pan.xunlei.com/s/VO36_DlzI2PMsp3e2egTj-d0A1?pwd=icc2#
-
-#### 《欢欣森活（Mirthwood）》v1.0.94p3 中文版
-
-夸克：https://pan.quark.cn/s/37e861d2401c
-
-#### 《夜下降生2（UNDER NIGHT IN-BIRTH II Sys Celes）豪华版》v1.35 全DLC 中文 联机版（格斗游戏）
-
-夸克：https://pan.quark.cn/s/7c8258ed4b8c
-
-#### 《莱恩岛生存指南（Lens Island）》v1.1.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/ea7c0d999573
-
-#### 《超级滑刃战士（Super Drift Blade）》v1.0.2.4 中文版
-
-夸克：https://pan.quark.cn/s/5f7adc7ba1a5
-
-#### 《寓言之地 （Fabledom）》v1.083 中文版
-
-夸克：https://pan.quark.cn/s/b8397ec57d61
-
-#### 《铁骑少女（Cavalry Girls）》v2.3.2467 全DLC 中文版（FPS射击游戏）
-
-夸克：https://pan.quark.cn/s/00d69b1cfd42
 
 ---
 
@@ -413,6 +371,76 @@
 ---
 
 ## 已有游戏
+
+#### 《饥荒（Dont Starve Together）》v692916 全DLC 中文 LAN联机版
+
+夸克：https://pan.quark.cn/s/cbadff66e8dc
+
+#### 《最后纪元（Last Epoch）豪华版》v1.3.6 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
+
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.0.101 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《中世纪王朝（Medieval Dynasty）终极版）》v2.4.1.3 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/32cb69fc196a
+
+迅雷：https://pan.xunlei.com/s/VO36_DlzI2PMsp3e2egTj-d0A1?pwd=icc2#
+
+#### 《欢欣森活（Mirthwood）》v1.0.94p3 中文版
+
+夸克：https://pan.quark.cn/s/37e861d2401c
+
+#### 《夜下降生2（UNDER NIGHT IN-BIRTH II Sys Celes）豪华版》v1.35 全DLC 中文 联机版（格斗游戏）
+
+夸克：https://pan.quark.cn/s/7c8258ed4b8c
+
+#### 《莱恩岛生存指南（Lens Island）》v1.1.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/ea7c0d999573
+
+#### 《超级滑刃战士（Super Drift Blade）》v1.0.2.4 中文版
+
+夸克：https://pan.quark.cn/s/5f7adc7ba1a5
+
+#### 《寓言之地 （Fabledom）》v1.083 中文版
+
+夸克：https://pan.quark.cn/s/b8397ec57d61
+
+#### 《铁骑少女（Cavalry Girls）》v2.3.2467 全DLC 中文版（FPS射击游戏）
+
+夸克：https://pan.quark.cn/s/00d69b1cfd42
+
+#### 《黑色洛城（L.A. Noire）》v2675.1 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/c6839c9dfd4f
+
+#### 《盒子：丢失的碎片（Boxes Lost Fragments）》Build.14157330 中文版
+
+夸克：https://pan.quark.cn/s/3e80883aa6c9
+
+#### 《武士的精神（The Spirit of the Samurai）》v1.0.15 中文版
+
+夸克：https://pan.quark.cn/s/e32681da0106
+
+#### 《Cal & Bomba》v2.3.1.3 中文版（编程解谜）
+
+夸克：https://pan.quark.cn/s/6623669f34cf
+
+#### 《娜菲 ～月光迷宫X～（Neffy Moonlight Labyrinth X）》v2025.10.18 中文版
+
+夸克：https://pan.quark.cn/s/13300c157c8d
+
+#### 《异梦物语（Dreams of Another）》v2025.10.17 中文版（探索动作）
+
+夸克：https://pan.quark.cn/s/4d1ace753b64
+
+#### 《极度恐慌2：起源计划（F.E.A.R. 2 Project Origin）》v1.05 全DLC 汉化版（支持联机）
+
+夸克：https://pan.quark.cn/s/1c85f296d32a
 
 #### 《无名者 屠龙（The Nameless Slay Dragon）》v2025.10.12 中文版
 
@@ -1302,7 +1330,7 @@
 
 夸克：https://pan.quark.cn/s/d97c364ba7ec
 
-#### 《无尽帝国2（ENDLESS™ Legend 2）》v0.0.71.157967 中文版（策略游戏）
+#### 《无尽帝国2（ENDLESS Legend 2）》v0.0.71.157967 中文版（策略游戏）
 
 夸克：https://pan.quark.cn/s/514eabc7aa7c
 
@@ -7901,10 +7929,6 @@
 
 夸克：https://pan.quark.cn/s/b78430a1e045
 
-#### 《合金装备5 幻痛（Metal Gear Solid V The Phantom Pain）》v1.10 简中汉化版
-
-夸克：https://pan.quark.cn/s/783c4ed9f794
-
 #### 《合金装备：大师合集Vol.1》v1.5.0 附升级补丁（5国语言无中文）
 
 夸克：https://pan.quark.cn/s/3c591d1ff086
@@ -8196,10 +8220,6 @@
 #### 《老爹冷饮店豪华版（Papas Freezeria Deluxe）》v1.0.3 中文版
 
 夸克：https://pan.quark.cn/s/08de71307db9
-
-#### 《传说与战术自走棋（Tales Tactics）》v1.0.7 中文版
-
-夸克：https://pan.quark.cn/s/81ddc85d0603
 
 #### 《夜袭者（Night Raider）》v1.45 中文版
 
