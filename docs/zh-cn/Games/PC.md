@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/c6f9e205035b
 
+#### 《狂野西部：毒枭（Call of Juarez The Cartel）》v1.11.1 汉化版
+
+夸克：https://pan.quark.cn/s/47a7b2d1708b
+
 #### 《地球不屈（Terra Invicta）》v0.4.105 中文版
 
 夸克：https://pan.quark.cn/s/9ca7438200cb
@@ -121,6 +125,12 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.5 Hotfix 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.40087 离线中文 稳定版
+
+夸克：https://pan.quark.cn/s/ec9392c8a6d4
+
+迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.0.25 中文版
 
@@ -1441,12 +1451,6 @@
 夸克：https://pan.quark.cn/s/42d400d7daa0
 
 迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
-
-#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.39390 离线 中文版
-
-夸克：https://pan.quark.cn/s/ec9392c8a6d4
-
-迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
 
 #### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
 
