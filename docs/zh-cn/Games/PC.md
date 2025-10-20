@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《东方异域见闻 （Touhou Dystopian）》v1.0.0 中文版（动作肉鸽）
+
+夸克：https://pan.quark.cn/s/c2566c36ca07
+
 #### 《挖掘者：银河宝藏（Digger Galactic Treasures）》v1.10.2 中文版
 
 夸克：https://pan.quark.cn/s/459ef9047d4c
@@ -114,9 +118,17 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bdfdcea387f0
+
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.5 Hotfix 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《消防模拟：火苗燃动（Firefighting Simulator Ignite）》v1.0918.28966.89171 中文版
+
+夸克：https://pan.quark.cn/s/faa672a22730
 
 #### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.40087 离线中文 稳定版
 
@@ -293,10 +305,6 @@
 #### 《往日不再：破碎之路 重制版（Days Gone Broken Road）》v1.36.187.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/c59d707ae7a9
-
-#### 《宣誓（Avowed）高级版》v1.5.0.0 中文版
-
-夸克：https://pan.quark.cn/s/bdfdcea387f0
 
 #### 《最后生还者（The Last of Us Part I）》v1.1.5.0 全DLC 豪华 中文版（美末1）
 
@@ -1911,10 +1919,6 @@
 #### 《僵尸部队三部曲（Zombie Army Trilogy）》v1.8.20.01-up5 中文 联机版
 
 夸克：https://pan.quark.cn/s/984c1237c56f
-
-#### 《消防模拟：火苗燃动（Firefighting Simulator Ignite）》v1.0003.28253.87388 中文版
-
-夸克：https://pan.quark.cn/s/faa672a22730
 
 #### 《摄影模拟器（Lushfoil Photography Sim）》Build.19255020 中文版（静谧看风景）
 
