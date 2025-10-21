@@ -12,7 +12,7 @@
   打开夸克APP用**手机**保存资源，这样会获得1T的容量。过期可以使用新手机号  
   手机端打开链接保存获取**1T容量**：https://pan.quark.cn/s/78b837bcdd7f
 
-> [!TIP|style:callout|label:怎么搜索|iconVisibility:hidden]
+> [!TIP|style:callout|label:怎么搜索|iconvisibility:hidden]
   1、资源过多，左侧 🔍**搜索功能** 能快速定位到需要的资源，可模糊搜索，别精确到标点符号  
   2、新添加的资源可能会搜多不到，可使用浏览器的搜索功能 **CTRL+F** 弹出搜索
 
@@ -24,15 +24,151 @@
 
 夸克：https://pan.quark.cn/s/ed93a54e0817
 
-迅雷：https://pan.xunlei.com/s/VNuer9a_S_aqAxkK_i_ejmuqA1?pwd=7ehe#
+迅雷：https://pan.xunlei.com/s/vNuer9a_S_aqAxkK_i_ejmuqA1?pwd=7ehe#
 
 ---
+## 最新添加（安卓手游合集）链接在下方
+!> 靠前的是新添加的
+
+#### 超进化精灵1+2 最新版免费购物MOD
+#### 安卓版足球经理2023 中文版+2024中文版
+#### 安卓版吞食天地1 系列
+#### 孤胆车神维加斯 v8.6.1a(汉化+解锁vIP10+无限货币)
+#### 最后一场游戏 v1.6.0(原版+mod版)
+#### 符文诅咒 v1.1.6硬核动作游戏
+#### 《钢铁侠3》最高特效（支持中文，重力感应+触屏操作)
+#### 口袋妖怪格查尔汉化版 v8.2直装版非模拟器
+#### 噩梦谜题 v1.2.7(大量提示)
+#### 暗影之子v0.5.10(免费购物需要魔法)
+#### 钓鱼人生v0.0.259(免费购物mod)
+#### 掘地求财 v0.0.14(无限金币)
+#### 极乐迪斯科v468-cl11969【内置菜单免谷歌]
+#### 辣妹合并v2.2.3(无限货币)
+#### 侏罗纪战争：恐龙隆隆声v22（内置mod菜单）
+#### 三国蜀汉刘备传（大量铜钱）
+#### 城堡粉碎战 v6.3.11(菜单版)
+#### 孤胆枪手：实验 v1.0.1(完整版)
+#### 二击必杀 v1.1.0水墨风格斗游戏
+#### 南极洲88 v1.7.9(免费内购+无限子弹)
+#### 青铜时代 v2.1a汉化版(研究点不减反增)
+#### 灵魂猎手：地牢 v1.0.7(免内购)
+#### 方舟重制版 v20250818(全DLC等)
+#### 城市岛屿4 v1.38.35(解锁全部地图等)
+#### 影子王国：边疆战争 v1.0.143（无条件使用货币）
+#### 航空公司指挥官 v2.4.20(无限货币)
+#### 波斯王子：失落的王冠 v1.1.1a（首次进入有额外资源完整版)
+#### 孤胆枪手1 v1.2.5(解锁完整版)
+#### 鹅作剧 v1.0免广告获得奖励
+#### 海盗船建造与战斗 v1.34.4(免费内购)
+#### 街头霸王4冠军版 v1.01.02解锁全人物
+#### 美味星球4 v1.2.6（大量货币)
+#### 这是我的战争 v1.6.9b1060无限背包+物品不减+制造倍数+无敌
+#### 终极对决 v1.6.0(支持联机)
+#### 荒野猎人：先锋 v0.17(免内购)
+#### 放置农场 v0.90.673(完整版)
+#### 你的目的就是杀死我3 v19.4(货币反加)
+#### 蜡笔小新：我与博士的暑假 v1.0.1[内置菜单]
+#### 杀戮尖塔 v2.6.0(解锁免谷歌免付费完整版)
+#### 流浪者 v7.6（大量货币)
+#### 蛇X子弹地狱 v1.1.1(内置MOD菜单)(1)
+#### 勇闯死人谷2 v1.79.17免谷歌可离线大量金币
+#### 里约热内卢：圣徒之城（支持中文，手柄需映射虚拟按键）
+#### 三国志姜维传 v1.0(点击游客登录即可）
+#### 异域镇魂曲 v3.1.3.0(汉化)
+#### 蚁群模拟器2 v6.2.2（货币任意用)
+#### 命运：觉醒再临 v1.0.6(完整版)
+#### 英雄的铁匠 v1.5.32（大量货币等）
+#### 蓝鲸方舟 v1.1.3(内置mod菜单)
+#### 洛尔哈文:诅咒之战 v1.0(完整版)
+#### 逃出地牢 v0.0.2(完整版)
+#### 星球爆炸模拟器2D v1.2.5(大量货币）
+#### 貢虹魔咒风暴 v1.0.7最新肉鸽游戏
+#### 帝国时代 v1.0.25(免内购) 
+#### 同一个房间同一天 v0.0.33（完整版)
+#### 英雄征集 v1.1.9卡牌肉鸽
+#### 无名猫 v1.13.0(免费购物)
+#### 战地世界 v1.3(汉化解锁全武器)
+#### 恐怖冰淇淋8 v2.2.12
+#### 光影穿梭2:进化 v4.0.2（完整版）
+#### 史前埃及 v1.1a类似文明(完整版)
+#### 终极钓鱼模拟器 v3.6（大量货币)
+#### 阿西，美女舍友竟然 v1.0.8(解锁全部章节第一次玩需要开加速)
+#### 剑术冲刺 v2.1.4(内置技能无CDMOD菜单)
+#### 安卓版不死军团1+2终极版
+#### 杀戮尖塔整合三国杀mod版 v1.2
+#### 地铁2055生存 v0.0.256免费购物mod
+#### 浪人末代武士 v2.19.760(菜单版支持弹反和一闪)
+#### 超进化精灵2 v1.4.7免费购物
+#### 沙滩赛车2 v2025.7.30免费购物
+#### 狼模拟器 v4.1.0免费购物
+#### 开放世界警察追逐模拟器 v1.0004免费购物mod
+#### 欧洲前线重制版 v1.1.0中文无限子弹
+#### 三国战争传 v1.1.0(内置mod菜单)
+#### 魂斗罗4双重灵魂v 3.0(内置金手指）
+#### 方舟终极移动版 v20250731(全DLC等)
+#### 暗影格斗2 v2.41.7（大量货币）
+#### 塔和剑v1.250(使用货币不减反增）
+#### 英雄围攻：袖珍版v6.7.6大量金币(第一次进游戏等一会)
+#### 成长与征服v5.2.4免费购物mod
+#### 暗影王国前线战争TDv1.0.133免费购物mod
+#### 口袋故事v0.8.1免费内购+资源不减
+#### 像素刀片革命R v2.4.2免费内购+制造材料反加
+#### 守护城堡 v0.7.3免费内购
+#### 文明6 v1.2.0[内置菜单货物不减]
+#### 黑色边境2 v2.5.12[内置菜单]
+#### 阿斯特赖亚：六面神谕 v1.2.715[内置菜单】
+
+夸克：https://pan.quark.cn/s/2701292a33f3
+
+---
+
+## steam移植手游合集（有哪些游戏看下方，链接在下方）
+
+#### steam移植手游武馆模拟器 v15免费购物mod
+#### steam移植手游-幽浮2典藏合集v1.5.4RC2完整版包含全部DLC包（安卓9以上才能运行）
+#### steam移植手游-疯狂之墙1+2高质量fps射击大作
+#### steam移植手游-生长机器人v1.0.2
+#### steam移植手游-灰色幻影扳机v1.0完整版
+#### steam移植手游-海绵宝宝宇宙摇摆v1.0.4
+#### steam移植手游-海绵宝宝：比奇堡的冒险v1.3.1
+#### steam移植手游-黯海v1.0.0.2
+#### steam移植手游-火焰守护者v1.0.6
+#### steam移植手游-忍者神龟施莱德的复仇v1.2.17
+#### steam移植手游-怪奇物语3中文版v1.3.1053
+#### steam移植手游-南极洲88：恐怖行动生存v1.7.7(解锁所有物品)
+#### steam移植手游-奇巫妙森v1.0
+#### steam移植手游-彩虹六号迷你v1.4
+#### steam移植手游-蝙蝠侠秘密系谱v1.6.3(解锁全部章节）
+#### steam移植手游-合金弹头战略版v1.0.152完整版
+#### steam移植手游-全球飞行模拟器v01.05免费购买+解锁全球
+#### steam移植手游-烛火地牢2猫咪的诅咒v0.4.0f
+#### steam移植手游-逃出百慕大v1.7.4
+#### steam移植手游-恐惧岩地牢v1.14-b54
+#### steam移植手游-速降王者v1.10.3单机版
+#### steam移植手游-幕府之争上兵伐谋v2.0.3
+#### steam移植手游-盛放小镇v1.0.29
+#### steam移植手游-战律2v1.2.11
+#### steam移植手游-这是警察2v1.0.21
+#### steam移植手游-暗黑史诗Fate v1.0.5
+#### steam移植手游-伊始之地v1.2
+#### steam移植手游-火星归来MOD菜单v1.5.6
+#### steam移植手游-沙丘帝国v3.3.0单机完整版
+
+夸克：https://pan.quark.cn/s/1bc2f6b61185
+
+---
+
+## 已有游戏
+
+#### 《格雷克大冒险 阿祖尔的回忆》v1.2.9 安卓 完整版（steam移植）
+
+夸克：https://pan.quark.cn/s/bd011dcd4f63
 
 #### 《下一站江湖2》v0.1 安卓 中文版
 
 夸克：https://pan.quark.cn/s/3a2c39dd4919
 
-#### 《大侠立志传》V1.2.117 全DLC 安卓完整版 内置控制台（Steam移植）
+#### 《大侠立志传》v1.2.117 全DLC 安卓完整版 内置控制台（Steam移植）
 
 夸克：https://pan.quark.cn/s/0aa78f825f7b
 
@@ -224,19 +360,19 @@
 
 夸克：https://pan.quark.cn/s/a790722c6760
 
-迅雷：https://pan.xunlei.com/s/VNr9wvG_C3DWufWRhvGfh-hdA1?pwd=zwkw#
+迅雷：https://pan.xunlei.com/s/vNr9wvG_C3DWufWRhvGfh-hdA1?pwd=zwkw#
 
 #### 《航天模拟器（Spaceflight Simulator ）》v1.5.10.2 安卓 汉化版
 
 夸克：https://pan.quark.cn/s/014fe90914de
 
-迅雷：https://pan.xunlei.com/s/VO8Wg8SGL8ZEIUu_w7QEOCiYA1?pwd=u4pr#
+迅雷：https://pan.xunlei.com/s/vO8Wg8SGL8ZEIUu_w7QEOCiYA1?pwd=u4pr#
 
 #### 《月圆之夜》最新 内置菜单 安卓版
 
 夸克：https://pan.quark.cn/s/056720181fdf
 
-迅雷：https://pan.xunlei.com/s/VO8N-ZAxx0rkPoaEBOfgmUgTA1?pwd=cev5#
+迅雷：https://pan.xunlei.com/s/vO8N-ZAxx0rkPoaEBOfgmUgTA1?pwd=cev5#
 
 #### 《沙威玛传奇》v1.0.8 安卓 免广告 无限金币版
 
@@ -266,7 +402,7 @@
 
 夸克：https://pan.quark.cn/s/e7d0f73b6792
 
-迅雷：https://pan.xunlei.com/s/VNzEXUs6Ci-K18-MZuN-fzQxA1?pwd=eytd#
+迅雷：https://pan.xunlei.com/s/vNzEXUs6Ci-K18-MZuN-fzQxA1?pwd=eytd#
 
 #### 《植物大战僵尸2花园战争》安卓游戏 完整正常模式+困难模式版本
 
@@ -370,25 +506,25 @@
 
 #### 《模拟农场23》安卓游戏 网飞版 v0.0.0.13[完整版]
 
-迅雷：https://pan.xunlei.com/s/VNwzHO4ujZDuotlbxhuBoELxA1?pwd=9tv4#
+迅雷：https://pan.xunlei.com/s/vNwzHO4ujZDuotlbxhuBoELxA1?pwd=9tv4#
 
 #### 《小小军团》最新v4.1.3 安卓版
 
 夸克：https://pan.quark.cn/s/6a27df825bad
 
-迅雷：https://pan.xunlei.com/s/VNwzF2yMk76q9hL8ynCmc6iMA1?pwd=rkmy#
+迅雷：https://pan.xunlei.com/s/vNwzF2yMk76q9hL8ynCmc6iMA1?pwd=rkmy#
 
 #### 《小小军团合战三国》最新 安卓学习版v2.4.7
 
 夸克：https://pan.quark.cn/s/ed5dc5093b9d
 
-迅雷：https://pan.xunlei.com/s/VNwzFSDcA284CokD_pZpGQx-A1?pwd=8vsa#
+迅雷：https://pan.xunlei.com/s/vNwzFSDcA284CokD_pZpGQx-A1?pwd=8vsa#
 
 #### 《钓鱼大师》无限金币版 安卓版
 
 夸克：https://pan.quark.cn/s/8869498ef486
 
-迅雷：https://pan.xunlei.com/s/VNvpYYbuaAIyzNmEGG2rulpnA1?pwd=fbvs#
+迅雷：https://pan.xunlei.com/s/vNvpYYbuaAIyzNmEGG2rulpnA1?pwd=fbvs#
 
 #### 《杀戮尖塔》安卓版（免付费解锁完整版）
 
@@ -402,13 +538,13 @@
 
 夸克：https://pan.quark.cn/s/3a020a3a879d
 
-迅雷：https://pan.xunlei.com/s/VNr69wHn42KWEkZriHzudhjKA1?pwd=8q2x#
+迅雷：https://pan.xunlei.com/s/vNr69wHn42KWEkZriHzudhjKA1?pwd=8q2x#
 
 #### 《植物大战僵尸2》各种版本大合集 安卓版
 
 夸克：https://pan.quark.cn/s/fae0828d9e8d
 
-迅雷：https://pan.xunlei.com/s/VNrA4zOM4SPbb_7mg3JaJjiWA1?pwd=tsq6#
+迅雷：https://pan.xunlei.com/s/vNrA4zOM4SPbb_7mg3JaJjiWA1?pwd=tsq6#
 
 #### 《重生细胞》v3.3.12 安卓完整+全DLC Steam移植版
 
@@ -422,7 +558,7 @@
 
 夸克：https://pan.quark.cn/s/7dd36b3c44cc
 
-迅雷：https://pan.xunlei.com/s/VNrkK5s0QF8Oqrd-uHeGu3O4A1?pwd=xqsf#
+迅雷：https://pan.xunlei.com/s/vNrkK5s0QF8Oqrd-uHeGu3O4A1?pwd=xqsf#
 
 #### 《命运之夜 Fate Stay Night》v2.1.10 汉化安卓版
 
@@ -432,25 +568,25 @@
 
 夸克：https://pan.quark.cn/s/1028a6c7b6bb
 
-迅雷：https://pan.xunlei.com/s/VNtjosQ5RR1LYN6BtHxGYRa-A1?pwd=iw2d#
+迅雷：https://pan.xunlei.com/s/vNtjosQ5RR1LYN6BtHxGYRa-A1?pwd=iw2d#
 
 #### 《王国英雄》v1.6.3 [完整版]Steam移植 安卓版
 
-迅雷：https://pan.xunlei.com/s/VNtjpFxYO3u-7wuDE4Ao2mJsA1?pwd=hnuc#
+迅雷：https://pan.xunlei.com/s/vNtjpFxYO3u-7wuDE4Ao2mJsA1?pwd=hnuc#
 
-#### 《模拟地铁》V1.0.5
+#### 《模拟地铁》v1.0.5
 
 夸克：https://pan.quark.cn/s/91c8c59ae8e8
 
-#### 《背包战争》V1.5 安卓版
+#### 《背包战争》v1.5 安卓版
 
 夸克：https://pan.quark.cn/s/7243a79e7a29
 
-迅雷：https://pan.xunlei.com/s/VNttNxiokd1GX9kBwlqxydR3A1?pwd=9cmh#
+迅雷：https://pan.xunlei.com/s/vNttNxiokd1GX9kBwlqxydR3A1?pwd=9cmh#
 
 #### 《口袋英雄》v2.0.5 安卓版
 
 夸克：https://pan.quark.cn/s/f7c6f92ecdab
 
-迅雷：https://pan.xunlei.com/s/VNvM1xZaChviLdHkOVP2R47IA1?pwd=8gmu#
+迅雷：https://pan.xunlei.com/s/vNvM1xZaChviLdHkOvP2R47IA1?pwd=8gmu#
 

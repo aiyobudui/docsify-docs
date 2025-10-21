@@ -48,6 +48,22 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.1.0 中文版
+
+夸克：https://pan.quark.cn/s/e47e913a8da7
+
+#### 《格雷克大冒险：阿祖尔的回忆（Greak Memories of Azur）豪华版》v1.0.6_114 中文版
+
+夸克：https://pan.quark.cn/s/bf148620bae7
+
+#### 《遗忘之城（The Forgotten City）收藏家版》v1.3.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/9af4ea40ed9c
+
+#### 《忍者龙剑传 大师合集（NINJA GAIDEN Master Collection）豪华版》v1.0.0.4 中文版
+
+夸克：https://pan.quark.cn/s/5eedb3be2fd5
+
 #### 《东方异域见闻 （Touhou Dystopian）》v1.0.0 中文版（动作肉鸽）
 
 夸克：https://pan.quark.cn/s/c2566c36ca07
@@ -60,6 +76,10 @@
 
 夸克：https://pan.quark.cn/s/b7809b2a53e5
 
+#### 《难死塔（Tricky Towers）》v2020.4.20 全DLC 中文 联机版（可4人同屏游玩）
+
+夸克：https://pan.quark.cn/s/f2073282e3e1
+
 #### 《武装突袭 重铸者（Arma Reforger）豪华版》v1.4.0.55 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/1dca1aede3e0
@@ -67,46 +87,6 @@
 #### 《自在城镇（Town To City）》v0.1.4 中文版
 
 夸克：https://pan.quark.cn/s/f7a7740b9c92
-
-#### 《灵境修仙界（Spirit Realm）》v0.5.7.0.9 中文版
-
-夸克：https://pan.quark.cn/s/f517933cc043
-
-#### 《星链：阿特拉斯之战（Starlink Battle for Atlas）豪华版》v2025.10.18 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/003af8c638ef
-
-#### 《守护者（Keeper）》v2025.10.17 中文版（温情奇异探索）
-
-夸克：https://pan.quark.cn/s/c5c0bdca03a0
-
-#### 《全面战争：三国（Total War Three Kingdoms）》v1.7.1 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/c6f9e205035b
-
-#### 《狂野西部：毒枭（Call of Juarez The Cartel）》v1.11.1 汉化版
-
-夸克：https://pan.quark.cn/s/47a7b2d1708b
-
-#### 《地球不屈（Terra Invicta）》v0.4.105 中文版
-
-夸克：https://pan.quark.cn/s/9ca7438200cb
-
-#### 《KeepUp Survival》v2025.10.15 全DLC 中文版（维持生存）
-
-夸克：https://pan.quark.cn/s/96ca98db61cf
-
-#### 《奈斯启示录（Necesse）》v1.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/83a3f6958a9a
-
-#### 《怪物之家2 勋章（Dad's Monster House 2 MEDAL）》v2025.10.17 中文版（惊悚冒险）
-
-夸克：https://pan.quark.cn/s/5dbea36f62f6
-
-#### 《战地模拟器（ravenfield）》v.ea32 英文版
-
-夸克：https://pan.quark.cn/s/0c572c4d12c1
 
 ---
 
@@ -155,36 +135,6 @@
 #### 《人渣（SCUM）豪华版》v1.1.0.2 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e1be35435129
-
-#### 《小小世界：原野求生（Smalland Survive the Wilds）》v2.0.4 中文 联机版
-
-夸克：https://pan.quark.cn/s/601e230dca7c
-
-迅雷：https://pan.xunlei.com/s/VNxmA-19BxrvkoJ4erC5p2lcA1?pwd=fr7n#
-
-#### 《狭间骑士（Knights in Tight Spaces）典藏版》v1.2.19667 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f3140bb7aff0
-
-#### 《裂隙纷争（Rift Riff）》v1.2.2 中文版
-
-夸克：https://pan.quark.cn/s/4abf17c56aa4
-
-#### 《余烬骑士（Ember Knights）》v2.3.0 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ecfbdc37386f
-
-#### 《我们的冒险者公会（Our Adventurer Guild）》v1.7 全DLC 中文版（新增DLC）
-
-夸克：https://pan.quark.cn/s/ed99205bc66b
-
-#### 《杀手 暗杀世界（HITMAN World of Assassination)豪华版》v3.240.1 全DLC 中文版（杀手1 杀手2 杀手3)
-
-夸克：https://pan.quark.cn/s/88d4e323e453
-
-#### 《灵魂面甲（Soulmask）》v0.5.14 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/17b6423c5409
 
 ---
 
@@ -379,6 +329,76 @@
 ---
 
 ## 已有游戏
+
+#### 《小小世界：原野求生（Smalland Survive the Wilds）》v2.0.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/601e230dca7c
+
+迅雷：https://pan.xunlei.com/s/VNxmA-19BxrvkoJ4erC5p2lcA1?pwd=fr7n#
+
+#### 《狭间骑士（Knights in Tight Spaces）典藏版》v1.2.19667 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f3140bb7aff0
+
+#### 《裂隙纷争（Rift Riff）》v1.2.2 中文版
+
+夸克：https://pan.quark.cn/s/4abf17c56aa4
+
+#### 《余烬骑士（Ember Knights）》v2.3.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ecfbdc37386f
+
+#### 《我们的冒险者公会（Our Adventurer Guild）》v1.7 全DLC 中文版（新增DLC）
+
+夸克：https://pan.quark.cn/s/ed99205bc66b
+
+#### 《杀手 暗杀世界（HITMAN World of Assassination)豪华版》v3.240.1 全DLC 中文版（杀手1 杀手2 杀手3)
+
+夸克：https://pan.quark.cn/s/88d4e323e453
+
+#### 《灵魂面甲（Soulmask）》v0.5.14 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/17b6423c5409
+
+#### 《灵境修仙界（Spirit Realm）》v0.5.7.0.9 中文版
+
+夸克：https://pan.quark.cn/s/f517933cc043
+
+#### 《星链：阿特拉斯之战（Starlink Battle for Atlas）豪华版》v2025.10.18 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/003af8c638ef
+
+#### 《守护者（Keeper）》v2025.10.17 中文版（温情奇异探索）
+
+夸克：https://pan.quark.cn/s/c5c0bdca03a0
+
+#### 《全面战争：三国（Total War Three Kingdoms）》v1.7.1 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6f9e205035b
+
+#### 《狂野西部：毒枭（Call of Juarez The Cartel）》v1.11.1 汉化版
+
+夸克：https://pan.quark.cn/s/47a7b2d1708b
+
+#### 《地球不屈（Terra Invicta）》v0.4.105 中文版
+
+夸克：https://pan.quark.cn/s/9ca7438200cb
+
+#### 《KeepUp Survival》v2025.10.15 全DLC 中文版（维持生存）
+
+夸克：https://pan.quark.cn/s/96ca98db61cf
+
+#### 《奈斯启示录（Necesse）》v1.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/83a3f6958a9a
+
+#### 《怪物之家2 勋章（Dad's Monster House 2 MEDAL）》v2025.10.17 中文版（惊悚冒险）
+
+夸克：https://pan.quark.cn/s/5dbea36f62f6
+
+#### 《战地模拟器（ravenfield）》v.ea32 英文版
+
+夸克：https://pan.quark.cn/s/0c572c4d12c1
 
 #### 《饥荒（Dont Starve Together）》v692916 全DLC 中文 LAN联机版
 
