@@ -11,6 +11,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO7wj_ndEYkY4fupDFP2XPCEA1?pwd=7khq#
 
+#### 《向往的生活》（2025）第八季 更新中..
+
+夸克：https://pan.quark.cn/s/5af59810958d
+
 #### 《王牌对王牌》（2025）第9季 4K 更新中..
 
 夸克：https://pan.quark.cn/s/bff50906a20e

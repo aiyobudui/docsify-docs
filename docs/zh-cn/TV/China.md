@@ -17,11 +17,13 @@
 
 ## 正在更新中的...
 
-#### 《命悬一生》(2025）4K 16集更新中..
+#### 《命悬一生》（2025）4K 16集全
 
-夸克：https://pan.quark.cn/s/86c8b83a1a7e
+夸克：https://pan.quark.cn/s/5416750bda9f
 
-#### 《沉默的荣耀》（2025）4K 39集更新中..
+迅雷：https://pan.xunlei.com/s/VOcBRmlavV5oQLSurSj9i2k3A1?pwd=fq6p#
+
+#### 《沉默的荣耀》（2025）4K 39集全
 
 夸克：https://pan.quark.cn/s/de9349d3262e
 

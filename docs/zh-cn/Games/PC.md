@@ -52,6 +52,26 @@
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
 
+#### 《双截龙再临（Double Dragon Revive）豪华版》v1.1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/7fac7da65caa
+
+#### 《莱萨里亚：英雄之歌（Lessaria Fantasy Kingdom Sim）豪华版》v1.0.1034 中文版
+
+夸克：https://pan.quark.cn/s/97099532882b
+
+#### 《神弃之地（GOD FORSAKEN）》v0.2.2 中文版
+
+夸克：https://pan.quark.cn/s/fa58a544012a
+
+#### 《孤独的灵魂（Lone Soul）》v1.0.0d 中文版
+
+夸克：https://pan.quark.cn/s/faf3ccb59955
+
+#### 《过家家（Playing House）》v2025.10.21 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/b27e27351815
+
 #### 《格雷克大冒险：阿祖尔的回忆（Greak Memories of Azur）豪华版》v1.0.6_114 中文版
 
 夸克：https://pan.quark.cn/s/bf148620bae7
@@ -105,6 +125,10 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.5 Hotfix 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《七龙珠 电光炸裂 ZERO（Dragon Ball Sparking Zero）终结版》v2015.014.003.009.008 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/cfa6067a133d
 
 #### 《消防模拟：火苗燃动（Firefighting Simulator Ignite）》v1.0918.28966.89171 中文版
 
@@ -3759,10 +3783,6 @@
 #### 《饿狼传说：群狼之城（FATAL FURY City of the Wolves）》v1.2.0-78498 中文 联机版
 
 夸克：https://pan.quark.cn/s/8edad4bbd88e
-
-#### 《七龙珠：电光炸裂！ZERO（Dragon Ball Sparking Zero）》v2013.012.003.008.007 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/cfa6067a133d
 
 #### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）》v1.2.12.77991 豪华中文 联机版
 
