@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
 
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）豪华版》v46047 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《恐惧杀手（Painkiller）豪华版》v224001 中文版
+
+夸克：https://pan.quark.cn/s/127105aa9d46
+
 #### 《双截龙再临（Double Dragon Revive）豪华版》v1.1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/7fac7da65caa
