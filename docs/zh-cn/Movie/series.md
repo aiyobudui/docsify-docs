@@ -50,7 +50,7 @@
 
 阿里：https://www.alipan.com/s/Gydx8E6EXt8
 
-#### 《漫威宇宙电影合集》蓝光4K HDR + 4K REMUX原盘 多国配音音轨 特效字幕
+#### 《漫威宇宙电影合集》蓝光4K HDR 多国配音音轨 特效字幕
 
 夸克：https://pan.quark.cn/s/ac1fe9f846e5
 

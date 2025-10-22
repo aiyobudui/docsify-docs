@@ -172,6 +172,10 @@
 
 夸克：https://pan.quark.cn/s/36cee93a168b
 
+#### 《数码宝贝 合集》1-8季 1080P 国粤日配音+剧场版+OVA
+
+夸克：https://pan.quark.cn/s/1a227a9585cd
+
 #### 《来自深渊》（2017-2022）1080P 中字 1-2季全+剧场版
 
 夸克：https://pan.quark.cn/s/2de3a9bdaceb
