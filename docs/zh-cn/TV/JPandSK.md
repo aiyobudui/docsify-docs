@@ -93,10 +93,6 @@
 
 夸克：https://pan.quark.cn/s/84f738095621
 
-#### 《铠甲勇士 大合集》（2009-2024）4K+1080P 国语配音
-
-夸克：https://pan.quark.cn/s/7703d3384cfa
-
 #### 《来自星星的你》（2013）1080P高码 中字 21集全（导演剪辑版）
 
 夸克：https://pan.quark.cn/s/fe6260aacef5
@@ -641,7 +637,15 @@
 
 夸克：https://pan.quark.cn/s/1aa3b6807304
 
-#### 《超级战队 系列合集》43部 1080P高码 中字 （特摄剧）
+#### 《东京爱情故事》（1991）蓝光1080P 国台日配音 中字（附2020版+漫画）
+
+夸克：https://pan.quark.cn/s/2a5ce140b16a
+
+#### 《铠甲勇士 系列合集》（2009-2024）4K+1080P 国语配音（特摄剧）
+
+夸克：https://pan.quark.cn/s/d9ecff4c6b18
+
+#### 《超级战队 系列合集》43部 1080P高码 中字（特摄剧）
 
 夸克：https://pan.quark.cn/s/aa5d6b4d22b3
 
@@ -650,7 +654,3 @@
 夸克：https://pan.quark.cn/s/452891f098bb
 
 迅雷：https://pan.xunlei.com/s/VO6pFK_LzM5oaPTtXGWIWWjkA1?pwd=dbmx#
-
-#### 《东京爱情故事》（1991）蓝光1080P 国台日配音 中字 （附2020版+漫画）
-
-夸克：https://pan.quark.cn/s/2a5ce140b16a

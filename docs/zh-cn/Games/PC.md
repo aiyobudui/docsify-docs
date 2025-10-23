@@ -52,7 +52,11 @@
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
 
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）豪华版》v46047 全DLC 中文版
+#### 《铁甲少女（FULL METAL SCHOOLGIRL）》v2025.10.23 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2af9f0381c2a
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46047 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/208c46eae054
 
@@ -88,43 +92,41 @@
 
 夸克：https://pan.quark.cn/s/9af4ea40ed9c
 
-#### 《忍者龙剑传 大师合集（NINJA GAIDEN Master Collection）豪华版》v1.0.0.4 中文版
-
-夸克：https://pan.quark.cn/s/5eedb3be2fd5
-
-#### 《东方异域见闻 （Touhou Dystopian）》v1.0.0 中文版（动作肉鸽）
-
-夸克：https://pan.quark.cn/s/c2566c36ca07
-
-#### 《挖掘者：银河宝藏（Digger Galactic Treasures）》v1.10.2 中文版
-
-夸克：https://pan.quark.cn/s/459ef9047d4c
-
-#### 《无尽地牢（ENDLESS Dungeon）终结版》v1.6.11055 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b7809b2a53e5
-
-#### 《难死塔（Tricky Towers）》v2020.4.20 全DLC 中文 联机版（可4人同屏游玩）
-
-夸克：https://pan.quark.cn/s/f2073282e3e1
-
-#### 《武装突袭 重铸者（Arma Reforger）豪华版》v1.4.0.55 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1dca1aede3e0
-
-#### 《自在城镇（Town To City）》v0.1.4 中文版
-
-夸克：https://pan.quark.cn/s/f7a7740b9c92
-
 ---
 
 ## 最近更新
+
+#### 《幻兽帕鲁（Palworld）》v0.6.8.81654 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《小小梦魇3（Little Nightmares 3）》v2025.10.17 全DLC 中文 联机版（附前2部 恐怖解密）
 
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7e87c85f9a72
+
+#### 《负熵幸存者（Entropy Survivors）》v1.6.0.25226 中文 联机版
+
+夸克：https://pan.quark.cn/s/fd723b7c2dc5
+
+#### 《猫好货坏（Order13）》v1.1 中文版
+
+夸克：https://pan.quark.cn/s/081df609646f
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.02 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.0.28 中文版
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
 
@@ -134,49 +136,9 @@
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
 
-#### 《七龙珠 电光炸裂 ZERO（Dragon Ball Sparking Zero）终结版》v2015.014.003.009.008 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/cfa6067a133d
-
-#### 《消防模拟：火苗燃动（Firefighting Simulator Ignite）》v1.0918.28966.89171 中文版
-
-夸克：https://pan.quark.cn/s/faa672a22730
-
-#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.40087 离线中文 稳定版
-
-夸克：https://pan.quark.cn/s/ec9392c8a6d4
-
-迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
-
-#### 《传说与战术自走棋（Tales Tactics）》v1.13 中文版
-
-夸克：https://pan.quark.cn/s/81ddc85d0603
-
-#### 《合金装备5：幻痛（Metal Gear Solid V The Phantom Pain）》v1.15 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/783c4ed9f794
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.0.25 中文版
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《PEAK》v1.33.a 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
-
-#### 《人渣（SCUM）豪华版》v1.1.0.2 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e1be35435129
-
 ---
 
 ## 顶置游戏
-
-#### 《幻兽帕鲁（Palworld）》v0.6.7.79736 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
@@ -361,6 +323,64 @@
 ---
 
 ## 已有游戏
+
+#### 《七龙珠 电光炸裂 ZERO（Dragon Ball Sparking Zero）终结版》v2015.014.003.009.008 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/cfa6067a133d
+
+#### 《消防模拟：火苗燃动（Firefighting Simulator Ignite）》v1.0918.28966.89171 中文版
+
+夸克：https://pan.quark.cn/s/faa672a22730
+
+#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.40087 离线中文 稳定版
+
+夸克：https://pan.quark.cn/s/ec9392c8a6d4
+
+迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
+
+#### 《传说与战术自走棋（Tales Tactics）》v1.13 中文版
+
+夸克：https://pan.quark.cn/s/81ddc85d0603
+
+#### 《合金装备5：幻痛（Metal Gear Solid V The Phantom Pain）》v1.15 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/783c4ed9f794
+
+#### 《PEAK》v1.33.a 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
+
+#### 《人渣（SCUM）豪华版》v1.1.0.2 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e1be35435129
+
+#### 《忍者龙剑传 大师合集（NINJA GAIDEN Master Collection）豪华版》v1.0.0.4 中文版
+
+夸克：https://pan.quark.cn/s/5eedb3be2fd5
+
+#### 《东方异域见闻 （Touhou Dystopian）》v1.0.0 中文版（动作肉鸽）
+
+夸克：https://pan.quark.cn/s/c2566c36ca07
+
+#### 《挖掘者：银河宝藏（Digger Galactic Treasures）》v1.10.2 中文版
+
+夸克：https://pan.quark.cn/s/459ef9047d4c
+
+#### 《无尽地牢（ENDLESS Dungeon）终结版》v1.6.11055 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b7809b2a53e5
+
+#### 《难死塔（Tricky Towers）》v2020.4.20 全DLC 中文 联机版（可4人同屏游玩）
+
+夸克：https://pan.quark.cn/s/f2073282e3e1
+
+#### 《武装突袭 重铸者（Arma Reforger）豪华版》v1.4.0.55 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1dca1aede3e0
+
+#### 《自在城镇（Town To City）》v0.1.4 中文版
+
+夸克：https://pan.quark.cn/s/f7a7740b9c92
 
 #### 《小小世界：原野求生（Smalland Survive the Wilds）》v2.0.4 中文 联机版
 
@@ -986,10 +1006,6 @@
 
 夸克：https://pan.quark.cn/s/98518c51a604
 
-#### 《负熵幸存者（Entropy Survivors）》v1.5.2.24984 中文 联机版
-
-夸克：https://pan.quark.cn/s/fd723b7c2dc5
-
 #### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/9a929198d5a2
@@ -1437,10 +1453,6 @@
 #### 《北境之地（Northgard）》v3.7.52.42509 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/b9d16fda4a89
-
-#### 《枪火重生（Gunfire Reborn）》v2025.9.22 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/7e87c85f9a72
 
 #### 《最终幻想起源：天堂的陌生人(Stranger of Paradise Final Fantasy Origin)》v1.32 全DLC 中文 联机版
 
@@ -2773,10 +2785,6 @@
 #### 《欧陆风云4（Europa Universalis IV）终极版》v1.37.5.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/fcc894524f26
-
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v1.042 中文版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
 
 #### 《欧米茄工匠（Omega Crafter）》v1.0.4 中文 联机版
 
@@ -4310,10 +4318,6 @@
 #### 《Deathless Tales of Old Rus》v1.2.0.31039 中文版（卡牌肉鸽）
 
 夸克：https://pan.quark.cn/s/a9dd1f8d1b76
-
-#### 《猫好货坏（Order13）》v1.05 中文版
-
-夸克：https://pan.quark.cn/s/081df609646f
 
 #### 《不恋爱就完蛋了（Love Curse Find Your Soulmate）》v2025.5.14 中文版（视觉小说）
 
