@@ -48,9 +48,29 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v2025.10.23 中文版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.1.0 中文版
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
+
+#### 《受折磨的灵魂2（Tormented Souls 2）》v1.2.0 全DLC 中文版（生存恐怖游戏）
+
+夸克：https://pan.quark.cn/s/9a82f315c342
+
+#### 《孤独公会（The Lonesome Guild）》v2025.10.23 中文版
+
+夸克：https://pan.quark.cn/s/e65f0083d695
+
+#### 《冲就完事模拟器2（PowerWash Simulator 2）》V1.1.0.59 中文版（附第一部 全DLC）
+
+夸克：https://pan.quark.cn/s/3f523ff18fd5
+
+#### 《核处逢生（MISERY）》v2025.10.23 中文版
+
+夸克：https://pan.quark.cn/s/91d0f14892d7
 
 #### 《铁甲少女（FULL METAL SCHOOLGIRL）》v2025.10.23 全DLC 中文版
 
@@ -107,6 +127,10 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《战锤40K：行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.5.0.293 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2e6eaafeec7e
 
 #### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
 
@@ -697,10 +721,6 @@
 #### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
 
 夸克：https://pan.quark.cn/s/0015412d5e95
-
-#### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3f523ff18fd5
 
 #### 《绝对魔权（Absolum）》v2025.10.10 中文版
 
@@ -3703,10 +3723,6 @@
 #### 《围攻（Besiege）支持者版》v1.75-23301 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e38293093ef5
-
-#### 《战锤40K：行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.4.0.190 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2e6eaafeec7e
 
 #### 《神之天平（ASTLIBRA Revision）》v1.4.1 全DLC 中文版
 
