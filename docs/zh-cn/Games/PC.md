@@ -132,6 +132,10 @@
 
 夸克：https://pan.quark.cn/s/2e6eaafeec7e
 
+#### 《超自然车旅（Pacific Drive）豪华版》v1.11.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7d338c911bf5
+
 #### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/7e87c85f9a72
@@ -8994,10 +8998,6 @@
 夸克：https://pan.quark.cn/s/fc0229829389
 
 迅雷：https://pan.xunlei.com/s/VO03IjnazC8x1GTPJe6r88hFA1?pwd=3dvm#
-
-#### 《超自然车旅（Pacific Drive）》v1.5 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/7d338c911bf5
 
 #### 《命令与征服：重制版合集》最新 中文版
 
