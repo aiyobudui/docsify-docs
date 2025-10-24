@@ -60,6 +60,22 @@
 
 夸克：https://pan.quark.cn/s/9a82f315c342
 
+#### 《医院计划（Project Hospital）》v1.2.23584 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/97c70c00d067
+
+#### 《里德伍德庄园（Riddlewood Manor）》v2.0.8 中文版（点击式恐怖游戏）
+
+夸克：https://pan.quark.cn/s/48f7eddab8d7
+
+#### 《月兽围城（Becastled）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/5213938d56fd
+
+#### 《斗阵骑士（Knightica）》v1.1.1a 中文版（自走棋）
+
+夸克：https://pan.quark.cn/s/76751d9d13c3
+
 #### 《Onirism》v1.0 中文版（卡通奇幻动作冒险）
 
 夸克：https://pan.quark.cn/s/0dc0e9840bcf
@@ -79,42 +95,6 @@
 #### 《铁甲少女（FULL METAL SCHOOLGIRL）》v2025.10.23 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/2af9f0381c2a
-
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46047 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
-
-#### 《恐惧杀手（Painkiller）豪华版》v224001 中文版
-
-夸克：https://pan.quark.cn/s/127105aa9d46
-
-#### 《双截龙再临（Double Dragon Revive）豪华版》v1.1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/7fac7da65caa
-
-#### 《莱萨里亚：英雄之歌（Lessaria Fantasy Kingdom Sim）豪华版》v1.0.1034 中文版
-
-夸克：https://pan.quark.cn/s/97099532882b
-
-#### 《神弃之地（GOD FORSAKEN）》v0.2.2 中文版
-
-夸克：https://pan.quark.cn/s/fa58a544012a
-
-#### 《孤独的灵魂（Lone Soul）》v1.0.0d 中文版
-
-夸克：https://pan.quark.cn/s/faf3ccb59955
-
-#### 《过家家（Playing House）》v2025.10.21 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/b27e27351815
-
-#### 《格雷克大冒险：阿祖尔的回忆（Greak Memories of Azur）豪华版》v1.0.6_114 中文版
-
-夸克：https://pan.quark.cn/s/bf148620bae7
-
-#### 《遗忘之城（The Forgotten City）收藏家版》v1.3.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/9af4ea40ed9c
 
 ---
 
@@ -136,9 +116,25 @@
 
 夸克：https://pan.quark.cn/s/2e6eaafeec7e
 
+#### 《首都高赛车（Tokyo Xtreme Racer）》v1.1.0 中文版
+
+夸克：https://pan.quark.cn/s/f2f0e9b52bb4
+
+#### 《绝对魔权（Absolum）》v2025.10.23 中文版
+
+夸克：https://pan.quark.cn/s/1179f67a6076
+
 #### 《超自然车旅（Pacific Drive）豪华版》v1.11.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7d338c911bf5
+
+#### 《深岩银河（Deep Rock Galactic）》v1.39.125673.0 全DLC 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/cb16ac738ce8
+
+#### 《海港物语（Havendock）》v1.2.7 中文版
+
+夸克：https://pan.quark.cn/s/2711a77ec608
 
 #### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
 
@@ -355,6 +351,42 @@
 ---
 
 ## 已有游戏
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46047 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《恐惧杀手（Painkiller）豪华版》v224001 中文版
+
+夸克：https://pan.quark.cn/s/127105aa9d46
+
+#### 《双截龙再临（Double Dragon Revive）豪华版》v1.1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/7fac7da65caa
+
+#### 《莱萨里亚：英雄之歌（Lessaria Fantasy Kingdom Sim）豪华版》v1.0.1034 中文版
+
+夸克：https://pan.quark.cn/s/97099532882b
+
+#### 《神弃之地（GOD FORSAKEN）》v0.2.2 中文版
+
+夸克：https://pan.quark.cn/s/fa58a544012a
+
+#### 《孤独的灵魂（Lone Soul）》v1.0.0d 中文版
+
+夸克：https://pan.quark.cn/s/faf3ccb59955
+
+#### 《过家家（Playing House）》v2025.10.21 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/b27e27351815
+
+#### 《格雷克大冒险：阿祖尔的回忆（Greak Memories of Azur）豪华版》v1.0.6_114 中文版
+
+夸克：https://pan.quark.cn/s/bf148620bae7
+
+#### 《遗忘之城（The Forgotten City）收藏家版》v1.3.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/9af4ea40ed9c
 
 #### 《七龙珠 电光炸裂 ZERO（Dragon Ball Sparking Zero）终结版》v2015.014.003.009.008 全DLC 中文 联机版
 
@@ -729,10 +761,6 @@
 #### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
 
 夸克：https://pan.quark.cn/s/0015412d5e95
-
-#### 《绝对魔权（Absolum）》v2025.10.10 中文版
-
-夸克：https://pan.quark.cn/s/1179f67a6076
 
 #### 《狂野的心（The Wild at Heart）》v1.1.9.0 中文版（丰富多彩绘本冒险）
 
@@ -2604,10 +2632,6 @@
 
 夸克：https://pan.quark.cn/s/ba59633a9c78
 
-#### 《首都高赛车（Tokyo Xtreme Racer）》v0.14.0 中文版
-
-夸克：https://pan.quark.cn/s/f2f0e9b52bb4
-
 #### 《迷失双子2（Lost Twins 2）》v2025.8.21 全DLC 中文版（可分屏双人游玩）
 
 夸克：https://pan.quark.cn/s/63ad78502a99
@@ -3677,10 +3701,6 @@
 #### 《卡多梦：超能自走棋（Kadomon Hyper Auto Battlers）》v1.0.12 中文版
 
 夸克：https://pan.quark.cn/s/11252a692180
-
-#### 《深岩银河（Deep Rock Galactic）》v1.39.120236.0 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/cb16ac738ce8
 
 #### 《灵魂射手：死亡使者（Soulslinger Envoy of Death）》v1.03 中文版（射击肉鸽）
 
@@ -5140,10 +5160,6 @@
 #### 《鬼武者 重制版（Onimusha Warlords Remastered）重制版》v2025.4.23 中文版
 
 夸克：https://pan.quark.cn/s/36cf0230c888
-
-#### 《海港物语（Havendock）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/2711a77ec608
 
 #### 《暗黑破坏神4（Diablo 4）》v2.2.1 中文版
 
