@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/9a82f315c342
 
+#### 《Onirism》v1.0 中文版（卡通奇幻动作冒险）
+
+夸克：https://pan.quark.cn/s/0dc0e9840bcf
+
 #### 《孤独公会（The Lonesome Guild）》v2025.10.23 中文版
 
 夸克：https://pan.quark.cn/s/e65f0083d695
