@@ -112,6 +112,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《逃离后室（Escape the backrooms）》v1.2510 中文 联机版
+
+夸克：https://pan.quark.cn/s/e7f7516346d0
+
 #### 《战锤40K：行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.5.0.293 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/2e6eaafeec7e
@@ -7281,10 +7285,6 @@
 
 夸克：https://pan.quark.cn/s/f83f7bc125f7
 
-#### 《逃离后室（Escape the backrooms）》Build.28012024 中文 联机版
-
-夸克：https://pan.quark.cn/s/e7f7516346d0
-
 #### 《魔药经济学：神秘的魔法药水商店（Potionomics）》v2024.10.23 中文版
 
 夸克：https://pan.quark.cn/s/e7509d6e22e1
@@ -9945,7 +9945,7 @@
 
 夸克：https://pan.quark.cn/s/7a73db2a8775
 
-#### 《逃离后室（Backrooms：Escape Together）》v0.7.1 中文 联机版
+#### 《后室一起逃脱（Backrooms Escape Together）》v0.7.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/db360ed23c0f
 
