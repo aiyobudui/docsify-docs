@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.3.0 中文版
+
+夸克：https://pan.quark.cn/s/9baad4a27102
+
 #### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v2025.10.23 中文版
 
 夸克：https://pan.quark.cn/s/2971b90d1c45
@@ -59,6 +63,14 @@
 #### 《受折磨的灵魂2（Tormented Souls 2）》v1.2.0 全DLC 中文版（生存恐怖游戏）
 
 夸克：https://pan.quark.cn/s/9a82f315c342
+
+#### 《无星深渊：克苏鲁选集（Starless Abyss）》v1.2.4 中文版
+
+夸克：https://pan.quark.cn/s/f1c3706d46c4
+
+#### 《荒野守护者崛起（Wildkeepers Rising）》v1.0-1980 中文版
+
+夸克：https://pan.quark.cn/s/9c4b1681c0dd
 
 #### 《医院计划（Project Hospital）》v1.2.23584 全DLC 中文版
 
@@ -112,6 +124,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《逃离鸭科夫（Escape From Duckov）》v1.0.30 中文版
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《风中行者（Windblown）》v0.7.11 中文 联机版
+
+夸克：https://pan.quark.cn/s/d0bc0bde2671
+
+#### 《奥术之路（Arcane Path）》v2025.10.24 中文版（卡牌策略）
+
+夸克：https://pan.quark.cn/s/7cc527717d68
+
 #### 《逃离后室（Escape the backrooms）》v1.2510 中文 联机版
 
 夸克：https://pan.quark.cn/s/e7f7516346d0
@@ -140,25 +164,9 @@
 
 夸克：https://pan.quark.cn/s/2711a77ec608
 
-#### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
+---
 
-夸克：https://pan.quark.cn/s/7e87c85f9a72
-
-#### 《负熵幸存者（Entropy Survivors）》v1.6.0.25226 中文 联机版
-
-夸克：https://pan.quark.cn/s/fd723b7c2dc5
-
-#### 《猫好货坏（Order13）》v1.1 中文版
-
-夸克：https://pan.quark.cn/s/081df609646f
-
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.02 中文 联机版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.0.28 中文版
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
+## 顶置游戏
 
 #### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
 
@@ -167,10 +175,6 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.5 Hotfix 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
----
-
-## 顶置游戏
 
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
@@ -355,6 +359,22 @@
 ---
 
 ## 已有游戏
+
+#### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7e87c85f9a72
+
+#### 《负熵幸存者（Entropy Survivors）》v1.6.0.25226 中文 联机版
+
+夸克：https://pan.quark.cn/s/fd723b7c2dc5
+
+#### 《猫好货坏（Order13）》v1.1 中文版
+
+夸克：https://pan.quark.cn/s/081df609646f
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.02 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
 
 #### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46047 全DLC 中文版
 
@@ -727,10 +747,6 @@
 #### 《死亡循环（SurrounDead）》Build.19622939 英文版
 
 夸克：https://pan.quark.cn/s/54a985e3d4f6
-
-#### 《奥术之路（Arcane Path）》v2025.10.11 中文版（卡牌策略）
-
-夸克：https://pan.quark.cn/s/7cc527717d68
 
 #### 《三国志 系列合集 威力加强版》最新 中文版
 
@@ -6594,10 +6610,6 @@
 #### 《卡戎方舟（Ark of Charon）》v1.0.3 中文版
 
 夸克：https://pan.quark.cn/s/4b905417590c
-
-#### 《风中行者（Windblown）》v0.2.2.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/d0bc0bde2671
 
 #### 《雄心壮志（Big Ambitions）》v0.7-2850 中文版
 
