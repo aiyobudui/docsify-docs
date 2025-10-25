@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
 
+#### 《荒凉避难所（Bleak Haven）》v1.2.1 中文版（恐怖生存游戏）
+
+夸克：https://pan.quark.cn/s/6e6aec5924ee
+
 #### 《受折磨的灵魂2（Tormented Souls 2）》v1.2.0 全DLC 中文版（生存恐怖游戏）
 
 夸克：https://pan.quark.cn/s/9a82f315c342
@@ -123,6 +127,10 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《无人深空（No Man's Sky）》v6.11 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.0.30 中文版
 
@@ -879,10 +887,6 @@
 #### 《控制（Control）终极合辑版》v1.33 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fe8828dd6a65
-
-#### 《无人深空（No Man's Sky）》v6.06 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《缉私警察（Contraband Police）》v20251002 中文版
 
