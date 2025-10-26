@@ -60,6 +60,18 @@
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
 
+#### 《救赎少女（Maid of Salvation）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/910fae026a9a
+
+#### 《王冠与冒险（Crown and Adventure）》v2025.10.26 中文版
+
+夸克：https://pan.quark.cn/s/96105db1d7d7
+
+#### 《赏金之星（Bounty Star）》v2025.10.26 中文版
+
+夸克：https://pan.quark.cn/s/6e28edd85706
+
 #### 《荒凉避难所（Bleak Haven）》v1.2.1 中文版（恐怖生存游戏）
 
 夸克：https://pan.quark.cn/s/6e6aec5924ee
@@ -76,42 +88,6 @@
 
 夸克：https://pan.quark.cn/s/9c4b1681c0dd
 
-#### 《医院计划（Project Hospital）》v1.2.23584 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/97c70c00d067
-
-#### 《里德伍德庄园（Riddlewood Manor）》v2.0.8 中文版（点击式恐怖游戏）
-
-夸克：https://pan.quark.cn/s/48f7eddab8d7
-
-#### 《月兽围城（Becastled）》v1.0 中文版
-
-夸克：https://pan.quark.cn/s/5213938d56fd
-
-#### 《斗阵骑士（Knightica）》v1.1.1a 中文版（自走棋）
-
-夸克：https://pan.quark.cn/s/76751d9d13c3
-
-#### 《Onirism》v1.0 中文版（卡通奇幻动作冒险）
-
-夸克：https://pan.quark.cn/s/0dc0e9840bcf
-
-#### 《孤独公会（The Lonesome Guild）》v2025.10.23 中文版
-
-夸克：https://pan.quark.cn/s/e65f0083d695
-
-#### 《冲就完事模拟器2（PowerWash Simulator 2）》V1.1.0.59 中文版（附第一部 全DLC）
-
-夸克：https://pan.quark.cn/s/3f523ff18fd5
-
-#### 《核处逢生（MISERY）》v2025.10.23 中文版
-
-夸克：https://pan.quark.cn/s/91d0f14892d7
-
-#### 《铁甲少女（FULL METAL SCHOOLGIRL）》v2025.10.23 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2af9f0381c2a
-
 ---
 
 ## 最近更新
@@ -127,6 +103,10 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《死亡岛2（Dead Island 2）黄金版》v7.0.0.1243375 全DLC 联机版
+
+夸克：https://pan.quark.cn/s/165489cfa06c
 
 #### 《无人深空（No Man's Sky）》v6.11 全DLC 中文 联机版
 
@@ -367,6 +347,42 @@
 ---
 
 ## 已有游戏
+
+#### 《医院计划（Project Hospital）》v1.2.23584 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/97c70c00d067
+
+#### 《里德伍德庄园（Riddlewood Manor）》v2.0.8 中文版（点击式恐怖游戏）
+
+夸克：https://pan.quark.cn/s/48f7eddab8d7
+
+#### 《月兽围城（Becastled）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/5213938d56fd
+
+#### 《斗阵骑士（Knightica）》v1.1.1a 中文版（自走棋）
+
+夸克：https://pan.quark.cn/s/76751d9d13c3
+
+#### 《Onirism》v1.0 中文版（卡通奇幻动作冒险）
+
+夸克：https://pan.quark.cn/s/0dc0e9840bcf
+
+#### 《孤独公会（The Lonesome Guild）》v2025.10.23 中文版
+
+夸克：https://pan.quark.cn/s/e65f0083d695
+
+#### 《冲就完事模拟器2（PowerWash Simulator 2）》V1.1.0.59 中文版（附第一部 全DLC）
+
+夸克：https://pan.quark.cn/s/3f523ff18fd5
+
+#### 《核处逢生（MISERY）》v2025.10.23 中文版
+
+夸克：https://pan.quark.cn/s/91d0f14892d7
+
+#### 《铁甲少女（FULL METAL SCHOOLGIRL）》v2025.10.23 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2af9f0381c2a
 
 #### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
 
@@ -4236,10 +4252,6 @@
 #### 《尼尔：人工生命（NieR Replicant ver1.22474487139）》v7396468 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/411c044dc2b6
-
-#### 《死亡岛2（Dead Island 2）黄金版》v1.1062983.0.1 全DLC 联机版
-
-夸克：https://pan.quark.cn/s/165489cfa06c
 
 #### 《骰子浪游者（Diceomancer）》v1.1.18 中文版
 

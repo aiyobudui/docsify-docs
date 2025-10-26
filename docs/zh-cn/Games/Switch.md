@@ -48,6 +48,18 @@
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
+#### 《植物大战僵尸 重植版》v1.1.0 NS整合 中文配音版
+
+夸克：https://pan.quark.cn/s/0e246c4828ee
+
+#### 《朋克战士杜罗斯 Dros》v1.0.4 NS整合 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ba0fbf9a5d1f
+
+#### 《海珂 北境极光 HYKE Northern Light(s)》v1.0.1 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/31c75e066797
+
 #### 《小小梦魇3 Little Nightmares III》v1.0.2 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/614a0eba58bc
