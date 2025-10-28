@@ -31,7 +31,7 @@
 
 #### 《PC游戏 总目录》不能实现搜索，请在文档或者网站搜索
 
-夸克：https://pan.quark.cn/s/c1537fc33c25
+夸克：https://pan.quark.cn/s/2a1ce17aed90
 
 迅雷：https://pan.xunlei.com/s/VOY6VxoeeebiD_D7L6XEZ-aSA1?pwd=gtqt#
 
@@ -51,6 +51,10 @@
 #### 《窒爱（SUFFOCATE）》v1.0.1 中文版（生存恐怖游戏）
 
 夸克：https://pan.quark.cn/s/1981581c937a
+
+#### 《终天教团（Shuten Order）》v1.0.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fa20bd28f40c
 
 #### 《怪物圣所（Monster Sanctuary）》v2.1.0.35 中文版
 
@@ -83,6 +87,12 @@
 ---
 
 ## 最近更新
+
+#### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1023.1614 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a507e892f30a
+
+迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
 
 #### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
 
@@ -309,12 +319,6 @@
 夸克：https://pan.quark.cn/s/a8016e2149c5
 
 迅雷：https://pan.xunlei.com/s/VNoGSO4FQkxnHiGPS-X13LkSA1?pwd=5j2h#
-
-#### 《对马岛之魂：导演剪辑版》v1053.7.0809.1937 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/a507e892f30a
-
-迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
 
 #### 《真三国无双 起源（Dynasty Warriors Origins）》v1.0.0.7 中文配音版
 
