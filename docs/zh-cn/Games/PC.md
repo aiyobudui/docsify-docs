@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/fa20bd28f40c
 
+#### 《麦迪逊（MADiSON）》v2.2.2 全DLC 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/0f9529aadf9f
+
 #### 《怪物圣所（Monster Sanctuary）》v2.1.0.35 中文版
 
 夸克：https://pan.quark.cn/s/31bfe643d154
@@ -97,6 +101,10 @@
 #### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
 
 夸克：https://pan.quark.cn/s/b2330660a4a8
+
+#### 《PEAK》v1.34.a 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
 
 #### 《死亡重启（Dead Reset）》v1.0.4 中文版（恐怖游戏）
 
@@ -513,10 +521,6 @@
 #### 《合金装备5：幻痛（Metal Gear Solid V The Phantom Pain）》v1.15 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/783c4ed9f794
-
-#### 《PEAK》v1.33.a 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
 
 #### 《人渣（SCUM）豪华版》v1.1.0.2 全DLC 中文 联机版
 

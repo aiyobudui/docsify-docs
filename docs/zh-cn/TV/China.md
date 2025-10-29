@@ -1862,3 +1862,7 @@
 #### 《平凡的世界》（2015）1080P 高码 56集全（附有声书＋电子书）
 
 夸克：https://pan.quark.cn/s/eea58dc16fb7
+
+#### 《过把瘾》（1994）8集全
+
+夸克：https://pan.quark.cn/s/abcdcb8584d5

@@ -139,6 +139,10 @@
 
 夸克：https://pan.quark.cn/s/587ba6452488
 
+#### 《神墓 系列》（2025）周五 更新中..
+
+夸克：https://pan.quark.cn/s/e7383dcab688
+
 ---
 
 ## 周六
