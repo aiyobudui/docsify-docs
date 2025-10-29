@@ -56,6 +56,18 @@
 
 夸克：https://pan.quark.cn/s/fa20bd28f40c
 
+#### 《渊域（Beneath）》v0.9920f 全DLC 中文版（射击恐怖游戏）
+
+夸克：https://pan.quark.cn/s/060c725787e5
+
+#### 《猫还在逃吗？（Still It Runs）》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/72701e38b1cf
+
+#### 《驯牌师（Decktamer）》v1.0.21 中文版
+
+夸克：https://pan.quark.cn/s/45df40302c97
+
 #### 《麦迪逊（MADiSON）》v2.2.2 全DLC 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/0f9529aadf9f
@@ -98,6 +110,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
 
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.29139 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《方块奥德赛（Cubic Odyssey）》v1.1.2.1 中文 联机版（开放世界宇宙沙盒）
+
+夸克：https://pan.quark.cn/s/0261d52ba02d
+
+#### 《吸血鬼幸存者（Vampire Survivors）》v1.14.104 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e5f5a356a959
+
 #### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
 
 夸克：https://pan.quark.cn/s/b2330660a4a8
@@ -134,6 +158,10 @@
 
 夸克：https://pan.quark.cn/s/3e63ef024498
 
+---
+
+## 顶置游戏
+
 #### 《幻兽帕鲁（Palworld）》v0.6.8.81654 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
@@ -150,10 +178,6 @@
 
 夸克：https://pan.quark.cn/s/165489cfa06c
 
----
-
-## 顶置游戏
-
 #### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bdfdcea387f0
@@ -169,10 +193,6 @@
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.4 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.28891 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《失落之魂（Lost Soul Aside）》v1.011 全DLC 中文版
 
@@ -1789,10 +1809,6 @@
 #### 《银河破裂者（The Riftbreaker）》v1101.732 全DLC 中文 联机版（新增DLC）
 
 夸克：https://pan.quark.cn/s/25e9433a5b5c
-
-#### 《方块奥德赛（Cubic Odyssey）》v1.0.3.4 中文 联机版（开发世界宇宙沙盒）
-
-夸克：https://pan.quark.cn/s/0261d52ba02d
 
 #### 《贪婪大地（Greedland）》v1.0.02 中文版
 
@@ -5118,10 +5134,6 @@
 夸克：https://pan.quark.cn/s/258aebde0e3e
 
 迅雷：https://pan.xunlei.com/s/VO2irGnllfdwELjuO1K-IxNZA1?pwd=fie2#
-
-#### 《吸血鬼幸存者（Vampire Survivors）》v1.13.109a 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e5f5a356a959
 
 #### 《修仙家族模拟器（Immortal Family）》v1.3.0 中文版
 
@@ -8763,7 +8775,7 @@
 
 夸克：https://pan.quark.cn/s/586e97de802d
 
-#### 《空洞骑士(Hollow Knight)》v1.5.78.11833 全DLC 中文 联机版
+#### 《空洞骑士（Hollow Knight）》v1.5.78.11833 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/b33b8a04f68b
 
