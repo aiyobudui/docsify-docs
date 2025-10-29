@@ -188,10 +188,6 @@
 
 夸克：https://pan.quark.cn/s/e53b0330c930
 
-#### 《gogh：虚拟形象与专注（gogh Focus with Your Avatar）》v2.2.1 中文版
-
-夸克：https://pan.quark.cn/s/3e63ef024498
-
 ---
 
 ## 顶置游戏
@@ -393,6 +389,10 @@
 ---
 
 ## 已有游戏
+
+#### 《gogh：虚拟形象与专注（gogh Focus with Your Avatar）》v2.2.1 中文版
+
+夸克：https://pan.quark.cn/s/3e63ef024498
 
 #### 《无人深空（No Man's Sky）》v6.11 全DLC 中文 联机版
 
