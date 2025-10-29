@@ -56,6 +56,14 @@
 
 夸克：https://pan.quark.cn/s/fa20bd28f40c
 
+#### 《伊苏9：怪人之夜（Ys IX Monstrum Nox）豪华版》v1.1.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0626602d9725
+
+#### 《刀剑神域：夺命凶弹（Sword Art Online Fatal Bullet）完整版》v1.7.0 全DLC 中文版（win11无法运行）
+
+夸克：https://pan.quark.cn/s/1e0075299eec
+
 #### 《渊域（Beneath）》v0.9920f 全DLC 中文版（射击恐怖游戏）
 
 夸克：https://pan.quark.cn/s/060c725787e5
@@ -110,9 +118,35 @@
 
 迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
 
+#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/aa4673559fef
+
+#### 《刀剑江湖路（Path of Kung Fu）豪华版》v1.0.1.3 中文版
+
+夸克：https://pan.quark.cn/s/53ac0e97ba27
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(86) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
+
+#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.52475.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51201cccd0db
+
+#### 《突击：第二次世界大战（RAID World War II）特别版》v25.03 全DLC 中文 联机版（突袭二战）
+
+夸克：https://pan.quark.cn/s/9fa852ffb611
+
 #### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.29139 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《最远的边陲（Farthest Frontier）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/e580cf5915b4
 
 #### 《方块奥德赛（Cubic Odyssey）》v1.1.2.1 中文 联机版（开放世界宇宙沙盒）
 
@@ -1186,10 +1220,6 @@
 
 夸克：https://pan.quark.cn/s/c7b9e59e1150
 
-#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.49472 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
-
 #### 《雨世界（Rain World）豪华版》v1.11.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/929f0d8cdd2b
@@ -1279,10 +1309,6 @@
 #### 《僵尸世界大战：劫后余生（World War Z Aftermath）豪华版》Build.19333239 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bb9aa80fd6eb
-
-#### 《空之轨迹 the 1st （Trails in the Sky 1st Chapter）重制版》v1.05 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/aa4673559fef
 
 #### 《优米雅的炼金工房 ～追忆之炼金术士与幻创之地～》v1.5.1 全DLC 中文版
 
@@ -1505,12 +1531,6 @@
 #### 《东方幕华祭 永夜篇（Touhou Makuka Sai ~ Fantastic Danmaku Festival Part III）》v1.0 中文版
 
 夸克：https://pan.quark.cn/s/5a8a7ef1c859
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(84) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《鼠托邦（Ratopia）》v1.0.0520 中文版（策略生存建设）
 
@@ -2432,10 +2452,6 @@
 
 夸克：https://pan.quark.cn/s/928967e35f84
 
-#### 《最远的边陲（Farthest Frontier）》v1.0.0p6 中文版
-
-夸克：https://pan.quark.cn/s/e580cf5915b4
-
 #### 《赛菲莉娅（Sephiria）》v0.8.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/c2d1f77aaf7f
@@ -2956,10 +2972,6 @@
 
 夸克：https://pan.quark.cn/s/4e89855b4d77
 
-#### 《突击：第二次世界大战（RAID World War II）特别版》v25.02 全DLC 中文 联机版（突袭二战）
-
-夸克：https://pan.quark.cn/s/9fa852ffb611
-
 #### 《烤肉串模拟器（Kebab Chefs! Restaurant Simulator）》v0.5 中文 联机版
 
 夸克：https://pan.quark.cn/s/780e085dd9de
@@ -3451,10 +3463,6 @@
 #### 《残暴约翰2（BRUTAL JOHN 2）》v1.1 中文版（搞怪射击游戏）
 
 夸克：https://pan.quark.cn/s/717bc3b79e2b
-
-#### 《刀剑江湖路（Path of Kung Fu）》v1.0.1.2 中文版
-
-夸克：https://pan.quark.cn/s/53ac0e97ba27
 
 #### 《装机模拟器2（PC Building Simulator 2）》v1.13.05 中文版
 
