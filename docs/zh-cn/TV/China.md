@@ -31,9 +31,9 @@
 
 夸克：https://pan.quark.cn/s/de9349d3262e
 
-#### 《入青云》（2025）4K 36集更新中..
+#### 《入青云》（2025）4K 60帧 36集全
 
-夸克：https://pan.quark.cn/s/1a6c234973a6
+夸克：https://pan.quark.cn/s/59da1a22f464
 
 迅雷：https://pan.xunlei.com/s/VObNle_owdSKcuxmDQFJBylhA1?pwd=nhmy#
 

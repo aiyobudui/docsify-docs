@@ -74,9 +74,21 @@
 
 迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
 
+#### 《十字军之王3（Crusader Kings III）》v1.18.0.1 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/ba0201495df1
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46561 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《云族裔（inZOI）》v20251030.8384.W 中文版（韩版模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.0.33 中文版（附一堆MOD）
 
@@ -458,6 +470,22 @@
 
 夸克：https://pan.quark.cn/s/2711a77ec608
 
+#### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7e87c85f9a72
+
+#### 《负熵幸存者（Entropy Survivors）》v1.6.0.25226 中文 联机版
+
+夸克：https://pan.quark.cn/s/fd723b7c2dc5
+
+#### 《猫好货坏（Order13）》v1.1 中文版
+
+夸克：https://pan.quark.cn/s/081df609646f
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.02 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
+
 #### 《救赎少女（Maid of Salvation）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/910fae026a9a
@@ -521,26 +549,6 @@
 #### 《铁甲少女（FULL METAL SCHOOLGIRL）》v2025.10.23 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/2af9f0381c2a
-
-#### 《枪火重生（Gunfire Reborn）》v2025.10.23 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/7e87c85f9a72
-
-#### 《负熵幸存者（Entropy Survivors）》v1.6.0.25226 中文 联机版
-
-夸克：https://pan.quark.cn/s/fd723b7c2dc5
-
-#### 《猫好货坏（Order13）》v1.1 中文版
-
-夸克：https://pan.quark.cn/s/081df609646f
-
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.02 中文 联机版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
-
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46047 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
 
 #### 《恐惧杀手（Painkiller）豪华版》v224001 中文版
 
@@ -2134,10 +2142,6 @@
 
 夸克：https://pan.quark.cn/s/f974a596610e
 
-#### 《十字军之王3（Crusader Kings III）》v1.17.0 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/ba0201495df1
-
 #### 《雾锁王国（Enshrouded）》v729115 中文 联机版
 
 夸克：https://pan.quark.cn/s/cb96556f07cd
@@ -2351,10 +2355,6 @@
 #### 《巨击大乱斗（GigaBash）》v1.6.6 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fa935184f080
-
-#### 《云族裔（inZOI）》v20250828.7048.W 中文版（韩版模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
 
 #### 《万物皆可赛车（WHAT THE CAR）》v5.11.0 中文版（休闲小游戏）
 
