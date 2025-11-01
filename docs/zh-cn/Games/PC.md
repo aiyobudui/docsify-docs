@@ -86,7 +86,7 @@
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
 
-#### 《云族裔（inZOI）》v20251030.8384.W 中文版（韩版模拟人生）
+#### 《云族裔（inZOI）》v20251030.8384.W 中文版（韩国模拟人生）
 
 夸克：https://pan.quark.cn/s/8458e4ca4a38
 
@@ -101,16 +101,6 @@
 #### 《动物栏：桌面牧场（Tiny Pasture）》v1.7.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/5fba8ad9a5ea
-
-#### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1023.1614 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a507e892f30a
-
-迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
-
-#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/aa4673559fef
 
 ---
 
@@ -127,6 +117,16 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1023.1614 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a507e892f30a
+
+迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
+
+#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/aa4673559fef
 
 #### 《死亡岛2（Dead Island 2）黄金版》v7.0.0.1243375 全DLC 联机版
 
