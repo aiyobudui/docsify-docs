@@ -60,7 +60,7 @@
 
 夸克：https://pan.quark.cn/s/31c75e066797
 
-#### 《小小梦魇3 Little Nightmares III》v1.0.2 NS整合 中文版
+#### 《小小梦魇3 Little Nightmares III》v1.0.3 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/614a0eba58bc
 

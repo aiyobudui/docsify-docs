@@ -48,69 +48,47 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《窒爱（SUFFOCATE）》v1.0.1 中文版（生存恐怖游戏）
+#### 《天命重启：心跳的抉择（Refate Echoes of Desire）》v2025.10.29 中文版（真人互动影游）
 
-夸克：https://pan.quark.cn/s/1981581c937a
+夸克：https://pan.quark.cn/s/9e220e9554d5
 
-#### 《终天教团（Shuten Order）》v1.0.2 全DLC 中文版
+#### 《密室逃脱模拟器2（Escape Simulator 2）》v16651r 中文版
 
-夸克：https://pan.quark.cn/s/fa20bd28f40c
+夸克：https://pan.quark.cn/s/7cfd55cbc9c2
 
-#### 《伊苏9：怪人之夜（Ys IX Monstrum Nox）豪华版》v1.1.4 全DLC 中文版
+#### 《我的梦想卧室（My dream setup）完整版》v2025.11.1 全DLC 中文版（建造游戏）
 
-夸克：https://pan.quark.cn/s/0626602d9725
+夸克：https://pan.quark.cn/s/1049420c2289
 
-#### 《刀剑神域：夺命凶弹（Sword Art Online Fatal Bullet）完整版》v1.7.0 全DLC 中文版（win11无法运行）
+#### 《编程农场（The Farmer Was Replaced）》Build.20588319 中文版（Python编程练习游戏）
 
-夸克：https://pan.quark.cn/s/1e0075299eec
-
-#### 《渊域（Beneath）》v0.9920f 全DLC 中文版（射击恐怖游戏）
-
-夸克：https://pan.quark.cn/s/060c725787e5
-
-#### 《猫还在逃吗？（Still It Runs）》v1.0.2 中文版
-
-夸克：https://pan.quark.cn/s/72701e38b1cf
-
-#### 《驯牌师（Decktamer）》v1.0.21 中文版
-
-夸克：https://pan.quark.cn/s/45df40302c97
-
-#### 《麦迪逊（MADiSON）》v2.2.2 全DLC 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/0f9529aadf9f
-
-#### 《怪物圣所（Monster Sanctuary）》v2.1.0.35 中文版
-
-夸克：https://pan.quark.cn/s/31bfe643d154
-
-#### 《迷魅狩猎（MIMESIS）》v0.2.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/b040c2480c94
-
-#### 《房车还在那里（RV There Yet）》v1.0.14337 英文 联机版
-
-夸克：https://pan.quark.cn/s/39aa2a828815
-
-#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.3.0 中文版
-
-夸克：https://pan.quark.cn/s/9baad4a27102
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v2025.10.23 中文版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
-
-#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.1.0 中文版
-
-夸克：https://pan.quark.cn/s/e47e913a8da7
-
-#### 《巫师与学徒（Arcana Academy）》v2025.10.27 中文版（卡牌游戏）
-
-夸克：https://pan.quark.cn/s/7665dfdd9b04
+夸克：https://pan.quark.cn/s/d9330507c76f
 
 ---
 
 ## 最近更新
+
+#### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6946847 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9df1078ca763
+
+迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
+
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.0.33 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.2.1205.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
+#### 《动物栏：桌面牧场（Tiny Pasture）》v1.7.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5fba8ad9a5ea
 
 #### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1023.1614 全DLC 中文版
 
@@ -121,72 +99,6 @@
 #### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/aa4673559fef
-
-#### 《刀剑江湖路（Path of Kung Fu）豪华版》v1.0.1.3 中文版
-
-夸克：https://pan.quark.cn/s/53ac0e97ba27
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(86) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
-
-#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.52475.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
-
-#### 《突击：第二次世界大战（RAID World War II）特别版》v25.03 全DLC 中文 联机版（突袭二战）
-
-夸克：https://pan.quark.cn/s/9fa852ffb611
-
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.29139 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
-
-#### 《最远的边陲（Farthest Frontier）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/e580cf5915b4
-
-#### 《方块奥德赛（Cubic Odyssey）》v1.1.2.1 中文 联机版（开放世界宇宙沙盒）
-
-夸克：https://pan.quark.cn/s/0261d52ba02d
-
-#### 《吸血鬼幸存者（Vampire Survivors）》v1.14.104 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e5f5a356a959
-
-#### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
-
-夸克：https://pan.quark.cn/s/b2330660a4a8
-
-#### 《PEAK》v1.34.a 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
-
-#### 《死亡重启（Dead Reset）》v1.0.4 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/db29fa67fa52
-
-#### 《勇者斗恶龙3 HD-2D 重制版（DRAGON QUEST III HD 2D Remake）》v1.2.1.0 中文版
-
-夸克：https://pan.quark.cn/s/7bec59cb28a0
-
-#### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.0-3 中文版（更新噩梦模式）
-
-夸克：https://pan.quark.cn/s/54fab26752d3
-
-#### 《魔王的迷宫（Labyrinth Of The Demon King）》v2025.10.27 中文版
-
-夸克：https://pan.quark.cn/s/58fd59b62f59
-
-#### 《狩猎之道（Way of the Hunter）终结版》v1.29 全DLC 中文版（猎人之路）
-
-夸克：https://pan.quark.cn/s/399ba986c9cc
-
-#### 《征服之歌（Songs of Conquest）完全版》v1.7.2 全DLC 中文版（回合制策略）
-
-夸克：https://pan.quark.cn/s/e53b0330c930
 
 ---
 
@@ -259,16 +171,6 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
-
-#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.1 全DLC 中文版（新增DLC）
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-#### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6931813 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9df1078ca763
-
-迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
 
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.24.2 全DLC 中文配音 联机版
 
@@ -390,6 +292,128 @@
 
 ## 已有游戏
 
+#### 《刀剑江湖路（Path of Kung Fu）豪华版》v1.0.1.3 中文版
+
+夸克：https://pan.quark.cn/s/53ac0e97ba27
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(86) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
+
+#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.52475.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51201cccd0db
+
+#### 《突击：第二次世界大战（RAID World War II）特别版》v25.03 全DLC 中文 联机版（突袭二战）
+
+夸克：https://pan.quark.cn/s/9fa852ffb611
+
+#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.29139 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《最远的边陲（Farthest Frontier）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/e580cf5915b4
+
+#### 《方块奥德赛（Cubic Odyssey）》v1.1.2.1 中文 联机版（开放世界宇宙沙盒）
+
+夸克：https://pan.quark.cn/s/0261d52ba02d
+
+#### 《吸血鬼幸存者（Vampire Survivors）》v1.14.104 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e5f5a356a959
+
+#### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
+
+夸克：https://pan.quark.cn/s/b2330660a4a8
+
+#### 《PEAK》v1.34.a 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
+
+#### 《死亡重启（Dead Reset）》v1.0.4 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/db29fa67fa52
+
+#### 《勇者斗恶龙3 HD-2D 重制版（DRAGON QUEST III HD 2D Remake）》v1.2.1.0 中文版
+
+夸克：https://pan.quark.cn/s/7bec59cb28a0
+
+#### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.0-3 中文版（更新噩梦模式）
+
+夸克：https://pan.quark.cn/s/54fab26752d3
+
+#### 《魔王的迷宫（Labyrinth Of The Demon King）》v2025.10.27 中文版
+
+夸克：https://pan.quark.cn/s/58fd59b62f59
+
+#### 《狩猎之道（Way of the Hunter）终结版》v1.29 全DLC 中文版（猎人之路）
+
+夸克：https://pan.quark.cn/s/399ba986c9cc
+
+#### 《征服之歌（Songs of Conquest）完全版》v1.7.2 全DLC 中文版（回合制策略）
+
+夸克：https://pan.quark.cn/s/e53b0330c930
+
+#### 《窒爱（SUFFOCATE）》v1.0.1 中文版（生存恐怖游戏）
+
+夸克：https://pan.quark.cn/s/1981581c937a
+
+#### 《终天教团（Shuten Order）》v1.0.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fa20bd28f40c
+
+#### 《伊苏9：怪人之夜（Ys IX Monstrum Nox）豪华版》v1.1.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0626602d9725
+
+#### 《刀剑神域：夺命凶弹（Sword Art Online Fatal Bullet）完整版》v1.7.0 全DLC 中文版（win11无法运行）
+
+夸克：https://pan.quark.cn/s/1e0075299eec
+
+#### 《渊域（Beneath）》v0.9920f 全DLC 中文版（射击恐怖游戏）
+
+夸克：https://pan.quark.cn/s/060c725787e5
+
+#### 《猫还在逃吗？（Still It Runs）》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/72701e38b1cf
+
+#### 《驯牌师（Decktamer）》v1.0.21 中文版
+
+夸克：https://pan.quark.cn/s/45df40302c97
+
+#### 《麦迪逊（MADiSON）》v2.2.2 全DLC 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/0f9529aadf9f
+
+#### 《怪物圣所（Monster Sanctuary）》v2.1.0.35 中文版
+
+夸克：https://pan.quark.cn/s/31bfe643d154
+
+#### 《迷魅狩猎（MIMESIS）》v0.2.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/b040c2480c94
+
+#### 《房车还在那里（RV There Yet）》v1.0.14337 英文 联机版
+
+夸克：https://pan.quark.cn/s/39aa2a828815
+
+#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.3.0 中文版
+
+夸克：https://pan.quark.cn/s/9baad4a27102
+
+#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.1.0 中文版
+
+夸克：https://pan.quark.cn/s/e47e913a8da7
+
+#### 《巫师与学徒（Arcana Academy）》v2025.10.27 中文版（卡牌游戏）
+
+夸克：https://pan.quark.cn/s/7665dfdd9b04
+
 #### 《gogh：虚拟形象与专注（gogh Focus with Your Avatar）》v2.2.1 中文版
 
 夸克：https://pan.quark.cn/s/3e63ef024498
@@ -397,10 +421,6 @@
 #### 《无人深空（No Man's Sky）》v6.11 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/ebcd2a9f4907
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.0.30 中文版
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《风中行者（Windblown）》v0.7.11 中文 联机版
 
@@ -6140,10 +6160,6 @@
 #### 《拳皇13：全球对决（The King of Fighters XIII Global Match）》v2025.2.20 中文版
 
 夸克：https://pan.quark.cn/s/b3cc48768abe
-
-#### 《动物栏：桌面牧场（Tiny Pasture）》最新 中文版
-
-夸克：https://pan.quark.cn/s/5fba8ad9a5ea
 
 #### 《Farlands》v2025.2.20 中文版（像素建造策略模拟）
 
