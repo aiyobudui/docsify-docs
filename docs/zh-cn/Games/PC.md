@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《分离的温度（Degrees of Separation）》最新 汉化版（2D平台解密）
+
+夸克：https://pan.quark.cn/s/8b50c0ab8520
+
+#### 《恶霸鲁尼：奖学金版（Bully Scholarship Edition）》v1.200 汉化版
+
+夸克：https://pan.quark.cn/s/0804c822043e
+
 #### 《天命重启：心跳的抉择（Refate Echoes of Desire）》v2025.10.29 中文版（真人互动影游）
 
 夸克：https://pan.quark.cn/s/9e220e9554d5
@@ -67,6 +75,20 @@
 ---
 
 ## 最近更新
+
+#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.4.1 中文版
+
+夸克：https://pan.quark.cn/s/9baad4a27102
+
+#### 《R.E.P.O.》v0.2.1 汉化 联机版（REPO）
+
+夸克：https://pan.quark.cn/s/dbc5648e077e
+
+#### 《幻兽帕鲁（Palworld）》v0.6.9.82048 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6946847 全DLC 中文 联机版
 
@@ -105,12 +127,6 @@
 ---
 
 ## 顶置游戏
-
-#### 《幻兽帕鲁（Palworld）》v0.6.8.81654 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《小小梦魇3（Little Nightmares 3）》v2025.10.17 全DLC 中文 联机版（附前2部 恐怖解密）
 
@@ -413,10 +429,6 @@
 #### 《房车还在那里（RV There Yet）》v1.0.14337 英文 联机版
 
 夸克：https://pan.quark.cn/s/39aa2a828815
-
-#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.3.0 中文版
-
-夸克：https://pan.quark.cn/s/9baad4a27102
 
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.1.0 中文版
 
@@ -2683,10 +2695,6 @@
 #### 《TCG卡牌商店模拟器（TCG Card Shop Simulator）》v0.60.1 中文版
 
 夸克：https://pan.quark.cn/s/15d5e510ec67
-
-#### 《R.E.P.O.》v0.2.1 汉化 联机版（REPO）
-
-夸克：https://pan.quark.cn/s/dbc5648e077e
 
 #### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v889.19 中文版（GTA5增强版）
 
