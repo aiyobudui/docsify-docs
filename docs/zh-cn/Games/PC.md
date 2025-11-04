@@ -48,6 +48,26 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《石头模拟器（Stone Simulator）》v1.1.0.7 中文版
+
+夸克：https://pan.quark.cn/s/51c7153cf91c
+
+#### 《遗产（The Legacy）》v0.5150 中文 联机版（合作生存恐怖）
+
+夸克：https://pan.quark.cn/s/a9190786dc22
+
+#### 《江湖录（JIANGHU CHRONICLES）》v0.9.2.3 中文版（武侠模拟经营）
+
+夸克：https://pan.quark.cn/s/d1346a2b5bb0
+
+#### 《酒馆带老板（Tavern Keeper）》v0.68.0 中文版
+
+夸克：https://pan.quark.cn/s/4357458be5f6
+
+#### 《White Knuckle》vb0.51f 汉化版（又名？白色关节 赤手求升）
+
+夸克：https://pan.quark.cn/s/7971740dee0d
+
 #### 《Dispatch 豪华版》v1.0.15330 全DLC 中文版（超级英雄职场喜剧游戏）
 
 夸克：https://pan.quark.cn/s/afd55c48d634
@@ -68,23 +88,51 @@
 
 ## 最近更新
 
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.3.1217.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
+#### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/3a5af4f32c61
+
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.4.1 中文版
 
 夸克：https://pan.quark.cn/s/9baad4a27102
 
-#### 《R.E.P.O.》v0.2.1 汉化 联机版（REPO）
+#### 《永恒天空（Forever Skies）豪华版》v1.1.0 全DLC 中文 联机版
 
-夸克：https://pan.quark.cn/s/dbc5648e077e
+夸克：https://pan.quark.cn/s/13bbd841c5dd
+
+#### 《小小世界：原野求生（Smalland Survive the Wilds）》v2.1.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/601e230dca7c
+
+迅雷：https://pan.xunlei.com/s/VNxmA-19BxrvkoJ4erC5p2lcA1?pwd=fr7n#
+
+#### 《异星工厂（Factorio）》v2.0.72 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/abf35a685935
 
 #### 《沙丘：帝国（Dune：Imperium）》v3.3.1 全DLC 中文 联机版（桌游）
 
 夸克：https://pan.quark.cn/s/c021a2b6f46a
+
+#### 《微软模拟飞行2020（Microsoft Flight Simulator 2020）》v1.39.9.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/fb7b018a7a5d
+
+迅雷：https://pan.xunlei.com/s/VNyvFGWShGu_CGUmL_VMIZtBA1?pwd=zynj#
 
 #### 《幻兽帕鲁（Palworld）》v0.6.9.82048 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《R.E.P.O.》v0.3.0 汉化 联机版（REPO）
+
+夸克：https://pan.quark.cn/s/dbc5648e077e
 
 #### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6946847 全DLC 中文 联机版
 
@@ -111,10 +159,6 @@
 #### 《逃离鸭科夫（Escape From Duckov）》v1.0.33 中文版（附一堆MOD）
 
 夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.2.1205.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
 
 #### 《动物栏：桌面牧场（Tiny Pasture）》v1.7.1 全DLC 中文版
 
@@ -195,10 +239,6 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
-
-#### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.24.2 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/3a5af4f32c61
 
 #### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179243 全DLC 中文版
 
@@ -656,12 +696,6 @@
 
 夸克：https://pan.quark.cn/s/f7a7740b9c92
 
-#### 《小小世界：原野求生（Smalland Survive the Wilds）》v2.0.4 中文 联机版
-
-夸克：https://pan.quark.cn/s/601e230dca7c
-
-迅雷：https://pan.xunlei.com/s/VNxmA-19BxrvkoJ4erC5p2lcA1?pwd=fr7n#
-
 #### 《狭间骑士（Knights in Tight Spaces）典藏版》v1.2.19667 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f3140bb7aff0
@@ -955,10 +989,6 @@
 #### 《精神城市：洛菲会议（Spirit City：Lofi Sessions）》v2.1.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e34562091a8d
-
-#### 《异星工厂（Factorio）》v2.0.69 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/abf35a685935
 
 #### 《恐鬼症（Phasmophobia）》v0.14.2.0 中文 联机版
 
@@ -2835,10 +2865,6 @@
 #### 《传说酒馆（Ale&Tale Tavern）》v1.5.10 中文 联机版
 
 夸克：https://pan.quark.cn/s/4959a53d6393
-
-#### 《永恒天空（Forever Skies）》v1.0.3.40792 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/13bbd841c5dd
 
 #### 《三国志汉末霸业（Three Kingdoms The Last Warlord）》v1.0.6.4050 全DLC 豪华中文版
 
@@ -9458,12 +9484,6 @@
 #### 《小兵步枪》最新 中文联机版
 
 夸克：https://pan.quark.cn/s/9a978ca530a3
-
-#### 《微软模拟飞行2020（Microsoft Flight Simulator 2020）》v1.38.2.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/fb7b018a7a5d
-
-迅雷：https://pan.xunlei.com/s/VNyvFGWShGu_CGUmL_VMIZtBA1?pwd=zynj#
 
 #### 《漫野奇谭》最新 全DLC 豪华中文版
 
