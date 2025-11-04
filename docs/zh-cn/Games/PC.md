@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《Dispatch 豪华版》v1.0.15330 全DLC 中文版（超级英雄职场喜剧游戏）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
+
 #### 《尘埃拉力赛2.0（DiRT Rally 2.0）年度版》v1.18 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/b746d548645c
@@ -60,22 +64,6 @@
 
 夸克：https://pan.quark.cn/s/0804c822043e
 
-#### 《天命重启：心跳的抉择（Refate Echoes of Desire）》v2025.10.29 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/9e220e9554d5
-
-#### 《密室逃脱模拟器2（Escape Simulator 2）》v16651r 中文版
-
-夸克：https://pan.quark.cn/s/7cfd55cbc9c2
-
-#### 《我的梦想卧室（My dream setup）完整版》v2025.11.1 全DLC 中文版（建造游戏）
-
-夸克：https://pan.quark.cn/s/1049420c2289
-
-#### 《编程农场（The Farmer Was Replaced）》Build.20588319 中文版（Python编程练习游戏）
-
-夸克：https://pan.quark.cn/s/d9330507c76f
-
 ---
 
 ## 最近更新
@@ -87,6 +75,10 @@
 #### 《R.E.P.O.》v0.2.1 汉化 联机版（REPO）
 
 夸克：https://pan.quark.cn/s/dbc5648e077e
+
+#### 《沙丘：帝国（Dune：Imperium）》v3.3.1 全DLC 中文 联机版（桌游）
+
+夸克：https://pan.quark.cn/s/c021a2b6f46a
 
 #### 《幻兽帕鲁（Palworld）》v0.6.9.82048 中文 联机版
 
@@ -323,6 +315,18 @@
 ---
 
 ## 已有游戏
+
+#### 《密室逃脱模拟器2（Escape Simulator 2）》v16651r 中文版
+
+夸克：https://pan.quark.cn/s/7cfd55cbc9c2
+
+#### 《我的梦想卧室（My dream setup）完整版》v2025.11.1 全DLC 中文版（建造游戏）
+
+夸克：https://pan.quark.cn/s/1049420c2289
+
+#### 《编程农场（The Farmer Was Replaced）》Build.20588319 中文版（Python编程练习游戏）
+
+夸克：https://pan.quark.cn/s/d9330507c76f
 
 #### 《刀剑江湖路（Path of Kung Fu）豪华版》v1.0.1.3 中文版
 
@@ -3955,10 +3959,6 @@
 #### 《天命奇御二（Fate Seeker II）》v2.0.3 中文版
 
 夸克：https://pan.quark.cn/s/6f1209a51d8b
-
-#### 《沙丘：帝国（Dune：Imperium）》v3.2.0.1310 全DLC 中文 联机版（桌游）
-
-夸克：https://pan.quark.cn/s/c021a2b6f46a
 
 #### 《桌宠屋（Desk Paws）》v2025.6.24 中文版
 
@@ -10106,6 +10106,10 @@
 ---
 ## 互动影游
 > 靠前的是新添加的
+
+#### 《天命重启：心跳的抉择（Refate Echoes of Desire）》v2025.10.29 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/9e220e9554d5
 
 #### 《背后3：阴戏（Back3 Spooky）》v2025.9.30 中文版（真人互动影游 冒险恐怖）
 
