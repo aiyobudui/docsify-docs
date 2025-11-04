@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《尘埃拉力赛2.0（DiRT Rally 2.0）年度版》v1.18 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/b746d548645c
+
 #### 《分离的温度（Degrees of Separation）》最新 汉化版（2D平台解密）
 
 夸克：https://pan.quark.cn/s/8b50c0ab8520
