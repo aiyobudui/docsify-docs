@@ -48,6 +48,26 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《家庭派对（House Party）设计师版》v1.4.2.13206g 全DLC 中文版（喜剧冒险）
+
+夸克：https://pan.quark.cn/s/930bcd8a99e6
+
+#### 《大脚怪模拟（Bigfoot Life）》v1.0.0 中文版（生存建造）
+
+夸克：https://pan.quark.cn/s/a314aa7c7b95
+
+#### 《古老传说：多米纳斯（Tales of Old Dominus）》v1.0-261025 中文版（RPG开放世界冒险）
+
+夸克：https://pan.quark.cn/s/da3561e65211
+
+#### 《Devil Jam》v1.0.22.1-0 中文版（音乐驱动战斗）
+
+夸克：https://pan.quark.cn/s/b68aba71ba67
+
+#### 《真菌朋克（Mycopunk）》v1.5 中文 联机版
+
+夸克：https://pan.quark.cn/s/3e8a106b2cea
+
 #### 《石头模拟器（Stone Simulator）》v1.1.0.7 中文版
 
 夸克：https://pan.quark.cn/s/51c7153cf91c
@@ -100,9 +120,43 @@
 
 夸克：https://pan.quark.cn/s/9baad4a27102
 
+#### 《无尽星火 (Star Fire Eternal Cycle) 》v1.27.360 中文版（横板动作肉鸽）
+
+夸克：https://pan.quark.cn/s/93e9084f28be
+
+#### 《不朽猎手（Immortal Hunters）》v0.1.1706 中文 联机版
+
+夸克：https://pan.quark.cn/s/155d22153703
+
+#### 《九日（Nine Sols）典藏版》v202511032357 中文版（2D平台动作冒险）
+
+夸克：https://pan.quark.cn/s/7ed87f26d10f
+
+迅雷：https://pan.xunlei.com/s/VNzD0rofXLpKsVRD2s80vHc8A1?pwd=ztsm#
+
+#### 《太太！我喜欢你！（Sensei I Like You So Much）》v1.0.0.1028 中文版
+
+夸克：https://pan.quark.cn/s/a64a7ae50f98
+
+#### 《墨境（Realm of Ink）》v0.18.04 中文版
+
+夸克：https://pan.quark.cn/s/9c8494132b6e
+
+迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
+
+#### 《群星（Stellaris）终极版》v4.1.7 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e812eb1562dd
+
+迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
+
 #### 《永恒天空（Forever Skies）豪华版》v1.1.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/13bbd841c5dd
+
+#### 《CONERU -DIMENSION GIRL-》v2025.10.24 中文版（可爱捏次元少女科涅鲁2D动作）
+
+夸克：https://pan.quark.cn/s/75dd71d8a052
 
 #### 《小小世界：原野求生（Smalland Survive the Wilds）》v2.1.1 中文 联机版
 
@@ -139,30 +193,6 @@
 夸克：https://pan.quark.cn/s/9df1078ca763
 
 迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
-
-#### 《十字军之王3（Crusader Kings III）》v1.18.0.1 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/ba0201495df1
-
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46561 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
-
-#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-#### 《云族裔（inZOI）》v20251030.8384.W 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.0.33 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《动物栏：桌面牧场（Tiny Pasture）》v1.7.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5fba8ad9a5ea
 
 ---
 
@@ -352,9 +382,33 @@
 
 夸克：https://pan.quark.cn/s/b433499adaec
 
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.4.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《云族裔（inZOI）》v20251030.8384.W 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
 ---
 
 ## 已有游戏
+
+#### 《十字军之王3（Crusader Kings III）》v1.18.0.1 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/ba0201495df1
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46561 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.0.33 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《动物栏：桌面牧场（Tiny Pasture）》v1.7.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5fba8ad9a5ea
 
 #### 《密室逃脱模拟器2（Escape Simulator 2）》v16651r 中文版
 
@@ -1031,12 +1085,6 @@
 夸克：https://pan.quark.cn/s/35a07d7183e8
 
 迅雷：https://pan.xunlei.com/s/VNtedJfEj846VJQ5OdDj8k6JA1?pwd=4av2#
-
-#### 《群星（Stellaris）终极版》v4.1.5 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e812eb1562dd
-
-迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
 
 #### 《林间小世界（Tiny Glade）》v1.14.3 全DLC 中文版
 
@@ -1920,10 +1968,6 @@
 
 夸克：https://pan.quark.cn/s/d7781f3765fc
 
-#### 《无尽星火 (Star Fire Eternal Cycle) 》v1.26.323 中文版（横板动作肉鸽）
-
-夸克：https://pan.quark.cn/s/93e9084f28be
-
 #### 《海洋幻想（Sea Fantasy）》v2.2.1 中文版
 
 夸克：https://pan.quark.cn/s/6f60af95df33
@@ -2038,10 +2082,6 @@
 
 夸克：https://pan.quark.cn/s/0364c29c778f
 
-#### 《CONERU -DIMENSION GIRL-》v2025.8.19 中文版（可爱捏次元少女科涅鲁2D动作）
-
-夸克：https://pan.quark.cn/s/75dd71d8a052
-
 #### 《动物收容所2（Animal Shelter 2）》v1.0.32 中文版
 
 夸克：https://pan.quark.cn/s/1057e0a53bfd
@@ -2093,10 +2133,6 @@
 #### 《The Knightling》v1.1.0 全DLC 中文版（开发世界动作冒险）
 
 夸克：https://pan.quark.cn/s/136f2e4abab7
-
-#### 《太太！我喜欢你！（Sensei I Like You So Much）》v1.0.0.0909 中文版
-
-夸克：https://pan.quark.cn/s/a64a7ae50f98
 
 #### 《打造世界（Craft The World）》v1.11.007 中文 联机版（创造世界）
 
@@ -3758,12 +3794,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO31VBDShCArFHmj4VfNHqgYA1?pwd=jnzj#
 
-#### 《墨境（Realm of Ink）》v2025.7.1 中文版
-
-夸克：https://pan.quark.cn/s/9c8494132b6e
-
-迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
-
 #### 《英雄传说 界之轨迹 -告别塞姆利亚-（Kai no Kiseki Farewell O Zemuria）》v1.02 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/f3b6bf1d82b8
@@ -4496,10 +4526,6 @@
 #### 《巴别塔：混乱幸存者（Tower of Babel Survivors Of Chaos）》v1.2.1 中文版
 
 夸克：https://pan.quark.cn/s/a51bec6aa8c5
-
-#### 《不朽猎手（Immortal Hunters）》v0.1.1681 中文 联机版
-
-夸克：https://pan.quark.cn/s/155d22153703
 
 #### 《术士计划2（Project Warlock II）》v1.0.0.0 中文版
 
@@ -6214,12 +6240,6 @@
 #### 《波比的游戏时间（Poppy Playtime）1~4章》v2025.2.19 汉化中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/958456185407
-
-#### 《九日（Nine Sols）》v2025.2.18 中文版
-
-夸克：https://pan.quark.cn/s/7ed87f26d10f
-
-迅雷：https://pan.xunlei.com/s/VNzD0rofXLpKsVRD2s80vHc8A1?pwd=ztsm#
 
 #### 《风暴之城（Against the Storm）》v1.7.3R 全DLC 中文版
 
