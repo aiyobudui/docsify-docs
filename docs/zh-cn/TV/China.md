@@ -25,15 +25,23 @@
 
 夸克：https://pan.quark.cn/s/86c0f59d7685
 
+---
+
+## 已完结的...
+
+#### 《金式森林》（2025）4K 国粤配音 25集全
+
+夸克：https://pan.quark.cn/s/eb95fef0f49e
+
+#### 《沉默的荣耀》（2025）4K 39集全
+
+夸克：https://pan.quark.cn/s/de9349d3262e
+
 #### 《命悬一生》（2025）4K 16集全
 
 夸克：https://pan.quark.cn/s/5416750bda9f
 
 迅雷：https://pan.xunlei.com/s/VOcBRmlavV5oQLSurSj9i2k3A1?pwd=fq6p#
-
-#### 《沉默的荣耀》（2025）4K 39集全
-
-夸克：https://pan.quark.cn/s/de9349d3262e
 
 #### 《入青云》（2025）4K 60帧 36集全
 
@@ -85,11 +93,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNptM7zbvqCRievXn7pFiJS9A1?pwd=iw9a#
 
----
-
-## 已完结的...
-
-#### 《二龙湖村暖花开2》 (2025）第二季 4K 60帧 28集全
+#### 《二龙湖村暖花开2》（2025）第二季 4K 60帧 28集全
 
 夸克：https://pan.quark.cn/s/4b13b8f8ab52
 
