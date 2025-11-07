@@ -52,6 +52,30 @@
 
 夸克：https://pan.quark.cn/s/fad1536fd55f
 
+#### 《料理手推车（Food Wagon）》v2025.11.7 中文版
+
+夸克：https://pan.quark.cn/s/d38b8973d45d
+
+#### 《特斯拉之谜（MAELSTROM LEGACY The Tesla Mystery）》v1.0.0 中文版（冒险解密）
+
+夸克：https://pan.quark.cn/s/4197babe4851
+
+#### 《诺德要塞（Nordhold）》v1.1.05 中文版
+
+夸克：https://pan.quark.cn/s/7536c639eaba
+
+#### 《遗物守护者（Relic Guardian）》v1.1.1 中文版
+
+夸克：https://pan.quark.cn/s/44a765e35048
+
+#### 《63日（63 Days）》v11237 中文 联机版
+
+夸克：https://pan.quark.cn/s/4a4c2e431384
+
+#### 《Shashingo Learn Japanese with Photography》Build.18608528 中文版
+
+夸克：https://pan.quark.cn/s/94dc9929293f
+
 #### 《网络工程师模拟器（ServiceIT You can do IT）》v1.0.6 中文版
 
 夸克：https://pan.quark.cn/s/a3ef58ff3fdb
@@ -116,13 +140,33 @@
 
 ## 最近更新
 
+#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.18.1.0 中文 联机版（法外狂徒）
+
+夸克：https://pan.quark.cn/s/54c0aaad57e2
+
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.2 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
 
+#### 《失落之魂（Lost Soul Aside）豪华版》v1.012 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/254473ee08f7
+
+#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29242 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
 #### 《逃离鸭科夫（Escape From Duckov）》v1.1.6 中文版（附一堆MOD）
 
 夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《怪物火车2（Monster Train 2）》v1.2.3 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/638c33888d8a
+
+#### 《无人深空（No Man's Sky）》v6.13 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《加勒比传奇（Caribbean Legend）》v1.6.0 全DLC 中文版（开放世界）
 
@@ -243,10 +287,6 @@
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.4 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
-
-#### 《失落之魂（Lost Soul Aside）》v1.011 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/254473ee08f7
 
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.1.380371 全DLC 中文版（心理恐怖游戏）
 
@@ -552,10 +592,6 @@
 
 夸克：https://pan.quark.cn/s/9fa852ffb611
 
-#### 《空洞骑士：丝之歌 （Hollow Knight Silksong）》v1.0.29139 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
-
 #### 《最远的边陲（Farthest Frontier）》v1.0.1 中文版
 
 夸克：https://pan.quark.cn/s/e580cf5915b4
@@ -651,10 +687,6 @@
 #### 《gogh：虚拟形象与专注（gogh Focus with Your Avatar）》v2.2.1 中文版
 
 夸克：https://pan.quark.cn/s/3e63ef024498
-
-#### 《无人深空（No Man's Sky）》v6.11 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《风中行者（Windblown）》v0.7.11 中文 联机版
 
@@ -2226,10 +2258,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNtjbiFKuAnx1itnVSKqYufJA1?pwd=8s4y#
 
-#### 《怪物火车2（Monster Train 2）》v13058 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/638c33888d8a
-
 #### 《为了吾王2（For The King II）》v1.8.8 全DLC 中文 联机版（附第一部）新增DLC
 
 夸克：https://pan.quark.cn/s/745b3dd3f3f1
@@ -2779,10 +2807,6 @@
 #### 《卡尔危机（Acre Crisis）》v1.4.1.HF 中文版
 
 夸克：https://pan.quark.cn/s/0937bdcb2d56
-
-#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.17.0.1 中文 联机版（法外狂徒）
-
-夸克：https://pan.quark.cn/s/54c0aaad57e2
 
 #### 《海洋之剑（Sword of the Sea）》Build.19689281 中文版
 
