@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/fad1536fd55f
 
+#### 《鸡蛋历险记（Egging On）》v0.1.8654 中文版
+
+夸克：https://pan.quark.cn/s/51dcac674332
+
+#### 《炼金学院物语（Brew）》v2025.11.8 中文版（肉鸽射击）
+
+夸克：https://pan.quark.cn/s/4817a257ba9a
+
 #### 《料理手推车（Food Wagon）》v2025.11.7 中文版
 
 夸克：https://pan.quark.cn/s/d38b8973d45d
@@ -59,6 +67,10 @@
 #### 《特斯拉之谜（MAELSTROM LEGACY The Tesla Mystery）》v1.0.0 中文版（冒险解密）
 
 夸克：https://pan.quark.cn/s/4197babe4851
+
+#### 《拆解大师（Deconstruction Simulator）》v8125 中文版
+
+夸克：https://pan.quark.cn/s/15eb94878d1d
 
 #### 《诺德要塞（Nordhold）》v1.1.05 中文版
 
@@ -204,25 +216,15 @@
 
 夸克：https://pan.quark.cn/s/060c725787e5
 
-#### 《杯杯倒满（Feed The Cups）》v0.8.31 中文 联机版
+---
 
-夸克：https://pan.quark.cn/s/fedd9c9a5ad5
+## 顶置游戏
 
-迅雷：https://pan.xunlei.com/s/VO057Y0arOn6-KaL7LUEa8ktA1?pwd=dkw2#
+#### 《小小梦魇3（Little Nightmares 3）》v2025.10.17 全DLC 中文 联机版（附前2部 恐怖解密）
 
-#### 《海洋幻想（Sea Fantasy）》v2.6.3 中文版
+夸克：https://pan.quark.cn/s/23c16824e3ac
 
-夸克：https://pan.quark.cn/s/6f60af95df33
-
-#### 《小小书店（Tiny Bookshop）》v1.0.8 中文版（模拟经营）
-
-夸克：https://pan.quark.cn/s/2c157e143ecc
-
-#### 《东方夜雀食堂（Touhou Mystia's Izakaya）》v4.3.0c 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/326f1b18828c
-
-迅雷：https://pan.xunlei.com/s/VO3Cs9u9pfmsz8T42i9d-WjYA1?pwd=s3xz#
+迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
 #### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.3.1217.0 中文 联机版
 
@@ -235,16 +237,6 @@
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.4.1 中文版
 
 夸克：https://pan.quark.cn/s/9baad4a27102
-
----
-
-## 顶置游戏
-
-#### 《小小梦魇3（Little Nightmares 3）》v2025.10.17 全DLC 中文 联机版（附前2部 恐怖解密）
-
-夸克：https://pan.quark.cn/s/23c16824e3ac
-
-迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
 #### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1023.1614 全DLC 中文版
 
@@ -443,6 +435,26 @@
 ---
 
 ## 已有游戏
+
+#### 《杯杯倒满（Feed The Cups）》v0.8.31 中文 联机版
+
+夸克：https://pan.quark.cn/s/fedd9c9a5ad5
+
+迅雷：https://pan.xunlei.com/s/VO057Y0arOn6-KaL7LUEa8ktA1?pwd=dkw2#
+
+#### 《海洋幻想（Sea Fantasy）》v2.6.3 中文版
+
+夸克：https://pan.quark.cn/s/6f60af95df33
+
+#### 《小小书店（Tiny Bookshop）》v1.0.8 中文版（模拟经营）
+
+夸克：https://pan.quark.cn/s/2c157e143ecc
+
+#### 《东方夜雀食堂（Touhou Mystia's Izakaya）》v4.3.0c 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/326f1b18828c
+
+迅雷：https://pan.xunlei.com/s/VO3Cs9u9pfmsz8T42i9d-WjYA1?pwd=s3xz#
 
 #### 《古老传说：多米纳斯（Tales of Old Dominus）》v1.0-261025 中文版（RPG开放世界冒险）
 

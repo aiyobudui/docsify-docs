@@ -17,11 +17,25 @@
 
 ## 正在更新中的...
 
-#### 《树影迷宫》（2025）4K 18集更新中..
+#### 《唐朝诡事录之长安》（2020-2025）第三季 4K 40集全（附1-2季全）唐朝诡事录3
+
+夸克：https://pan.quark.cn/s/cfa6ddaf8fdd
+
+迅雷：https://pan.xunlei.com/s/VO28_YPqnRf86ylmfm93K1HmA1?pwd=rwi3#
+
+阿里：https://www.aliyundrive.com/s/n9UYbWG8fPb
+
+#### 《新闻女王2》（2023-2025）第二季 4K 国粤双语音轨 25集 更新中..（附第一季）
+
+夸克：https://pan.quark.cn/s/aba8562cc925
+
+迅雷：https://pan.xunlei.com/s/VNlBhJJdwI1_7ISBwOa3RTREA1?pwd=zqpf#
+
+#### 《树影迷宫》（2025）4K 18集全
 
 夸克：https://pan.quark.cn/s/e98fa966bebb
 
-#### 《暗河传（真人版）》（2025）4K 38集更新中...
+#### 《暗河传（真人版）》（2025）4K 38集全
 
 夸克：https://pan.quark.cn/s/86c0f59d7685
 
@@ -71,7 +85,7 @@
 
 #### 《吴邪私家笔记》（2025）4K 18集全
 
-夸克：https://pan.quark.cn/s/545a0a6141d4
+夸克：https://pan.quark.cn/s/b091a21b75bc
 
 #### 《芬芳喜事》（2025）4K 60帧 32集全
 
@@ -107,7 +121,7 @@
 
 #### 《凡人修仙传》（2025）4K 60帧 30集全（杨洋 金晨）真人版
 
-夸克：https://pan.quark.cn/s/523e217da23a
+夸克：https://pan.quark.cn/s/9fa0207dfdd4
 
 迅雷：https://pan.xunlei.com/s/VOa0hSA_8sxik56E81oWtmMqA1?pwd=ssj6#
 
@@ -139,7 +153,7 @@
 
 #### 《利剑玫瑰》（2025）4K 32集全
 
-夸克：https://pan.quark.cn/s/4b4c1aebe05e
+夸克：和谐
 
 迅雷：https://pan.xunlei.com/s/VOXZDWZUL2Rz3D-cbJ0eg9vPA1?pwd=rjv5#
 
@@ -520,12 +534,6 @@
 夸克：https://pan.quark.cn/s/f47b2c5467bf
 
 迅雷：https://pan.xunlei.com/s/VO2T-IkP5n1c4xs8ZtOaQU3JA1?pwd=ewih#
-
-#### 《唐朝诡事录之西行》（2024）4K 40集全（第二季）
-
-夸克：https://pan.quark.cn/s/cfa6ddaf8fdd
-
-迅雷：https://pan.xunlei.com/s/VO28_YPqnRf86ylmfm93K1HmA1?pwd=rwi3#
 
 #### 《长相思》（2024）4K 1-2季全
 
@@ -1035,12 +1043,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNlBhmKG4DfMwnuP9cKq3KicA1?pwd=tmiw#
 
-#### 《新闻女王》（2023）4K 国粤双音轨 26集全
-
-夸克：https://pan.quark.cn/s/aba8562cc925
-
-迅雷：https://pan.xunlei.com/s/VNlBhJJdwI1_7ISBwOa3RTREA1?pwd=zqpf#
-
 #### 《小满生活》（2023）4K 38集全
 
 夸克：https://pan.quark.cn/s/b15691cdf0fb
@@ -1290,14 +1292,6 @@
 夸克：https://pan.quark.cn/s/d88cee72ad22
 
 迅雷：https://pan.xunlei.com/s/VNlCAmOp9AKHC4n00WC7IHJaA1?pwd=e3eh#
-
-#### 《唐朝诡事录》（2022）4K HDR》（高分悬疑剧)
-
-夸克：https://pan.quark.cn/s/5783777ae713
-
-迅雷：https://pan.xunlei.com/s/VNlCThxT4DfMwnuP9cKqI3epA1?pwd=smuy#
-
-阿里：https://www.aliyundrive.com/s/n9UYbWG8fPb
 
 #### 《庆余年》（2019）第一季 4K 46集全 + 特别版 26集
 
