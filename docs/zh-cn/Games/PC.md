@@ -164,6 +164,10 @@
 
 夸克：https://pan.quark.cn/s/254473ee08f7
 
+#### 《龙珠 超宇宙2（DRAGON BALL XENOVERSE 2）特别版》v1.25.01 全DLC 中文 联机版（七龙珠 异战2）
+
+夸克：https://pan.quark.cn/s/ffe1b48f730b
+
 #### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29242 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
@@ -171,6 +175,10 @@
 #### 《逃离鸭科夫（Escape From Duckov）》v1.1.6 中文版（附一堆MOD）
 
 夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《枪匠幸存者（NIMRODS）》v0.8.6a 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2fa399824b3b
 
 #### 《怪物火车2（Monster Train 2）》v1.2.3 全DLC 中文版（附第一部）
 
@@ -3598,10 +3606,6 @@
 
 夸克：https://pan.quark.cn/s/886cae29492e
 
-#### 《NIMRODS：枪匠幸存者（NIMRODS GunCraft Survivo）》v0.8.6a 中文版
-
-夸克：https://pan.quark.cn/s/2fa399824b3b
-
 #### 《轨道连结（Railbound）》v3.06 中文版
 
 夸克：https://pan.quark.cn/s/5910973f25f3
@@ -3767,10 +3771,6 @@
 #### 《蚂蚁帝国（Empire of the Ants）》v1.04.20550 中文版
 
 夸克：https://pan.quark.cn/s/f866243168ef
-
-#### 《龙珠 超宇宙2（DRAGON BALL XENOVERSE 2）》v1.24.01 全DLC 中文 联机版（七龙珠 异战2）
-
-夸克：https://pan.quark.cn/s/ffe1b48f730b
 
 #### 《钻核公司 (Drill Core) 》v1.199.5.7.1 中文版
 
