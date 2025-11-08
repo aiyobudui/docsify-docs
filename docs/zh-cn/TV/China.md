@@ -1299,7 +1299,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNlCNFP_y0a3E5JNm60_4IN7A1?pwd=iiwm#
 
-#### 《雪中悍刀行》（2021）4K 38集全
+#### 《雪中悍刀行》（2021）4K 38集全（附电子书+有声书）
 
 夸克：https://pan.quark.cn/s/a9e40a52ee24
 

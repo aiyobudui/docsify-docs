@@ -13,6 +13,8 @@
 
 ----
 
+
+
 #### 《毛泽东眼中的历史人物》毛泽东的读书笔记 主席眼中的中国历史[m4a音频]
 
 夸克：https://pan.quark.cn/s/3b186e4c9839
@@ -73,10 +75,6 @@
 
 夸克：https://pan.quark.cn/s/72c51136cccf
 
-#### 《小学生优秀作文合集》有声读物 MP3格式
-
-夸克：https://pan.quark.cn/s/f9fab6f7ae45
-
 #### 《丁丁历险记》全25册 漫画 中文版 PDF
 
 夸克：https://pan.quark.cn/s/d891fc121239
@@ -88,6 +86,22 @@
 #### 《米小圈系列最全合集》（幼儿园和小学生学习的优质资源）MP3+MP4
 
 夸克：https://pan.quark.cn/s/9a4ea40a888f
+
+#### 《小学到初中寒假教辅资料大全》
+
+夸克：https://pan.quark.cn/s/1a2480cae8bc
+
+#### 《小学单词全记牢》40课 （mp4）+电子书
+
+夸克：https://pan.quark.cn/s/8b7c420d5a34
+
+#### 《小学生有声作文合集 + 小学生优秀爆笑有声作文》有声读物
+
+夸克：https://pan.quark.cn/s/bf4d3c06b7e6
+
+#### 《小学生有声作文合集 + 小学生优秀爆笑有声作文》有声读物
+
+夸克：https://pan.quark.cn/s/8bf07d9b278e
 
 #### 《世界儿童故事256个》（MP3读物）当代
 
@@ -206,14 +220,6 @@
 #### 《唐诗宋词诵读合集》 MP3格式（唐诗319首、宋词300首）
 
 夸克：https://pan.quark.cn/s/e3a0d6fcc038
-
-#### 《小学到初中寒假教辅资料大全》
-
-夸克：https://pan.quark.cn/s/1a2480cae8bc
-
-#### 《小学单词全记牢》40课 （mp4）+电子书
-
-夸克：https://pan.quark.cn/s/8b7c420d5a34
 
 #### 《中国妖怪志》一部中国妖怪文化的“百科全书”（azw3.epub.mobi格式）
 

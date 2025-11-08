@@ -173,7 +173,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNlSTz25VO9u4b8BblSn2NWeA1?pwd=7xrz#
 
-#### 《牧神记》（2024）4K 26集 周日更新中..
+#### 《牧神记》（2024）4K 周日更新中..
 
 夸克：https://pan.quark.cn/s/817fe07b45ff
 
