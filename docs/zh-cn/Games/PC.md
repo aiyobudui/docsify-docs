@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《死亡娃娃屋（Dollhouse of Dead）》v2025.11.9 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/02c078c36747
+
 #### 《阿尼玛：回忆之门 1+2 重制版（Anima Beyond Fantasy）》v2025.11.9 中文版
 
 夸克：https://pan.quark.cn/s/beb820c220a6
@@ -96,6 +100,10 @@
 
 ## 最近更新
 
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.0c 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
 #### 《杀手 暗杀世界（HITMAN World of Assassination)豪华版》v3.240.3 全DLC 中文版（杀手1 杀手2 杀手3)
 
 夸克：https://pan.quark.cn/s/88d4e323e453
@@ -112,15 +120,35 @@
 
 夸克：https://pan.quark.cn/s/254473ee08f7
 
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.0.125 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《风中行者（Windblown）》v0.7.1.9 中文 联机版
+
+夸克：https://pan.quark.cn/s/d0bc0bde2671
+
+#### 《灵魂面甲（Soulmask）》v0.5.15 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/17b6423c5409
+
 #### 《超英派遣中心（Dispatch）豪华版》v1.0.15787 全DLC 中文版（超级英雄职场喜剧游戏）
 
 夸克：https://pan.quark.cn/s/afd55c48d634
+
+#### 《最远的边陲（Farthest Frontier）》v1.0.4 中文版
+
+夸克：https://pan.quark.cn/s/e580cf5915b4
 
 #### 《恶意不息（No Rest For The Wicked）》v24313 中文版
 
 夸克：https://pan.quark.cn/s/e3c16ceb73f7
 
 迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
+
+#### 《遗产（The Legacy）》v0.5185 中文 联机版（合作生存恐怖）
+
+夸克：https://pan.quark.cn/s/a9190786dc22
 
 #### 《暗黑血统 系列合集（Darksiders）》4部 最新 全DLC 中文版
 
@@ -201,10 +229,6 @@
 #### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bdfdcea387f0
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.2.5 Hotfix 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
@@ -514,10 +538,6 @@
 
 夸克：https://pan.quark.cn/s/51c7153cf91c
 
-#### 《遗产（The Legacy）》v0.5150 中文 联机版（合作生存恐怖）
-
-夸克：https://pan.quark.cn/s/a9190786dc22
-
 #### 《江湖录（JIANGHU CHRONICLES）》v0.9.2.3 中文版（武侠模拟经营）
 
 夸克：https://pan.quark.cn/s/d1346a2b5bb0
@@ -646,10 +666,6 @@
 
 夸克：https://pan.quark.cn/s/9fa852ffb611
 
-#### 《最远的边陲（Farthest Frontier）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/e580cf5915b4
-
 #### 《方块奥德赛（Cubic Odyssey）》v1.1.2.1 中文 联机版（开放世界宇宙沙盒）
 
 夸克：https://pan.quark.cn/s/0261d52ba02d
@@ -741,10 +757,6 @@
 #### 《gogh：虚拟形象与专注（gogh Focus with Your Avatar）》v2.2.1 中文版
 
 夸克：https://pan.quark.cn/s/3e63ef024498
-
-#### 《风中行者（Windblown）》v0.7.11 中文 联机版
-
-夸克：https://pan.quark.cn/s/d0bc0bde2671
 
 #### 《奥术之路（Arcane Path）》v2025.10.24 中文版（卡牌策略）
 
@@ -956,10 +968,6 @@
 
 夸克：https://pan.quark.cn/s/ed99205bc66b
 
-#### 《灵魂面甲（Soulmask）》v0.5.14 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/17b6423c5409
-
 #### 《灵境修仙界（Spirit Realm）》v0.5.7.0.9 中文版
 
 夸克：https://pan.quark.cn/s/f517933cc043
@@ -1007,10 +1015,6 @@
 #### 《最后纪元（Last Epoch）豪华版》v1.3.6 中文版
 
 夸克：https://pan.quark.cn/s/7dc7ceb24cb7
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.0.101 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
 
 #### 《中世纪王朝（Medieval Dynasty）终极版）》v2.4.1.3 全DLC 中文 联机版
 
@@ -8957,7 +8961,7 @@
 
 夸克：https://pan.quark.cn/s/835f260ad17e
 
-#### 《Omori》v1.0.8 官方中文版
+#### 《Omori》v1.0.8 中文版
 
 夸克：https://pan.quark.cn/s/1b67fda7a598
 
