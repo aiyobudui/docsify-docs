@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/02c078c36747
 
+#### 《魂之起源（God Souls）》v1.3.0.9.5.1HF8 中文版（附礼包码）
+
+夸克：https://pan.quark.cn/s/299aa4ff0b1f
+
 #### 《生化女神：末日开端（BIO GODDESS）》v2025.11.10 中文版（射击生存）
 
 夸克：https://pan.quark.cn/s/fb8d4c01870a
