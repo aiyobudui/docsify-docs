@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/02c078c36747
 
+#### 《生化女神：末日开端（BIO GODDESS）》v2025.11.10 中文版（射击生存）
+
+夸克：https://pan.quark.cn/s/fb8d4c01870a
+
+#### 《1998：收费员的故事（1998 The Toll Keeper Story）》V1.0.6 中文版（叙事模拟游戏）
+
+夸克：https://pan.quark.cn/s/e6fff146084f
+
 #### 《魔女祇兵（Majogami）》v2025.11.10 中文版（横屏动作）
 
 夸克：https://pan.quark.cn/s/68d3e578b46a
@@ -115,6 +123,10 @@
 #### 《末日的回声（Echoes of the End）增强版》v2.0.2 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/ac1e0683f780
+
+#### 《雪地奔驰（SnowRunner）周年纪念版》v39.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/86cf9218214f
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.0c 全DLC 中文配音 联机版
 
@@ -9990,10 +10002,6 @@
 #### 《极限竞速：地平线4》v1.477.567 终极版 全DLC 附联机补丁
 
 夸克：https://pan.quark.cn/s/0bf8f9ecb1f4
-
-#### 《雪地奔驰》最新 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/86cf9218214f
 
 #### 《德国长途客车模拟》最新 中文版
 

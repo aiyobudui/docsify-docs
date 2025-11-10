@@ -48,6 +48,10 @@
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
+#### 《少女与战车 梦幻坦克大会战 DX》v1.0.4 NS整合 豪华中文版
+
+夸克：https://pan.quark.cn/s/ea41e9bc3f20
+
 #### 《植物大战僵尸 重植版》v1.1.0 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/0e246c4828ee
