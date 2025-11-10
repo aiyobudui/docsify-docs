@@ -43,19 +43,23 @@
 
 夸克：https://pan.quark.cn/s/41427b2d0631
 
-#### 《极限挑战》（2025）第10季 更新中..
+---
 
-夸克：https://pan.quark.cn/s/bd7480f2d9a8
+## 已完结
 
-#### 《喜剧之王单口季》（2024-2024）第二季 1080P高码 更新中..（附第一季）
+#### 《五十公里桃花坞》（2021-2026）1-5季全
+
+夸克：https://pan.quark.cn/s/5975aab7f665
+
+#### 《喜剧之王单口季》（2024-2025）1-2季全
 
 夸克：https://pan.quark.cn/s/fcaa07956000
 
 迅雷：https://pan.xunlei.com/s/VO9Z8Xi_9a6wDH1IiBMrlPlNA1?pwd=vvmw#
 
----
+#### 《极限挑战》（2025）第10季全
 
-## 已完结
+夸克：https://pan.quark.cn/s/bd7480f2d9a8
 
 #### 《密室大逃脱》（2025）第七季 10期全
 

@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/02c078c36747
 
+#### 《魔女祇兵（Majogami）》v2025.11.10 中文版（横屏动作）
+
+夸克：https://pan.quark.cn/s/68d3e578b46a
+
+#### 《零号使者（Emissary Zero）》v2025.9.3 中文 联机版
+
+夸克：https://pan.quark.cn/s/70d1d1e5c30d
+
 #### 《阿尼玛：回忆之门 1+2 重制版（Anima Beyond Fantasy）》v2025.11.9 中文版
 
 夸克：https://pan.quark.cn/s/beb820c220a6
@@ -100,9 +108,27 @@
 
 ## 最近更新
 
+#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.2.0 中文版
+
+夸克：https://pan.quark.cn/s/e47e913a8da7
+
+#### 《末日的回声（Echoes of the End）增强版》v2.0.2 中文版（魂类游戏）
+
+夸克：https://pan.quark.cn/s/ac1e0683f780
+
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.0c 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.5.89760 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/58b4bb5b676d
+
+#### 《装机模拟器2（PC Building Simulator 2）》v1.14.02 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/b7e47fb90e3d
+
+迅雷：https://pan.xunlei.com/s/VNxl80F27PU28rZPFh-JlgLvA1?pwd=xdi3#
 
 #### 《杀手 暗杀世界（HITMAN World of Assassination)豪华版》v3.240.3 全DLC 中文版（杀手1 杀手2 杀手3)
 
@@ -123,6 +149,10 @@
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.0.125 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.3.2 中文版
+
+夸克：https://pan.quark.cn/s/54fab26752d3
 
 #### 《风中行者（Windblown）》v0.7.1.9 中文 联机版
 
@@ -253,10 +283,6 @@
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/a763fdb76323
-
-#### 《末日的回声（Echoes of the End）》v1.0.5 中文版（魂类游戏）
-
-夸克：https://pan.quark.cn/s/ac1e0683f780
 
 #### 《心之眼（MindsEye）》v5437054 中文版
 
@@ -690,10 +716,6 @@
 
 夸克：https://pan.quark.cn/s/7bec59cb28a0
 
-#### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.0-3 中文版（更新噩梦模式）
-
-夸克：https://pan.quark.cn/s/54fab26752d3
-
 #### 《魔王的迷宫（Labyrinth Of The Demon King）》v2025.10.27 中文版
 
 夸克：https://pan.quark.cn/s/58fd59b62f59
@@ -745,10 +767,6 @@
 #### 《房车还在那里（RV There Yet）》v1.0.14337 英文 联机版
 
 夸克：https://pan.quark.cn/s/39aa2a828815
-
-#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.1.0 中文版
-
-夸克：https://pan.quark.cn/s/e47e913a8da7
 
 #### 《巫师与学徒（Arcana Academy）》v2025.10.27 中文版（卡牌游戏）
 
@@ -2049,10 +2067,6 @@
 #### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/c2b1316245c1
-
-#### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.2.88095 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/58b4bb5b676d
 
 #### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.124013.0 全DLC 中文版
 
@@ -3701,12 +3715,6 @@
 #### 《残暴约翰2（BRUTAL JOHN 2）》v1.1 中文版（搞怪射击游戏）
 
 夸克：https://pan.quark.cn/s/717bc3b79e2b
-
-#### 《装机模拟器2（PC Building Simulator 2）》v1.13.05 中文版
-
-夸克：https://pan.quark.cn/s/b7e47fb90e3d
-
-迅雷：https://pan.xunlei.com/s/VNxl80F27PU28rZPFh-JlgLvA1?pwd=xdi3#
 
 #### 《中国式相亲（Matchmaking Inc.）》v2.0.7 全DLC 中文版
 
@@ -8260,10 +8268,6 @@
 #### 《伽尔兰特：我的冒险故事（Garlant My Story）》v1.0.1.8 中文版
 
 夸克：https://pan.quark.cn/s/a6a974da956d
-
-#### 《装机模拟器（PC Building Simulator）》v1.15.3.0 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/3653e509ef98
 
 #### 《HumanitZ》v0.910 中文 联机版（丧尸生存游戏）
 
