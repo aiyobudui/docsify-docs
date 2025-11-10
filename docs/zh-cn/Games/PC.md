@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/e6fff146084f
 
+#### 《波斯王子4：重生 + 波斯王子5：遗忘之沙》最新 中文版
+
+夸克：https://pan.quark.cn/s/6d6b9db36aa1
+
 #### 《魔女祇兵（Majogami）》v2025.11.10 中文版（横屏动作）
 
 夸克：https://pan.quark.cn/s/68d3e578b46a
@@ -115,6 +119,10 @@
 ---
 
 ## 最近更新
+
+#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29280 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.2.0 中文版
 
@@ -199,10 +207,6 @@
 #### 《龙珠 超宇宙2（DRAGON BALL XENOVERSE 2）特别版》v1.25.01 全DLC 中文 联机版（七龙珠 异战2）
 
 夸克：https://pan.quark.cn/s/ffe1b48f730b
-
-#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29242 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.1.6 中文版（附一堆MOD）
 
