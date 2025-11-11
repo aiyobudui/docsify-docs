@@ -52,6 +52,26 @@
 
 夸克：https://pan.quark.cn/s/c5741f45562c
 
+#### 《所罗门之钥2：酷明岛救出作战（Find The Key 2）》v2025.11.11 中文版（线性恐怖游戏）
+
+夸克：https://pan.quark.cn/s/b95a05f31ce9
+
+#### 《伦敦旧影（London Echoes of the Past）》v2025.11.11 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/ac14c5310793
+
+#### 《直入炼狱（Into Evil）》v2025.11.7 中文版
+
+夸克：https://pan.quark.cn/s/d83bb15682e2
+
+#### 《Mercantile Might》v2025.11.11 中文版（城市建造小游戏）
+
+夸克：https://pan.quark.cn/s/2f9c18d1324f
+
+#### 《战神格尔沙普：龙之庙宇（Garshasp The Temple of the Dragon）》v2025.2.27 英文版
+
+夸克：https://pan.quark.cn/s/f78f837b6fb2
+
 #### 《死亡娃娃屋（Dollhouse of Dead）》v2025.11.9 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/02c078c36747
@@ -88,45 +108,17 @@
 
 夸克：https://pan.quark.cn/s/ae859e640ad1
 
-#### 《肯特开拓史（Kentum）》v1.0.b114 中文版
-
-夸克：https://pan.quark.cn/s/2b9e2184ef18
-
-#### 《伊莉丝：深渊洄光（Elypse）》v2025.11.9 中文版
-
-夸克：https://pan.quark.cn/s/b7b5d79104aa
-
-#### 《冬日幸存者（Winter Survival）》v49336S 中文版
-
-夸克：https://pan.quark.cn/s/93d347e76302
-
-#### 《知只大冒险2（Biped 2）》v1.7 中文 联机版
-
-夸克：https://pan.quark.cn/s/fad1536fd55f
-
-#### 《鸡蛋历险记（Egging On）》v0.1.8654 中文版
-
-夸克：https://pan.quark.cn/s/51dcac674332
-
-#### 《炼金学院物语（Brew）》v2025.11.8 中文版（肉鸽射击）
-
-夸克：https://pan.quark.cn/s/4817a257ba9a
-
-#### 《料理手推车（Food Wagon）》v2025.11.7 中文版
-
-夸克：https://pan.quark.cn/s/d38b8973d45d
-
-#### 《特斯拉之谜（MAELSTROM LEGACY The Tesla Mystery）》v1.0.0 中文版（冒险解密）
-
-夸克：https://pan.quark.cn/s/4197babe4851
-
-#### 《拆解大师（Deconstruction Simulator）》v8125 中文版
-
-夸克：https://pan.quark.cn/s/15eb94878d1d
-
 ---
 
 ## 最近更新
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.3 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《梦之形（Shape of Dreams）》v1.0.9.9 中文 联机版
+
+夸克：https://pan.quark.cn/s/23375927f4ba
 
 #### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29280 中文 联机版
 
@@ -139,6 +131,10 @@
 #### 《末日的回声（Echoes of the End）增强版》v2.0.2 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/ac1e0683f780
+
+#### 《毁灭协议（Moros Protocol）》v1.0.11.6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3d71587b5d72
 
 #### 《雪地奔驰（SnowRunner）周年纪念版》v39.0 全DLC 中文版
 
@@ -166,10 +162,6 @@
 
 夸克：https://pan.quark.cn/s/54c0aaad57e2
 
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.2 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
-
 #### 《失落之魂（Lost Soul Aside）豪华版》v1.012 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/254473ee08f7
@@ -181,56 +173,6 @@
 #### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.3.2 中文版
 
 夸克：https://pan.quark.cn/s/54fab26752d3
-
-#### 《风中行者（Windblown）》v0.7.1.9 中文 联机版
-
-夸克：https://pan.quark.cn/s/d0bc0bde2671
-
-#### 《灵魂面甲（Soulmask）》v0.5.15 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/17b6423c5409
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.15787 全DLC 中文版（超级英雄职场喜剧游戏）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
-
-#### 《最远的边陲（Farthest Frontier）》v1.0.4 中文版
-
-夸克：https://pan.quark.cn/s/e580cf5915b4
-
-#### 《恶意不息（No Rest For The Wicked）》v24313 中文版
-
-夸克：https://pan.quark.cn/s/e3c16ceb73f7
-
-迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
-
-#### 《遗产（The Legacy）》v0.5185 中文 联机版（合作生存恐怖）
-
-夸克：https://pan.quark.cn/s/a9190786dc22
-
-#### 《暗黑血统 系列合集（Darksiders）》4部 最新 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f3dfb80cb1ff
-
-#### 《龙珠 超宇宙2（DRAGON BALL XENOVERSE 2）特别版》v1.25.01 全DLC 中文 联机版（七龙珠 异战2）
-
-夸克：https://pan.quark.cn/s/ffe1b48f730b
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.1.6 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《枪匠幸存者（NIMRODS）》v0.8.6a 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2fa399824b3b
-
-#### 《怪物火车2（Monster Train 2）》v1.2.3 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/638c33888d8a
-
-#### 《无人深空（No Man's Sky）》v6.13 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 ---
 
@@ -443,6 +385,92 @@
 ---
 
 ## 已有游戏
+
+#### 《风中行者（Windblown）》v0.7.1.9 中文 联机版
+
+夸克：https://pan.quark.cn/s/d0bc0bde2671
+
+#### 《灵魂面甲（Soulmask）》v0.5.15 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/17b6423c5409
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.15787 全DLC 中文版（超级英雄职场喜剧游戏）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
+
+#### 《最远的边陲（Farthest Frontier）》v1.0.4 中文版
+
+夸克：https://pan.quark.cn/s/e580cf5915b4
+
+#### 《恶意不息（No Rest For The Wicked）》v24313 中文版
+
+夸克：https://pan.quark.cn/s/e3c16ceb73f7
+
+迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
+
+#### 《遗产（The Legacy）》v0.5185 中文 联机版（合作生存恐怖）
+
+夸克：https://pan.quark.cn/s/a9190786dc22
+
+#### 《暗黑血统 系列合集（Darksiders）》4部 最新 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f3dfb80cb1ff
+
+#### 《龙珠 超宇宙2（DRAGON BALL XENOVERSE 2）特别版》v1.25.01 全DLC 中文 联机版（七龙珠 异战2）
+
+夸克：https://pan.quark.cn/s/ffe1b48f730b
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.1.6 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《枪匠幸存者（NIMRODS）》v0.8.6a 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2fa399824b3b
+
+#### 《怪物火车2（Monster Train 2）》v1.2.3 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/638c33888d8a
+
+#### 《肯特开拓史（Kentum）》v1.0.b114 中文版
+
+夸克：https://pan.quark.cn/s/2b9e2184ef18
+
+#### 《伊莉丝：深渊洄光（Elypse）》v2025.11.9 中文版
+
+夸克：https://pan.quark.cn/s/b7b5d79104aa
+
+#### 《冬日幸存者（Winter Survival）》v49336S 中文版
+
+夸克：https://pan.quark.cn/s/93d347e76302
+
+#### 《知只大冒险2（Biped 2）》v1.7 中文 联机版
+
+夸克：https://pan.quark.cn/s/fad1536fd55f
+
+#### 《鸡蛋历险记（Egging On）》v0.1.8654 中文版
+
+夸克：https://pan.quark.cn/s/51dcac674332
+
+#### 《炼金学院物语（Brew）》v2025.11.8 中文版（肉鸽射击）
+
+夸克：https://pan.quark.cn/s/4817a257ba9a
+
+#### 《料理手推车（Food Wagon）》v2025.11.7 中文版
+
+夸克：https://pan.quark.cn/s/d38b8973d45d
+
+#### 《特斯拉之谜（MAELSTROM LEGACY The Tesla Mystery）》v1.0.0 中文版（冒险解密）
+
+夸克：https://pan.quark.cn/s/4197babe4851
+
+#### 《拆解大师（Deconstruction Simulator）》v8125 中文版
+
+夸克：https://pan.quark.cn/s/15eb94878d1d
+
+#### 《无人深空（No Man's Sky）》v6.13 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 #### 《加勒比传奇（Caribbean Legend）》v1.6.0 全DLC 中文版（开放世界）
 
@@ -1512,10 +1540,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
 
-#### 《梦之形（Shape of Dreams）》v1.0.7.15 中文 联机版
-
-夸克：https://pan.quark.cn/s/23375927f4ba
-
 #### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f4faa9506d28
@@ -1715,10 +1739,6 @@
 #### 《孤岛猎神（Day of the Shell）》v1.1.10 中文版
 
 夸克：https://pan.quark.cn/s/d7f5075eafc7
-
-#### 《毁灭协议（Moros Protocol）》v1.0.7.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3d71587b5d72
 
 #### 《Ara：不为人知的历史（Ara History Untold）周年纪念版》v2.0.0.523 全DLC 中文版（标杆文明的策略游戏）
 
