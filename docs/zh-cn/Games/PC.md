@@ -120,6 +120,10 @@
 
 夸克：https://pan.quark.cn/s/23375927f4ba
 
+#### 《封锁协议（LOCKDOWN Protocol）》Build.25092025 汉化中文 联机版（新狼人杀）
+
+夸克：https://pan.quark.cn/s/70ec7aa37ab3
+
 #### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29280 中文 联机版
 
 夸克：https://pan.quark.cn/s/4c68712bb95c
@@ -7712,10 +7716,6 @@
 #### 《自由人：游击战争（Freeman：Guerrilla Warfare）》v1.41 中文版
 
 夸克：https://pan.quark.cn/s/842f8e04ae1c
-
-#### 《封锁协议（LOCKDOWN Protocol）》v0.1.31 汉化中文 联机版（新狼人杀）
-
-夸克：https://pan.quark.cn/s/70ec7aa37ab3
 
 #### 《迪士尼午后合集（The Disney Afternoon Collection）》v1.0 英文版（不影响游戏）
 
