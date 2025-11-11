@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.0 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
 #### 《死亡娃娃屋（Dollhouse of Dead）》v2025.11.9 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/02c078c36747
