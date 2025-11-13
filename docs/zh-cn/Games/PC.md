@@ -52,6 +52,38 @@
 
 夸克：https://pan.quark.cn/s/c5741f45562c
 
+#### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
+
+夸克：https://pan.quark.cn/s/13d1b5ef3cfc
+
+#### 《盐2：黄金海岸（Salt 2 Shores Of Gold）》Build.20670004 中文 联机版
+
+夸克：https://pan.quark.cn/s/34d1edb630c6
+
+#### 《林间暖巢（Winter Burrow）》v2025.11.13 中文版（手绘风温馨冒险）
+
+夸克：https://pan.quark.cn/s/c93eb5af08b8
+
+#### 《悠哉钓鱼（Fish to Dish Idle Sushi）》v2.1.41 中文版（桌面游戏）
+
+夸克：https://pan.quark.cn/s/d16486b25df5
+
+#### 《安迪和莱莉的棺材（The Coffin of Andy and Leyley）》v3.0.11 汉化版
+
+夸克：https://pan.quark.cn/s/4acb37911c13
+
+#### 《因狄斯的谎言2：燃烧的火种（Indies Lies 2 Fire Seed）》v0.9.19 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/3d0828995240
+
+#### 《THIEF'S SHELTER》v1.2 中文版（恐怖推理游戏）
+
+夸克：https://pan.quark.cn/s/eac402eb5d11
+
+#### 《堡垒：猎鹰战纪（Bulwark Falconeer Chronicles）》v0.2.0.5.20251110 中文版
+
+夸克：https://pan.quark.cn/s/fc45d8adc295
+
 #### 《墙世界2（Wall World 2）》v1.0.4.323 中文版（肉鸽挖矿模拟）
 
 夸克：https://pan.quark.cn/s/91f6468861e8
@@ -88,6 +120,10 @@
 
 ## 最近更新
 
+#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.5.0 中文版
+
+夸克：https://pan.quark.cn/s/9baad4a27102
+
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.0 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
@@ -96,9 +132,51 @@
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
 
+#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29315 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46891 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《密室逃脱模拟器2（Escape Simulator 2）》v17073r 中文 联机版
+
+夸克：https://pan.quark.cn/s/7cfd55cbc9c2
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.16218 全DLC 中文版（完整版）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
+
+#### 《深渊之潮（Abyssus）》v1.1.53392 中文 联机版
+
+夸克：https://pan.quark.cn/s/d9e794c1e06e
+
 #### 《雾锁王国（Enshrouded）》v845905 中文 联机版
 
 夸克：https://pan.quark.cn/s/cb96556f07cd
+
+#### 《哈迪斯2（Hades II）》v1.133066 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《杀手：灰与尘的时代（Slayer the Demon Haunted World）》v2025.11.12 中文版
+
+夸克：https://pan.quark.cn/s/0abd46fb16d4
+
+#### 《蚀之境（Eclipsium）》v2025.11.7 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/cb74616e8c15
+
+#### 《幽室鬼牌（Deck of Haunts）》v666 中文版
+
+夸克：https://pan.quark.cn/s/929929d1ec80
+
+#### 《奇异古物（Strange Antiquities）》v1.0.40 中文版（解密游戏）
+
+夸克：https://pan.quark.cn/s/3d048bd03ffb
 
 #### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.4b 全DLC 中文版（桌面小游戏）
 
@@ -155,10 +233,6 @@
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/3a5af4f32c61
-
-#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.4.1 中文版
-
-夸克：https://pan.quark.cn/s/9baad4a27102
 
 #### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1023.1614 全DLC 中文版
 
@@ -354,10 +428,6 @@
 
 夸克：https://pan.quark.cn/s/4912658febe6
 
-#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29280 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
-
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.2.0 中文版
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
@@ -427,10 +497,6 @@
 #### 《灵魂面甲（Soulmask）》v0.5.15 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/17b6423c5409
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.15787 全DLC 中文版（超级英雄职场喜剧游戏）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
 
 #### 《最远的边陲（Farthest Frontier）》v1.0.4 中文版
 
@@ -740,17 +806,9 @@
 
 夸克：https://pan.quark.cn/s/ba0201495df1
 
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46561 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
-
 #### 《动物栏：桌面牧场（Tiny Pasture）》v1.7.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/5fba8ad9a5ea
-
-#### 《密室逃脱模拟器2（Escape Simulator 2）》v16651r 中文版
-
-夸克：https://pan.quark.cn/s/7cfd55cbc9c2
 
 #### 《我的梦想卧室（My dream setup）完整版》v2025.11.1 全DLC 中文版（建造游戏）
 
@@ -1522,10 +1580,6 @@
 
 夸克：https://pan.quark.cn/s/b93881259baa
 
-#### 《奇异古物（Strange Antiquities）》v1.0.37 中文版
-
-夸克：https://pan.quark.cn/s/3d048bd03ffb
-
 #### 《星萼（Calyx）》v0.0.4.1 中文版
 
 夸克：https://pan.quark.cn/s/f6ed93f9a0b4
@@ -1567,12 +1621,6 @@
 #### 《熊视眈眈（Out of Sight）》v1.0.49 中文版（类似小小梦魇恐怖解密）
 
 夸克：https://pan.quark.cn/s/d4b3d3aacfaf
-
-#### 《哈迪斯2（Hades II）》v1.131641 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
 
 #### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
 
@@ -2063,10 +2111,6 @@
 #### 《爆击艺术3（BREAK ARTS III）》v1.0.1 中文版（究极机甲定制动作游戏）
 
 夸克：https://pan.quark.cn/s/a7c3e437493b
-
-#### 《蚀之境（Eclipsium）》v2025.9.21 中文版
-
-夸克：https://pan.quark.cn/s/cb74616e8c15
 
 #### 《啦嗒铛（Ratatan）》v0.5.2 中文版（节奏横轴动作）
 
@@ -3050,10 +3094,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNyVSlrOau3PZlvGHrm4ODIhA1?pwd=tipt#
 
-#### 《深渊之潮（Abyssus）》v1.0.1.51127 中文 联机版
-
-夸克：https://pan.quark.cn/s/d9e794c1e06e
-
 #### 《Foundation》v1.10.3.12 中文版（中世界建造）
 
 夸克：https://pan.quark.cn/s/d98f988b2c66
@@ -3680,7 +3720,7 @@
 
 夸克：https://pan.quark.cn/s/ebf132d9c47a
 
-#### 《无法成眠的伊达键 - From AI：梦境档案（No Sleep For Kaname Date From AI THE SOMNIUM FILES）》2025.7.26 中文版
+#### 《无法成眠的伊达键 - From AI：梦境档案（No Sleep For Kaname Date）》2025.7.26 中文版
 
 夸克：https://pan.quark.cn/s/e11794908a14
 
@@ -3695,10 +3735,6 @@
 #### 《终末机兵（NITRO GEN OMEGA）》v2025.7.28 中文版
 
 夸克：https://pan.quark.cn/s/4a99ffe1a8dc
-
-#### 《Slayer the Demon Haunted World》v2025.7.26 中文版（毁灭战士：恶魔出没的世界）
-
-夸克：https://pan.quark.cn/s/0abd46fb16d4
 
 #### 《石河伦吾的朋友们（The friends of Ringo Ishikawa）》Build.17529737 中文版
 
@@ -4296,10 +4332,6 @@
 #### 《冰与火之舞（A Dance of Fire and Ice）》v2.9.5 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e1f6e44cd68e
-
-#### 《幽室鬼牌（Deck of Haunts）》v1.12 中文版
-
-夸克：https://pan.quark.cn/s/929929d1ec80
 
 #### 《吾今有世家（House of Legacy）》v0.7.4.5 中文版
 
