@@ -19,6 +19,18 @@
 
 ---
 
+#### 《一触即发 Jack Ryan Shadow Recruit》（2014）蓝光1080P 中英配音 中字
+
+夸克：https://pan.quark.cn/s/8fef070dd031
+
+#### 《爱国者游戏》（1992）蓝光1080P 中英配音 中英字幕
+
+夸克：https://pan.quark.cn/s/88a10697a248
+
+#### 《燃眉追击 Clear and Present Danger》（1994）720P 国英配音 中字
+
+夸克：https://pan.quark.cn/s/46aacbe6de9b
+
 #### 《我，花样女王 I Tonya》（2017）蓝光 1080P 中英双字
 
 夸克：https://pan.quark.cn/s/2a554c84ab3f
