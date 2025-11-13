@@ -48,6 +48,20 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《莱莎的炼金工房 ～常暗女王与秘密藏身处～ DX》v1.00 中文版
+
+夸克：https://pan.quark.cn/s/a287f80efc9d
+
+#### 《莱莎的炼金工房２ ～失落传说与秘密妖精～ DX》v1.00 中文版
+
+夸克：https://pan.quark.cn/s/a287f80efc9d
+
+#### 《莱莎的炼金工房３ ～终结之炼金术士与秘密钥匙～ DX》v1.00 中文版
+
+夸克：https://pan.quark.cn/s/a287f80efc9d
+
+迅雷：https://pan.xunlei.com/s/VO5RjFCQ4nNCH4NXz6k3luXVA1?pwd=z78j#
+
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.0 中文版
 
 夸克：https://pan.quark.cn/s/c5741f45562c
@@ -127,6 +141,10 @@
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.0 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《苏丹的游戏（Sultans Game）》v1.0.155f2ad4 中文版
+
+夸克：https://pan.quark.cn/s/41c184b7bd72
 
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.3 全DLC 中文 联机版
 
@@ -2622,10 +2640,6 @@
 
 夸克：https://pan.quark.cn/s/4d0702c9d08c
 
-#### 《苏丹的游戏（Sultans Game）》v1.3 f0e7ae6 中文版
-
-夸克：https://pan.quark.cn/s/41c184b7bd72
-
 #### 《地狱卡牌（Hellcard）》v1.1.250807 中文 联机版
 
 夸克：https://pan.quark.cn/s/9411d1803c42
@@ -3688,7 +3702,7 @@
 
 夸克：https://pan.quark.cn/s/a00432a08a88
 
-#### 《环世界（Rimworld）》v1.6.4535 全DLC 中文 联机版 （附447个MOD）
+#### 《边缘世界（Rimworld）》v1.6.4535 全DLC 中文 联机版（附447个MOD）环世界
 
 夸克：https://pan.quark.cn/s/1ee10b6b0177
 
@@ -8597,20 +8611,6 @@
 
 夸克：https://pan.quark.cn/s/2b5201ff670d
 
-#### 《莱莎的炼金工房：常暗女王与秘密藏身处》v1.06 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a287f80efc9d
-
-#### 《莱莎的炼金工房2：失落的传说与秘密妖精》v1.05 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/10d5cd3b81b4
-
-#### 《莱莎的炼金工房3：终结之炼金术士与秘密钥匙》v1.07 全DLC 中文PC版
-
-夸克：https://pan.quark.cn/s/b2e9d2726ffd
-
-迅雷：https://pan.xunlei.com/s/VO5RjFCQ4nNCH4NXz6k3luXVA1?pwd=z78j#
-
 #### 《拓荒者（Saleblazers）》v0.14.0.8 中文 联机版
 
 夸克：https://pan.quark.cn/s/14b248c1b336
@@ -10546,7 +10546,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNrANXUqoXh0FhgZXKSMSQKKA1?pwd=ww8t#
 
-#### 《黑道圣徒 系列合集（Saints Row）》4部 最新 全DLC 汉化 联机版
+#### 《黑道圣徒 系列合集（Saints Row）》5部 最新 全DLC 汉化 联机版
 
 夸克：https://pan.quark.cn/s/83fd9dc44f8c
 
