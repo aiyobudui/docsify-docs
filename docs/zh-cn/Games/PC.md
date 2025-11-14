@@ -62,6 +62,14 @@
 
 迅雷：https://pan.xunlei.com/s/VO5RjFCQ4nNCH4NXz6k3luXVA1?pwd=z78j#
 
+#### 《我的26岁女房客：在云端（My 26-Year-Old Female Tenant）》Build.20772825 中文版
+
+夸克：https://pan.quark.cn/s/590198b28709
+
+#### 《沃尔森：破坏领主（Wolcen Lords of Mayhem）》v1.1.7.16.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0928fbd3d8a7
+
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.0 中文版
 
 夸克：https://pan.quark.cn/s/c5741f45562c
@@ -94,45 +102,13 @@
 
 夸克：https://pan.quark.cn/s/eac402eb5d11
 
-#### 《堡垒：猎鹰战纪（Bulwark Falconeer Chronicles）》v0.2.0.5.20251110 中文版
-
-夸克：https://pan.quark.cn/s/fc45d8adc295
-
-#### 《墙世界2（Wall World 2）》v1.0.4.323 中文版（肉鸽挖矿模拟）
-
-夸克：https://pan.quark.cn/s/91f6468861e8
-
-#### 《所罗门之钥2：酷明岛救出作战（Find The Key 2）》v2025.11.11 中文版（线性恐怖游戏）
-
-夸克：https://pan.quark.cn/s/b95a05f31ce9
-
-#### 《非现实生活（UNREAL LIFE）》v7936597 中文版（解谜冒险）
-
-夸克：https://pan.quark.cn/s/652202eb7882
-
-#### 《伦敦旧影（London Echoes of the Past）》v2025.11.11 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/ac14c5310793
-
-#### 《直入炼狱（Into Evil）》v2025.11.7 中文版
-
-夸克：https://pan.quark.cn/s/d83bb15682e2
-
-#### 《Mercantile Might》v2025.11.11 中文版（城市建造小游戏）
-
-夸克：https://pan.quark.cn/s/2f9c18d1324f
-
-#### 《战神格尔沙普：龙之庙宇（Garshasp The Temple of the Dragon）》v2025.2.27 英文版
-
-夸克：https://pan.quark.cn/s/f78f837b6fb2
-
-#### 《死亡娃娃屋（Dollhouse of Dead）》v2025.11.9 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/02c078c36747
-
 ---
 
 ## 最近更新
+
+#### 《辐射4（Fallout 4）周年版》v1.11.137.0.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3c6a02617ff3
 
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.5.0 中文版
 
@@ -141,6 +117,10 @@
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.0 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/0ec3b235f7db
 
 #### 《苏丹的游戏（Sultans Game）》v1.0.155f2ad4 中文版
 
@@ -203,32 +183,6 @@
 #### 《梅树林的回声（Echoes of the Plum Grove）》v1.0.5.38s 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e8c54df06e5f
-
-#### 《永夜之围（As We Descend）》v0.9.1.4b 中文版
-
-夸克：https://pan.quark.cn/s/58c92da50fb0
-
-#### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.127446.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/dffcc45a56c8
-
-迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
-
-#### 《梦之形（Shape of Dreams）》v1.0.9.9 中文 联机版
-
-夸克：https://pan.quark.cn/s/23375927f4ba
-
-#### 《封锁协议（LOCKDOWN Protocol）》Build.25092025 汉化中文 联机版（新狼人杀）
-
-夸克：https://pan.quark.cn/s/70ec7aa37ab3
-
-#### 《毁灭协议（Moros Protocol）》v1.0.11.6 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3d71587b5d72
-
-#### 《雪地奔驰（SnowRunner）周年纪念版》v39.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/86cf9218214f
 
 ---
 
@@ -457,6 +411,68 @@
 ---
 
 ## 已有游戏
+
+#### 《堡垒：猎鹰战纪（Bulwark Falconeer Chronicles）》v0.2.0.5.20251110 中文版
+
+夸克：https://pan.quark.cn/s/fc45d8adc295
+
+#### 《墙世界2（Wall World 2）》v1.0.4.323 中文版（肉鸽挖矿模拟）
+
+夸克：https://pan.quark.cn/s/91f6468861e8
+
+#### 《所罗门之钥2：酷明岛救出作战（Find The Key 2）》v2025.11.11 中文版（线性恐怖游戏）
+
+夸克：https://pan.quark.cn/s/b95a05f31ce9
+
+#### 《非现实生活（UNREAL LIFE）》v7936597 中文版（解谜冒险）
+
+夸克：https://pan.quark.cn/s/652202eb7882
+
+#### 《伦敦旧影（London Echoes of the Past）》v2025.11.11 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/ac14c5310793
+
+#### 《直入炼狱（Into Evil）》v2025.11.7 中文版
+
+夸克：https://pan.quark.cn/s/d83bb15682e2
+
+#### 《Mercantile Might》v2025.11.11 中文版（城市建造小游戏）
+
+夸克：https://pan.quark.cn/s/2f9c18d1324f
+
+#### 《战神格尔沙普：龙之庙宇（Garshasp The Temple of the Dragon）》v2025.2.27 英文版
+
+夸克：https://pan.quark.cn/s/f78f837b6fb2
+
+#### 《死亡娃娃屋（Dollhouse of Dead）》v2025.11.9 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/02c078c36747
+
+#### 《永夜之围（As We Descend）》v0.9.1.4b 中文版
+
+夸克：https://pan.quark.cn/s/58c92da50fb0
+
+#### 《苍翼：混沌效应（BlazBlue Entropy Effect）》v1.0.7.127446.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/dffcc45a56c8
+
+迅雷：https://pan.xunlei.com/s/VNpuBMgpFJ9XqL05KHqG9sl2A1?pwd=v8sz#
+
+#### 《梦之形（Shape of Dreams）》v1.0.9.9 中文 联机版
+
+夸克：https://pan.quark.cn/s/23375927f4ba
+
+#### 《封锁协议（LOCKDOWN Protocol）》Build.25092025 汉化中文 联机版（新狼人杀）
+
+夸克：https://pan.quark.cn/s/70ec7aa37ab3
+
+#### 《毁灭协议（Moros Protocol）》v1.0.11.6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3d71587b5d72
+
+#### 《雪地奔驰（SnowRunner）周年纪念版》v39.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/86cf9218214f
 
 #### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.0.5.89760 全DLC 中文版
 
@@ -6673,10 +6689,6 @@
 
 夸克：https://pan.quark.cn/s/155f810e57ea
 
-#### 《辐射4（Fallout 4）》v1.10.984.0.0 全DLC 4K 次世代豪华版
-
-夸克：https://pan.quark.cn/s/3c6a02617ff3
-
 #### 《Eximius 夺取前线(Eximius Seize The Frontline Domination)》v1.2.2.847.139 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/152e6ee94cff
@@ -8190,10 +8202,6 @@
 #### 《防御阵型之觉醒（Defense Grid The Awakening）》v2022.8.2 全DLC 汉化 终结版
 
 夸克：https://pan.quark.cn/s/2427eea00327
-
-#### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.0 1DLC 汉化中文版
-
-夸克：https://pan.quark.cn/s/0ec3b235f7db
 
 #### 《深埋之星（Buried Stars）》v2022.9.13 中文版
 
