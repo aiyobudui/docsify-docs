@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《怪物猎人物语（Monster Hunter Stories）》V1.1.1 全DLC 中文版（电脑版）
+
+夸克：https://pan.quark.cn/s/a9adb075c61f
+
 #### 《莱莎的炼金工房 ～常暗女王与秘密藏身处～ DX》v1.00 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/a287f80efc9d
@@ -66,6 +70,10 @@
 
 夸克：https://pan.quark.cn/s/590198b28709
 
+#### 《二进制领域（Binary Domain）》v1.0 up2 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/fb33a499569b
+
 #### 《沃尔森：破坏领主（Wolcen Lords of Mayhem）》v1.1.7.16.12 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0928fbd3d8a7
@@ -74,37 +82,13 @@
 
 夸克：https://pan.quark.cn/s/c5741f45562c
 
-#### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
-
-夸克：https://pan.quark.cn/s/13d1b5ef3cfc
-
-#### 《盐2：黄金海岸（Salt 2 Shores Of Gold）》Build.20670004 中文 联机版
-
-夸克：https://pan.quark.cn/s/34d1edb630c6
-
-#### 《林间暖巢（Winter Burrow）》v2025.11.13 中文版（手绘风温馨冒险）
-
-夸克：https://pan.quark.cn/s/c93eb5af08b8
-
-#### 《悠哉钓鱼（Fish to Dish Idle Sushi）》v2.1.41 中文版（桌面游戏）
-
-夸克：https://pan.quark.cn/s/d16486b25df5
-
-#### 《安迪和莱莉的棺材（The Coffin of Andy and Leyley）》v3.0.11 汉化版
-
-夸克：https://pan.quark.cn/s/4acb37911c13
-
-#### 《因狄斯的谎言2：燃烧的火种（Indies Lies 2 Fire Seed）》v0.9.19 中文版（肉鸽卡牌）
-
-夸克：https://pan.quark.cn/s/3d0828995240
-
-#### 《THIEF'S SHELTER》v1.2 中文版（恐怖推理游戏）
-
-夸克：https://pan.quark.cn/s/eac402eb5d11
-
 ---
 
 ## 最近更新
+
+#### 《寂静岭F（SILENT HILL F）豪华版》v1.2.381918 全DLC 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/90391fdabda9
 
 #### 《辐射4（Fallout 4）周年版》v1.11.137.0.0 全DLC 中文版
 
@@ -117,6 +101,10 @@
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.0 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.54786.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51201cccd0db
 
 #### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
 
@@ -145,44 +133,6 @@
 #### 《超英派遣中心（Dispatch）豪华版》v1.0.16218 全DLC 中文版（完整版）
 
 夸克：https://pan.quark.cn/s/afd55c48d634
-
-#### 《深渊之潮（Abyssus）》v1.1.53392 中文 联机版
-
-夸克：https://pan.quark.cn/s/d9e794c1e06e
-
-#### 《雾锁王国（Enshrouded）》v845905 中文 联机版
-
-夸克：https://pan.quark.cn/s/cb96556f07cd
-
-#### 《哈迪斯2（Hades II）》v1.133066 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《杀手：灰与尘的时代（Slayer the Demon Haunted World）》v2025.11.12 中文版
-
-夸克：https://pan.quark.cn/s/0abd46fb16d4
-
-#### 《蚀之境（Eclipsium）》v2025.11.7 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/cb74616e8c15
-
-#### 《幽室鬼牌（Deck of Haunts）》v666 中文版
-
-夸克：https://pan.quark.cn/s/929929d1ec80
-
-#### 《奇异古物（Strange Antiquities）》v1.0.40 中文版（解密游戏）
-
-夸克：https://pan.quark.cn/s/3d048bd03ffb
-
-#### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.4b 全DLC 中文版（桌面小游戏）
-
-夸克：https://pan.quark.cn/s/dd64b7e57e0d
-
-#### 《梅树林的回声（Echoes of the Plum Grove）》v1.0.5.38s 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e8c54df06e5f
 
 ---
 
@@ -243,10 +193,6 @@
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.4 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
-
-#### 《寂静岭F（SILENT HILL F）豪华版》v1.1.380371 全DLC 中文版（心理恐怖游戏）
-
-夸克：https://pan.quark.cn/s/90391fdabda9
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
 
@@ -411,6 +357,72 @@
 ---
 
 ## 已有游戏
+
+#### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
+
+夸克：https://pan.quark.cn/s/13d1b5ef3cfc
+
+#### 《盐2：黄金海岸（Salt 2 Shores Of Gold）》Build.20670004 中文 联机版
+
+夸克：https://pan.quark.cn/s/34d1edb630c6
+
+#### 《林间暖巢（Winter Burrow）》v2025.11.13 中文版（手绘风温馨冒险）
+
+夸克：https://pan.quark.cn/s/c93eb5af08b8
+
+#### 《悠哉钓鱼（Fish to Dish Idle Sushi）》v2.1.41 中文版（桌面游戏）
+
+夸克：https://pan.quark.cn/s/d16486b25df5
+
+#### 《安迪和莱莉的棺材（The Coffin of Andy and Leyley）》v3.0.11 汉化版
+
+夸克：https://pan.quark.cn/s/4acb37911c13
+
+#### 《因狄斯的谎言2：燃烧的火种（Indies Lies 2 Fire Seed）》v0.9.19 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/3d0828995240
+
+#### 《THIEF'S SHELTER》v1.2 中文版（恐怖推理游戏）
+
+夸克：https://pan.quark.cn/s/eac402eb5d11
+
+#### 《深渊之潮（Abyssus）》v1.1.53392 中文 联机版
+
+夸克：https://pan.quark.cn/s/d9e794c1e06e
+
+#### 《雾锁王国（Enshrouded）》v845905 中文 联机版
+
+夸克：https://pan.quark.cn/s/cb96556f07cd
+
+#### 《哈迪斯2（Hades II）》v1.133066 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《杀手：灰与尘的时代（Slayer the Demon Haunted World）》v2025.11.12 中文版
+
+夸克：https://pan.quark.cn/s/0abd46fb16d4
+
+#### 《蚀之境（Eclipsium）》v2025.11.7 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/cb74616e8c15
+
+#### 《幽室鬼牌（Deck of Haunts）》v666 中文版
+
+夸克：https://pan.quark.cn/s/929929d1ec80
+
+#### 《奇异古物（Strange Antiquities）》v1.0.40 中文版（解密游戏）
+
+夸克：https://pan.quark.cn/s/3d048bd03ffb
+
+#### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.4b 全DLC 中文版（桌面小游戏）
+
+夸克：https://pan.quark.cn/s/dd64b7e57e0d
+
+#### 《梅树林的回声（Echoes of the Plum Grove）》v1.0.5.38s 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e8c54df06e5f
 
 #### 《堡垒：猎鹰战纪（Bulwark Falconeer Chronicles）》v0.2.0.5.20251110 中文版
 
@@ -861,10 +873,6 @@
 夸克：https://pan.quark.cn/s/c42507f81cff
 
 迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
-
-#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.52475.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
 
 #### 《突击：第二次世界大战（RAID World War II）特别版》v25.03 全DLC 中文 联机版（突袭二战）
 
