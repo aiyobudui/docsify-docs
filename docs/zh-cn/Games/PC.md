@@ -72,6 +72,10 @@
 
 夸克：https://pan.quark.cn/s/7f1285f4bf79
 
+#### 《废都物语 Ruina》v1.2.1 汉化版+安卓版（附攻略+补丁+工具+小说+修G器）
+
+夸克：https://pan.quark.cn/s/a9bc873b9b7b
+
 ---
 
 ## 最近更新
