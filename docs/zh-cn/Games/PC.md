@@ -52,6 +52,22 @@
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
 
+#### 《龟龟潜海记（Shelldiver）》v1.0.0.500 中文版
+
+夸克：https://pan.quark.cn/s/72e572f8932e
+
+#### 《Mara》v2025.11.20 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/ba3e8017c4e9
+
+#### 《盐与献祭（Salt and Sacrifice）》v2.0.0.1 中文版（盐与避难所2）
+
+夸克：https://pan.quark.cn/s/9df86a649cee
+
+#### 《前方高能（Content Warning）》v1.20.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/d152bf500d26
+
 #### 《预视武宗（Forestrike）》v1.0-2318 中文版
 
 夸克：https://pan.quark.cn/s/7f1285f4bf79
@@ -65,6 +81,46 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+#### 《都市天际线2（Cities Skylines 2）终极版》v1.4.2f1 全DLC 中文版（城市天际线2）
+
+夸克：https://pan.quark.cn/s/e78ffec97c4e
+
+#### 《云族裔（inZOI）》v20251118.8820.W 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.4.1461.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
+#### 《恐鬼症（Phasmophobia）》v0.15.0.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/f06faddc881c
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.16409 全DLC 中文版（完整版）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
+
+#### 《超自然车旅（Pacific Drive）豪华版》v1.13.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7d338c911bf5
+
+#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.02 中文版（开放世界冒险）
+
+夸克：https://pan.quark.cn/s/6758e2260430
+
+#### 《火星求生：重制版（Surviving Mars Relaunched）终结版》v1.0.2.382778 全DLC 中文版（附原版）
+
+夸克：https://pan.quark.cn/s/15e312a44808
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.04.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
 
 #### 《困兽之国（Drova - Forsaken Kin）》v1.3.4a 中文版
 
@@ -86,17 +142,9 @@
 
 夸克：https://pan.quark.cn/s/9baad4a27102
 
-#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.0 全DLC 中文版（新增修院迷踪DLC）
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
-
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.0c 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.3.1217.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
 
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
 
@@ -276,10 +324,6 @@
 
 夸克：https://pan.quark.cn/s/b433499adaec
 
-#### 《云族裔（inZOI）》v20251030.8384.W 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
-
 #### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.18.1.0 中文 联机版（法外狂徒）
 
 夸克：https://pan.quark.cn/s/54c0aaad57e2
@@ -365,10 +409,6 @@
 #### 《密室逃脱模拟器2（Escape Simulator 2）》v17073r 中文 联机版
 
 夸克：https://pan.quark.cn/s/7cfd55cbc9c2
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.16218 全DLC 中文版（完整版）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
 
 #### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
 
@@ -994,10 +1034,6 @@
 
 夸克：https://pan.quark.cn/s/1179f67a6076
 
-#### 《超自然车旅（Pacific Drive）豪华版》v1.11.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7d338c911bf5
-
 #### 《深岩银河（Deep Rock Galactic）》v1.39.125673.0 全DLC 豪华中文 联机版
 
 夸克：https://pan.quark.cn/s/cb16ac738ce8
@@ -1017,10 +1053,6 @@
 #### 《猫好货坏（Order13）》v1.1 中文版
 
 夸克：https://pan.quark.cn/s/081df609646f
-
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.02 中文 联机版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
 
 #### 《救赎少女（Maid of Salvation）》v1.0.0 中文版
 
@@ -1450,10 +1482,6 @@
 
 夸克：https://pan.quark.cn/s/e34562091a8d
 
-#### 《恐鬼症（Phasmophobia）》v0.14.2.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/f06faddc881c
-
 #### 《合金装备崛起：复仇（Metal Gear Rising Revengeance）》v1.0 中文版
 
 夸克：https://pan.quark.cn/s/0015412d5e95
@@ -1465,10 +1493,6 @@
 #### 《晦暗神祇2（Dark Deity 2）》v1.14 汉化版（附第一部 全DLC 豪华版）
 
 夸克：https://pan.quark.cn/s/380f418cd26a
-
-#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.0 中文版（开放世界冒险）
-
-夸克：https://pan.quark.cn/s/6758e2260430
 
 #### 《狙击手：幽灵战士契约2（Sniper Ghost Warrior Contracts 2）豪华版》Build.05092024 全DLC 中文版
 
@@ -1559,10 +1583,6 @@
 夸克：https://pan.quark.cn/s/5c72c5f33cf5
 
 迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
-
-#### 《都市天际线2（Cities Skylines 2）终极版》v1.3.5f1 全DLC 中文版（城市天际线2）
-
-夸克：https://pan.quark.cn/s/e78ffec97c4e
 
 #### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.0 全DLC 中文版
 
@@ -5345,7 +5365,7 @@
 
 夸克：https://pan.quark.cn/s/92631af31e17
 
-#### 《霍格沃茨之遗（Hogwarts Legacy）》v1117238 全DLC 豪华中文版（修复版）
+#### 《霍格沃茨之遗（Hogwarts Legacy）豪华版》v1117238 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/257debd362e9
 
@@ -7746,10 +7766,6 @@
 #### 《PAGUI打鬼（PAGUI Chapter 2）》v2022.7.30 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/276b3f0ee192
-
-#### 《火星求生（Surviving Mars）》v1.5_gog 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/15e312a44808
 
 #### 《密教模拟器（Cultist Simulator）》v2024.5.a.3 中文版
 
