@@ -19,6 +19,10 @@
 
 ---
 
+#### 《查理和巧克力工厂》（2005）蓝光1080P 中字 国粤英多音轨
+
+夸克：https://pan.quark.cn/s/943831f3a9ff
+
 #### 《一触即发 Jack Ryan Shadow Recruit》（2014）蓝光1080P 中英配音 中字
 
 夸克：https://pan.quark.cn/s/8fef070dd031

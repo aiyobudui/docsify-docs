@@ -20,7 +20,7 @@
 > 2、不会解压看你下载文件夹中的 “[**《新萌必看(解压、游戏问题解答).txt》点击查看**](/zh-cn/games/page)”  
 > 3、怎么启动游戏、中文设置等，看 “**游戏启动说明（必看）.txt**”  
 > 4、游戏版本是指，包含了目前所有更新及DLC。**升级补丁是看当前版本从低到高的升级**  
-> 5、标题里带 **联机** 字样的是一定能**联机**的  
+> 5、标题里带 **联机** 字样的是一定能**联机**的，出现汉化两个字的是汉化版，中文的是官方中文  
 > 6、大型游戏基本上都会做 **精简处理**（不影响游戏性能），降低占用硬盘的容量  
 
 > [!info|style:callout|label:信息|iconVisibility:hidden]所有游戏都亲测、无毒，不捆绑添加任何隐藏广告，绿色不安装，个别游戏会被防火墙阻挡，所以防火墙添加信任即可。
@@ -48,43 +48,31 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《怪物猎人物语（Monster Hunter Stories）》V1.1.1 全DLC 中文版（电脑版）
+#### 《星球大战：战机中队（Star Wars Squadrons）》v1.0.10.39591 中文版
 
-夸克：https://pan.quark.cn/s/a9adb075c61f
+夸克：https://pan.quark.cn/s/cd81a5c34f7e
 
-#### 《莱莎的炼金工房 ～常暗女王与秘密藏身处～ DX》v1.00 全DLC 中文版
+#### 《预视武宗（Forestrike）》v1.0-2318 中文版
 
-夸克：https://pan.quark.cn/s/a287f80efc9d
-
-#### 《莱莎的炼金工房２ ～失落传说与秘密妖精～ DX》v1.00 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a287f80efc9d
-
-#### 《莱莎的炼金工房３ ～终结之炼金术士与秘密钥匙～ DX》v1.00 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a287f80efc9d
-
-迅雷：https://pan.xunlei.com/s/VO5RjFCQ4nNCH4NXz6k3luXVA1?pwd=z78j#
-
-#### 《我的26岁女房客：在云端（My 26-Year-Old Female Tenant）》Build.20772825 中文版
-
-夸克：https://pan.quark.cn/s/590198b28709
-
-#### 《二进制领域（Binary Domain）》v1.0 up2 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/fb33a499569b
-
-#### 《沃尔森：破坏领主（Wolcen Lords of Mayhem）》v1.1.7.16.12 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/0928fbd3d8a7
-
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.0 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
+夸克：https://pan.quark.cn/s/7f1285f4bf79
 
 ---
 
 ## 最近更新
+
+#### 《小小梦魇3（Little Nightmares 3）》v2025.11.19 全DLC 中文 联机版（附前2部 恐怖解密）
+
+夸克：https://pan.quark.cn/s/23c16824e3ac
+
+迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《困兽之国（Drova - Forsaken Kin）》v1.3.4a 中文版
+
+夸克：https://pan.quark.cn/s/1698fe9021d3
+
+---
+
+## 顶置游戏
 
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.2.381918 全DLC 中文版（心理恐怖游戏）
 
@@ -101,48 +89,6 @@
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.0 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.54786.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
-
-#### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/0ec3b235f7db
-
-#### 《苏丹的游戏（Sultans Game）》v1.0.155f2ad4 中文版
-
-夸克：https://pan.quark.cn/s/41c184b7bd72
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.3 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
-
-#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29315 中文 联机版
-
-夸克：https://pan.quark.cn/s/4c68712bb95c
-
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46891 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
-
-#### 《密室逃脱模拟器2（Escape Simulator 2）》v17073r 中文 联机版
-
-夸克：https://pan.quark.cn/s/7cfd55cbc9c2
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.16218 全DLC 中文版（完整版）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
-
----
-
-## 顶置游戏
-
-#### 《小小梦魇3（Little Nightmares 3）》v2025.10.17 全DLC 中文 联机版（附前2部 恐怖解密）
-
-夸克：https://pan.quark.cn/s/23c16824e3ac
-
-迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.0c 全DLC 中文配音 联机版
 
@@ -357,6 +303,72 @@
 ---
 
 ## 已有游戏
+
+#### 《怪物猎人物语（Monster Hunter Stories）》V1.1.1 全DLC 中文版（电脑版）
+
+夸克：https://pan.quark.cn/s/a9adb075c61f
+
+#### 《莱莎的炼金工房 ～常暗女王与秘密藏身处～ DX》v1.00 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a287f80efc9d
+
+#### 《莱莎的炼金工房２ ～失落传说与秘密妖精～ DX》v1.00 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a287f80efc9d
+
+#### 《莱莎的炼金工房３ ～终结之炼金术士与秘密钥匙～ DX》v1.00 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a287f80efc9d
+
+迅雷：https://pan.xunlei.com/s/VO5RjFCQ4nNCH4NXz6k3luXVA1?pwd=z78j#
+
+#### 《我的26岁女房客：在云端（My 26-Year-Old Female Tenant）》Build.20772825 中文版
+
+夸克：https://pan.quark.cn/s/590198b28709
+
+#### 《二进制领域（Binary Domain）》v1.0 up2 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/fb33a499569b
+
+#### 《沃尔森：破坏领主（Wolcen Lords of Mayhem）》v1.1.7.16.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0928fbd3d8a7
+
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.0 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.54786.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51201cccd0db
+
+#### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/0ec3b235f7db
+
+#### 《苏丹的游戏（Sultans Game）》v1.0.155f2ad4 中文版
+
+夸克：https://pan.quark.cn/s/41c184b7bd72
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.3 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29315 中文 联机版
+
+夸克：https://pan.quark.cn/s/4c68712bb95c
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46891 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《密室逃脱模拟器2（Escape Simulator 2）》v17073r 中文 联机版
+
+夸克：https://pan.quark.cn/s/7cfd55cbc9c2
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.16218 全DLC 中文版（完整版）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
 
 #### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
 
@@ -2987,10 +2999,6 @@
 #### 《这个座位有人坐吗？（Is This Seat Taken）》Build.19192001 中文版
 
 夸克：https://pan.quark.cn/s/9ca3134e281c
-
-#### 《德洛瓦：被弃之族（Drova - Forsaken Kin）》v1.3.3 汉化版
-
-夸克：https://pan.quark.cn/s/1698fe9021d3
 
 #### 《City Defense Z》v2025.8.26 中文版（末世丧尸防御、策略塔防游戏）
 
