@@ -48,9 +48,17 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《阿西 美女室友竟然2（Five Hearts Under One Roof）》v2025.11.21 中文版（附第一部 韩国真人互动影游）
+
+夸克：https://pan.quark.cn/s/b6fb3fbe26bf
+
 #### 《星球大战：战机中队（Star Wars Squadrons）》v1.0.10.39591 中文版
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
+
+#### 《无用之人：登神长阶（Wretch Divine Ascent）》v1.0.1 中文版（自走棋游戏）
+
+夸克：https://pan.quark.cn/s/d566c629a2c0
 
 #### 《龟龟潜海记（Shelldiver）》v1.0.0.500 中文版
 
@@ -85,6 +93,10 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.4 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
 
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
 
@@ -381,10 +393,6 @@
 #### 《沃尔森：破坏领主（Wolcen Lords of Mayhem）》v1.1.7.16.12 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0928fbd3d8a7
-
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.0 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
 
 #### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.54786.0 全DLC 中文版
 
@@ -10487,10 +10495,6 @@
 #### 《恋爱大师（Master of Love）》v2024.10.6 中文版（韩国真人互动影游）
 
 夸克：https://pan.quark.cn/s/39fa4d567590
-
-#### 《阿西 美女室友竟然...？（Five Hearts Under One Roof ）》v2024.11.23 中文版（韩国真人互动影游）
-
-夸克：https://pan.quark.cn/s/b6fb3fbe26bf
 
 #### 《重返现场：真人版》v2024.12.20 中文版（真人互动影游）
 

@@ -1872,3 +1872,8 @@
 #### 《过把瘾》（1994）8集全
 
 夸克：https://pan.quark.cn/s/abcdcb8584d5
+
+#### 《珠帘玉幕》（2024）4K 40集全
+
+迅雷：https://pan.xunlei.com/s/VOe_ygNFOnumIfO0-DC4d_HXA1?pwd=2qxq#
+

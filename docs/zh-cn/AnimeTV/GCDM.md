@@ -21,12 +21,6 @@
 ---
 ## 周一
 
-#### 《西行纪》（2018-2025）大猿魂 4K 更新中..（附1-5季+前缘篇+完结篇+电影版+大猿魂特别篇）
-
-夸克：https://pan.quark.cn/s/55af858bbfba
-
-迅雷：https://pan.xunlei.com/s/VNlmCjkO3Xd3IJVvyYImdJEsA1?pwd=s2va#
-
 #### 《仙逆》（2024）4K 同步更新中..（附剧场版）（修仙鼻祖小说改编）
 
 夸克：https://pan.quark.cn/s/6b30acaf5686
@@ -77,12 +71,6 @@
 
 ## 周三
 
-#### 《一念永恒》（2024）4K 周三 29集更新中..附：1-2季全
-
-夸克：https://pan.quark.cn/s/57db727f4a34
-
-迅雷：https://pan.xunlei.com/s/VNnmDGg4z5Qug3ia-FvETfHoA1?pwd=23vy#
-
 #### 《遮天》（2024）4K 周三 同步更新中..
 
 夸克：https://pan.quark.cn/s/662f20a6b6bb
@@ -92,6 +80,10 @@
 #### 《凌天独尊》（2025）4K 周三 周六更新中.
 
 夸克：https://pan.quark.cn/s/57432651d755
+
+#### 《紫川》（2021-2025）4K 周三更新中..
+
+夸克：https://pan.quark.cn/s/7915edbcba01
 
 ----
 
@@ -184,6 +176,18 @@
 ----
 
 ## 暂时完结
+
+#### 《西行纪》（2018-2025）4K 1-5季+前缘篇+完结篇+电影版+大猿魂特别篇
+
+夸克：https://pan.quark.cn/s/55af858bbfba
+
+迅雷：https://pan.xunlei.com/s/VNlmCjkO3Xd3IJVvyYImdJEsA1?pwd=s2va#
+
+#### 《一念永恒》（2024）4K 1-3季全
+
+夸克：https://pan.quark.cn/s/57db727f4a34
+
+迅雷：https://pan.xunlei.com/s/VNnmDGg4z5Qug3ia-FvETfHoA1?pwd=23vy#
 
 #### 《鬼吹灯之南海归墟》（2024）4K 17集全（动画版）
 
