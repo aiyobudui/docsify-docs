@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
 
+#### 《无人（There Exists Nobody）》v2025.1.24 中文版
+
+夸克：https://pan.quark.cn/s/a0bc009ecba8
+
 #### 《无用之人：登神长阶（Wretch Divine Ascent）》v1.0.1 中文版（自走棋游戏）
 
 夸克：https://pan.quark.cn/s/d566c629a2c0
@@ -94,9 +98,17 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.7 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.4 中文版
 
 夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《双截龙再临（Double Dragon Revive）豪华版》v1.2.0.0 中文版
+
+夸克：https://pan.quark.cn/s/7fac7da65caa
 
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
 
@@ -405,10 +417,6 @@
 #### 《苏丹的游戏（Sultans Game）》v1.0.155f2ad4 中文版
 
 夸克：https://pan.quark.cn/s/41c184b7bd72
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.3 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29315 中文 联机版
 
@@ -1129,10 +1137,6 @@
 #### 《恐惧杀手（Painkiller）豪华版》v224001 中文版
 
 夸克：https://pan.quark.cn/s/127105aa9d46
-
-#### 《双截龙再临（Double Dragon Revive）豪华版》v1.1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/7fac7da65caa
 
 #### 《莱萨里亚：英雄之歌（Lessaria Fantasy Kingdom Sim）豪华版》v1.0.1034 中文版
 
