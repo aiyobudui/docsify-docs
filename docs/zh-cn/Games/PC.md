@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
 
+#### 《星空列车与白的旅行（Starry Sky Railroad）》最新 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/c35428107afd
+
 #### 《无人（There Exists Nobody）》v2025.1.24 中文版
 
 夸克：https://pan.quark.cn/s/a0bc009ecba8
@@ -98,9 +102,21 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》v2025.11.19 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6cbf29567fa4
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.2.5 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.7 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《巨击大乱斗（GigaBash）》v172.1.7.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fa935184f080
 
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.4 中文版
 
@@ -637,10 +653,6 @@
 #### 《龙珠 超宇宙2（DRAGON BALL XENOVERSE 2）特别版》v1.25.01 全DLC 中文 联机版（七龙珠 异战2）
 
 夸克：https://pan.quark.cn/s/ffe1b48f730b
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.1.6 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《枪匠幸存者（NIMRODS）》v0.8.6a 全DLC 中文版
 
@@ -1645,10 +1657,6 @@
 #### 《ROAD59 -新时代任侠特区- 摩天楼黑白抗争》v2025.10.5 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/23b1709b7f23
-
-#### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》Build.11356493 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6cbf29567fa4
 
 #### 《罪恶装备：启示者（GUILTY GEAR Xrd REV 2）豪华版》v2.11 全DLC 中文 联机版
 
@@ -2807,10 +2815,6 @@
 #### 《星球工匠（The Planet Crafter）》v1.526 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/906fb5d5ef50
-
-#### 《巨击大乱斗（GigaBash）》v1.6.6 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fa935184f080
 
 #### 《万物皆可赛车（WHAT THE CAR）》v5.11.0 中文版（休闲小游戏）
 
