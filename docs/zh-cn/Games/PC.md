@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
 
+#### 《Leaf Blower Co.》v2025.11.18 中文版（落叶吹吹吹）
+
+夸克：https://pan.quark.cn/s/d50651fa380e
+
 #### 《星空列车与白的旅行（Starry Sky Railroad）》最新 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/c35428107afd
