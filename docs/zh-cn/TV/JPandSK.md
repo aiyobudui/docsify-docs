@@ -649,6 +649,10 @@
 
 夸克：https://pan.quark.cn/s/2a5ce140b16a
 
+#### 《逆贼：偷百姓的盗贼》（2017）1080P 30集全 国语版
+
+夸克：https://pan.quark.cn/s/c7f527e26e82
+
 #### 《铠甲勇士 系列合集》（2009-2024）4K+1080P 国语配音（特摄剧）
 
 夸克：https://pan.quark.cn/s/d9ecff4c6b18

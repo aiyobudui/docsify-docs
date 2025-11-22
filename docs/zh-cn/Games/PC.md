@@ -52,9 +52,25 @@
 
 夸克：https://pan.quark.cn/s/b6fb3fbe26bf
 
+#### 《溯光行（Retrace The Light）》v1.0.2311 中文版（有中文配音）
+
+夸克：https://pan.quark.cn/s/5775d7a03a85
+
+#### 《怪物来袭（Monsters are Coming! Rock & Road）》v1.0.4.1 中文版（肉鸽生存塔防）
+
+夸克：https://pan.quark.cn/s/9df859865ca6
+
 #### 《星球大战：战机中队（Star Wars Squadrons）》v1.0.10.39591 中文版
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
+
+#### 《幻兽大农场：放置好时光》Build.20781038 中文版（桌面小游戏）
+
+夸克：https://pan.quark.cn/s/241816282295
+
+#### 《老家奇妙日记（Oriental Valley）豪华版》v1.2.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/779d48676941
 
 #### 《Leaf Blower Co.》v2025.11.18 中文版（落叶吹吹吹）
 
@@ -100,11 +116,33 @@
 
 ## 最近更新
 
+#### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179951 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/29e03743d12f
+
+#### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6995620 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9df1078ca763
+
+迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
+
 #### 《小小梦魇3（Little Nightmares 3）》v2025.11.19 全DLC 中文 联机版（附前2部 恐怖解密）
 
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.17.0.1 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/f87f94e17c31
+
+#### 《缺氧（Oxygen Not Included）完整版》vU56-700386 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/608fc7dd1539
+
+#### 《珊瑚岛（Cora Island）豪华版》v1.2.1243 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f8e8a22deace
 
 #### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》v2025.11.19 全DLC 中文版
 
@@ -214,12 +252,6 @@
 
 夸克：https://pan.quark.cn/s/aa4673559fef
 
-#### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.6946847 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9df1078ca763
-
-迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
-
 #### 《死亡岛2（Dead Island 2）黄金版》v7.0.0.1243375 全DLC 联机版
 
 夸克：https://pan.quark.cn/s/165489cfa06c
@@ -259,10 +291,6 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
-
-#### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179243 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/29e03743d12f
 
 #### 《地狱即我们（Hell is Us）》v1.4.22.43941 全DLC 中文版（冒险动作）
 
@@ -2048,10 +2076,6 @@
 
 夸克：https://pan.quark.cn/s/cfeba95ed88c
 
-#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.16.10 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/f87f94e17c31
-
 #### 《弃种：叮叮与圣剑（Forsaker DingDing And Blade）》4.8 中文版
 
 夸克：https://pan.quark.cn/s/2138006c5621
@@ -3382,10 +3406,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNttMzdbquKPx0hR5YfuJ5h8A1?pwd=5crq#
 
-#### 《珊瑚岛（Cora Island）》v1.2-1238 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/f8e8a22deace
-
 #### 《JDM：漂移大师（JDM Japanese Drift Master）》v1.6.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/6728601e9a33
@@ -4053,10 +4073,6 @@
 #### 《诺兰德（Norland）》Build.19064798 中文版
 
 夸克：https://pan.quark.cn/s/d04dc6bff941
-
-#### 《缺氧（Oxygen Not Included）完整版》v678383 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/608fc7dd1539
 
 #### 《Beff Jezos Simulator》v1.1.0.0711 中文版（贝夫杰佐斯模拟器、电商模拟器、玩具商店模拟器）
 

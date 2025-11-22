@@ -26,6 +26,12 @@
 
 阿里：https://www.aliyundrive.com/s/UFmuJ3XPM87
 
+#### 《国产动画电影精选合集》（多部国产高分动画电影，有哪些点进去看）
+
+夸克：https://pan.quark.cn/s/7c7fda9abb69
+
+阿里：<https://www.aliyundrive.com/s/ZeaPQij5TFt>
+
 #### 《迪士尼动画电影合集》蓝光1080P中英配音音轨 内封特效中英字幕 无水印 (收藏版)
 
 夸克：https://pan.quark.cn/s/dc7531337e1a
@@ -49,12 +55,6 @@
 #### 《汤浅政明》导演动画作品合集
 
 夸克：https://pan.quark.cn/s/8dd311235fa7
-
-#### 《国产动画电影精选合集》（多部国产高分动画电影，有哪些点进去看）
-
-夸克：https://pan.quark.cn/s/7c7fda9abb69
-
-阿里：<https://www.aliyundrive.com/s/ZeaPQij5TFt>
 
 #### 《白蛇 系列》（2019-2024）1-3部 4K +1080P
 
