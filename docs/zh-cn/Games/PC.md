@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/11019cbca2fb
+
 #### 《Morsels》v0.30.748 中文版（肉鸽怪兽收集）
 
 夸克：https://pan.quark.cn/s/cf2c571019a1
@@ -84,6 +88,10 @@
 
 ## 最近更新
 
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.3.1 中文版
 
 夸克：https://pan.quark.cn/s/c5741f45562c
@@ -111,6 +119,10 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《太空引擎 SpaceEngine Pro》v0.991 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b18facba2159
 
 #### 《纷争终结者：被遗弃的孩子们（TROUBLESHOOTER Abandoned Children）》v2025.11.3 全DLC 中文版
 
@@ -198,10 +210,6 @@
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.5.0 中文版
 
 夸克：https://pan.quark.cn/s/9baad4a27102
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.0c 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
 
@@ -10047,10 +10055,6 @@
 #### 《幸存者之地》最新 中文版
 
 夸克：https://pan.quark.cn/s/172a562a56a8
-
-#### 《太空引擎 SpaceEngine Pro》v0.990.47.2015 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/b18facba2159
 
 #### 《意大利黑手党2》v1.0.8
 
