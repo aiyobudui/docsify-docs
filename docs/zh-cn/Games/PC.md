@@ -84,6 +84,14 @@
 
 ## 最近更新
 
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.3.1 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.7.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ae92fcbace04
+
 #### 《失落之魂（Lost Soul Aside）豪华版》v1.100 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/254473ee08f7
@@ -103,6 +111,18 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《纷争终结者：被遗弃的孩子们（TROUBLESHOOTER Abandoned Children）》v2025.11.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/13060dc8e032
+
+#### 《Aquarist》v2025.11.23 全DLC 中文版（建造水族馆，繁殖鱼类，拓展你的业务!）
+
+夸克：https://pan.quark.cn/s/7be489024f05
+
+#### 《gogh 虚拟形象与专注（gogh Focus with Your Avatar）》v2.4.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3e63ef024498
 
 #### 《预视武宗（Forestrike）》v1.0.2330 中文版
 
@@ -148,13 +168,16 @@
 
 夸克：https://pan.quark.cn/s/fa935184f080
 
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.2.4 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
-
 #### 《双截龙再临（Double Dragon Revive）豪华版》v1.2.0.0 中文版
 
 夸克：https://pan.quark.cn/s/7fac7da65caa
+
+#### 《迷失（Stray）》v1.5.368 中文版（扮演猫猫来冒险闯关）
+
+夸克：https://pan.quark.cn/s/fa06641b9788
+
+迅雷：https://pan.xunlei.com/s/VNs2JTKih6z3z_UlnNmyGpIiA1?pwd=ahua#
+
 
 ---
 
@@ -231,10 +254,6 @@
 #### 《心之眼（MindsEye）》v5437054 中文版
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
-
-#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.6.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ae92fcbace04
 
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
@@ -1085,10 +1104,6 @@
 #### 《巫师与学徒（Arcana Academy）》v2025.10.27 中文版（卡牌游戏）
 
 夸克：https://pan.quark.cn/s/7665dfdd9b04
-
-#### 《gogh：虚拟形象与专注（gogh Focus with Your Avatar）》v2.2.1 中文版
-
-夸克：https://pan.quark.cn/s/3e63ef024498
 
 #### 《奥术之路（Arcane Path）》v2025.10.24 中文版（卡牌策略）
 
@@ -2791,10 +2806,6 @@
 #### 《弹药和氧气（Ammo and Oxygen）》v2025.9.8 中文版
 
 夸克：https://pan.quark.cn/s/0f8c5fa91f05
-
-#### 《纷争终结者：被遗弃的孩子们（TROUBLESHOOTER Abandoned Children）》v2025.9.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/13060dc8e032
 
 #### 《权臣（The Minister）》v2025.9.8 中文版
 
@@ -5432,10 +5443,6 @@
 #### 《蟹蟹寻宝奇遇（Another Crabs Treasure）》v2.0.000.3 中文版
 
 夸克：https://pan.quark.cn/s/c1c2b1c4caab
-
-#### 《Aquarist》v2025.5.1 全DLC 中文版（水族馆管理与养鱼游戏）
-
-夸克：https://pan.quark.cn/s/7be489024f05
 
 #### 《卡库远古封印（Kaku Ancient Seal）》v1.07.1498596 全DLC 中文版
 
@@ -10256,12 +10263,6 @@
 夸克：https://pan.quark.cn/s/800d50db60ed
 
 迅雷：https://pan.xunlei.com/s/VNtVzRL-ldLuxGXYoAqhx85PA1?pwd=iquz#
-
-#### 《Stray 迷失》扮演猫猫来冒险闯关
-
-夸克：https://pan.quark.cn/s/034cb4130bde
-
-迅雷：https://pan.xunlei.com/s/VNs2JTKih6z3z_UlnNmyGpIiA1?pwd=ahua#
 
 #### 《坦克修理模拟器》v1.5.5-70079 中文 整合谢尔曼DLC
 

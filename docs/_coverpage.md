@@ -114,6 +114,6 @@ small {
 
 [进  入](home)
 [留言板](/zh-cn/bbs)
-[电脑游戏](/zh-cn/Games/PC)
+[电脑游戏](/zh-cn/games/pc)
 [QQ群①](https://qm.qq.com/q/7XUsPNUXPq)
 [打  赏](/zh-cn/dashang)
