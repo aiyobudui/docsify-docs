@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《Morsels》v0.30.748 中文版（肉鸽怪兽收集）
+
+夸克：https://pan.quark.cn/s/cf2c571019a1
+
 #### 《阿西 美女室友竟然2（Five Hearts Under One Roof）》v2025.11.21 中文版（附第一部 韩国真人互动影游）
 
 夸克：https://pan.quark.cn/s/b6fb3fbe26bf
@@ -76,45 +80,13 @@
 
 夸克：https://pan.quark.cn/s/d50651fa380e
 
-#### 《星空列车与白的旅行（Starry Sky Railroad）》最新 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/c35428107afd
-
-#### 《无人（There Exists Nobody）》v2025.1.24 中文版
-
-夸克：https://pan.quark.cn/s/a0bc009ecba8
-
-#### 《无用之人：登神长阶（Wretch Divine Ascent）》v1.0.1 中文版（自走棋游戏）
-
-夸克：https://pan.quark.cn/s/d566c629a2c0
-
-#### 《龟龟潜海记（Shelldiver）》v1.0.0.500 中文版
-
-夸克：https://pan.quark.cn/s/72e572f8932e
-
-#### 《Mara》v2025.11.20 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/ba3e8017c4e9
-
-#### 《盐与献祭（Salt and Sacrifice）》v2.0.0.1 中文版（盐与避难所2）
-
-夸克：https://pan.quark.cn/s/9df86a649cee
-
-#### 《前方高能（Content Warning）》v1.20.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/d152bf500d26
-
-#### 《预视武宗（Forestrike）》v1.0-2318 中文版
-
-夸克：https://pan.quark.cn/s/7f1285f4bf79
-
-#### 《废都物语 Ruina》v1.2.1 汉化版+安卓版（附攻略+补丁+工具+小说+修G器）
-
-夸克：https://pan.quark.cn/s/a9bc873b9b7b
-
 ---
 
 ## 最近更新
+
+#### 《失落之魂（Lost Soul Aside）豪华版》v1.100 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/254473ee08f7
 
 #### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179951 全DLC 中文版
 
@@ -131,6 +103,22 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《预视武宗（Forestrike）》v1.0.2330 中文版
+
+夸克：https://pan.quark.cn/s/7f1285f4bf79
+
+#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.11.10 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fd2f2389fa35
+
+#### 《灵动世界（Vivid World）》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/bd0d2a5d8aac
+
+#### 《懊悔谷（Rue Valley）》v1.0.1v5 中文版（叙事情感故事）
+
+夸克：https://pan.quark.cn/s/57af60e7c9f7
 
 #### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.17.0.1 全DLC 中文 联机版（新增DLC）
 
@@ -168,53 +156,13 @@
 
 夸克：https://pan.quark.cn/s/7fac7da65caa
 
-#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-#### 《都市天际线2（Cities Skylines 2）终极版》v1.4.2f1 全DLC 中文版（城市天际线2）
-
-夸克：https://pan.quark.cn/s/e78ffec97c4e
-
-#### 《云族裔（inZOI）》v20251118.8820.W 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.4.1461.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
-
-#### 《恐鬼症（Phasmophobia）》v0.15.0.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/f06faddc881c
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.16409 全DLC 中文版（完整版）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
-
-#### 《超自然车旅（Pacific Drive）豪华版》v1.13.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7d338c911bf5
-
-#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.02 中文版（开放世界冒险）
-
-夸克：https://pan.quark.cn/s/6758e2260430
-
-#### 《火星求生：重制版（Surviving Mars Relaunched）终结版》v1.0.2.382778 全DLC 中文版（附原版）
-
-夸克：https://pan.quark.cn/s/15e312a44808
-
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.04.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
-
-#### 《困兽之国（Drova - Forsaken Kin）》v1.3.4a 中文版
-
-夸克：https://pan.quark.cn/s/1698fe9021d3
-
 ---
 
 ## 顶置游戏
+
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
 
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.2.381918 全DLC 中文版（心理恐怖游戏）
 
@@ -404,10 +352,6 @@
 
 夸克：https://pan.quark.cn/s/54c0aaad57e2
 
-#### 《失落之魂（Lost Soul Aside）豪华版》v1.012 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/254473ee08f7
-
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.0.125 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4912658febe6
@@ -423,6 +367,78 @@
 ---
 
 ## 已有游戏
+
+#### 《星空列车与白的旅行（Starry Sky Railroad）》最新 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/c35428107afd
+
+#### 《无人（There Exists Nobody）》v2025.1.24 中文版
+
+夸克：https://pan.quark.cn/s/a0bc009ecba8
+
+#### 《无用之人：登神长阶（Wretch Divine Ascent）》v1.0.1 中文版（自走棋游戏）
+
+夸克：https://pan.quark.cn/s/d566c629a2c0
+
+#### 《龟龟潜海记（Shelldiver）》v1.0.0.500 中文版
+
+夸克：https://pan.quark.cn/s/72e572f8932e
+
+#### 《Mara》v2025.11.20 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/ba3e8017c4e9
+
+#### 《盐与献祭（Salt and Sacrifice）》v2.0.0.1 中文版（盐与避难所2）
+
+夸克：https://pan.quark.cn/s/9df86a649cee
+
+#### 《前方高能（Content Warning）》v1.20.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/d152bf500d26
+
+#### 《废都物语 Ruina》v1.2.1 汉化版+安卓版（附攻略+补丁+工具+小说+修G器）
+
+夸克：https://pan.quark.cn/s/a9bc873b9b7b
+
+#### 《都市天际线2（Cities Skylines 2）终极版》v1.4.2f1 全DLC 中文版（城市天际线2）
+
+夸克：https://pan.quark.cn/s/e78ffec97c4e
+
+#### 《云族裔（inZOI）》v20251118.8820.W 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.4.1461.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
+#### 《恐鬼症（Phasmophobia）》v0.15.0.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/f06faddc881c
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.16409 全DLC 中文版（完整版）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
+
+#### 《超自然车旅（Pacific Drive）豪华版》v1.13.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7d338c911bf5
+
+#### 《尤卡莱莉：回归（Yooka Replaylee）》v1.02 中文版（开放世界冒险）
+
+夸克：https://pan.quark.cn/s/6758e2260430
+
+#### 《火星求生：重制版（Surviving Mars Relaunched）终结版》v1.0.2.382778 全DLC 中文版（附原版）
+
+夸克：https://pan.quark.cn/s/15e312a44808
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.04.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
+
+#### 《困兽之国（Drova - Forsaken Kin）》v1.3.4a 中文版
+
+夸克：https://pan.quark.cn/s/1698fe9021d3
 
 #### 《怪物猎人物语（Monster Hunter Stories）》V1.1.1 全DLC 中文版（电脑版）
 
@@ -797,10 +813,6 @@
 #### 《波维利亚：不归之岛（Poveglia The Island of No Return）》v2025.11.5 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/8290cfbf727e
-
-#### 《灵动世界（Vivid World）》v1.0.2 中文版
-
-夸克：https://pan.quark.cn/s/bd0d2a5d8aac
 
 #### 《虚空破坏者（VOIDBREAKER）》v010.8 中文版
 
@@ -1763,10 +1775,6 @@
 #### 《东方弹幕神乐：失落幻想（Touhou Danmaku Kagura Phantasia Lost）》v1.10.4 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/a0b498666ac1
-
-#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.10.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fd2f2389fa35
 
 #### 《hololive Holo's花札（hololive Holos Hanafuda）》v1.2.0 全DLC 中文版
 
