@@ -72,18 +72,6 @@
 
 夸克：https://pan.quark.cn/s/cd81a5c34f7e
 
-#### 《幻兽大农场：放置好时光》Build.20781038 中文版（桌面小游戏）
-
-夸克：https://pan.quark.cn/s/241816282295
-
-#### 《老家奇妙日记（Oriental Valley）豪华版》v1.2.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/779d48676941
-
-#### 《Leaf Blower Co.》v2025.11.18 中文版（落叶吹吹吹）
-
-夸克：https://pan.quark.cn/s/d50651fa380e
-
 ---
 
 ## 最近更新
@@ -120,6 +108,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《桥梁建筑师 系列合集（Poly Bridge）》3部 最新 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e7a38d40056a
+
+#### 《浣币模拟器（Cash Cleaner Simulator）》v1.3.1.643 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7f01eae4ce9f
+
+#### 《苏丹的游戏（Sultans Game）》v1.0.17115 中文版
+
+夸克：https://pan.quark.cn/s/41c184b7bd72
+
 #### 《太空引擎 SpaceEngine Pro》v0.991 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b18facba2159
@@ -143,53 +143,6 @@
 #### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.11.10 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fd2f2389fa35
-
-#### 《灵动世界（Vivid World）》v1.0.6 中文版
-
-夸克：https://pan.quark.cn/s/bd0d2a5d8aac
-
-#### 《懊悔谷（Rue Valley）》v1.0.1v5 中文版（叙事情感故事）
-
-夸克：https://pan.quark.cn/s/57af60e7c9f7
-
-#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.17.0.1 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/f87f94e17c31
-
-#### 《缺氧（Oxygen Not Included）完整版》vU56-700386 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/608fc7dd1539
-
-#### 《珊瑚岛（Cora Island）豪华版》v1.2.1243 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/f8e8a22deace
-
-#### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》v2025.11.19 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6cbf29567fa4
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.2.5 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.7 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
-
-#### 《巨击大乱斗（GigaBash）》v172.1.7.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fa935184f080
-
-#### 《双截龙再临（Double Dragon Revive）豪华版》v1.2.0.0 中文版
-
-夸克：https://pan.quark.cn/s/7fac7da65caa
-
-#### 《迷失（Stray）》v1.5.368 中文版（扮演猫猫来冒险闯关）
-
-夸克：https://pan.quark.cn/s/fa06641b9788
-
-迅雷：https://pan.xunlei.com/s/VNs2JTKih6z3z_UlnNmyGpIiA1?pwd=ahua#
-
 
 ---
 
@@ -395,6 +348,64 @@
 
 ## 已有游戏
 
+#### 《灵动世界（Vivid World）》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/bd0d2a5d8aac
+
+#### 《懊悔谷（Rue Valley）》v1.0.1v5 中文版（叙事情感故事）
+
+夸克：https://pan.quark.cn/s/57af60e7c9f7
+
+#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.17.0.1 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/f87f94e17c31
+
+#### 《缺氧（Oxygen Not Included）完整版》vU56-700386 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/608fc7dd1539
+
+#### 《幻兽大农场：放置好时光》Build.20781038 中文版（桌面小游戏）
+
+夸克：https://pan.quark.cn/s/241816282295
+
+#### 《老家奇妙日记（Oriental Valley）豪华版》v1.2.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/779d48676941
+
+#### 《Leaf Blower Co.》v2025.11.18 中文版（落叶吹吹吹）
+
+夸克：https://pan.quark.cn/s/d50651fa380e
+
+#### 《珊瑚岛（Cora Island）豪华版》v1.2.1243 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f8e8a22deace
+
+#### 《逆转裁判123：成步堂精选集（Phoenix Wright Ace Attorney Trilogy）》v2025.11.19 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6cbf29567fa4
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.2.5 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.7 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《巨击大乱斗（GigaBash）》v172.1.7.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fa935184f080
+
+#### 《双截龙再临（Double Dragon Revive）豪华版》v1.2.0.0 中文版
+
+夸克：https://pan.quark.cn/s/7fac7da65caa
+
+#### 《迷失（Stray）》v1.5.368 中文版（扮演猫猫来冒险闯关）
+
+夸克：https://pan.quark.cn/s/fa06641b9788
+
+迅雷：https://pan.xunlei.com/s/VNs2JTKih6z3z_UlnNmyGpIiA1?pwd=ahua#
+
 #### 《星空列车与白的旅行（Starry Sky Railroad）》最新 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/c35428107afd
@@ -504,10 +515,6 @@
 #### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/0ec3b235f7db
-
-#### 《苏丹的游戏（Sultans Game）》v1.0.155f2ad4 中文版
-
-夸克：https://pan.quark.cn/s/41c184b7bd72
 
 #### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29315 中文 联机版
 
@@ -2546,10 +2553,6 @@
 #### 《Fate/hollow ataraxia REMASTERED 复刻版》v1.0.3.726 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/5fec93a2e98b
-
-#### 《浣币模拟器（Cash Cleaner Simulator）》v1.2.2.368 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7f01eae4ce9f
 
 #### 《义闻录：轮回（Echoes of Yi Samsara）》v16.547 中文版
 
@@ -10815,10 +10818,6 @@
 #### 《苏打地牢 系列合集（Soda Dungeon）》2部 最新 中文版（附安卓版）
 
 夸克：https://pan.quark.cn/s/94e54759dbe7
-
-#### 《桥梁建筑师 系列合集（Poly Bridge）》3部 最新 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e7a38d40056a
 
 #### 《三国志英杰传 + 曹操传 系列合集》很多 里面有啥自己看
 
