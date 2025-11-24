@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
 
+#### 《Windswept》v1.0.2 中文版（双角色跳跃平台）
+
+夸克：https://pan.quark.cn/s/1c9da7c4ea7a
+
 #### 《Morsels》v0.30.748 中文版（肉鸽怪兽收集）
 
 夸克：https://pan.quark.cn/s/cf2c571019a1
@@ -107,6 +111,10 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
+
+#### 《孤岛猎神（Day of the Shell）》v1.1.11 中文版
+
+夸克：https://pan.quark.cn/s/d7f5075eafc7
 
 #### 《桥梁建筑师 系列合集（Poly Bridge）》3部 最新 全DLC 中文版
 
@@ -1985,10 +1993,6 @@
 #### 《古墓丽影：崛起（Rise of the Tomb Raider）20周年纪念版》v1.0.1.0 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/8c417acf572b
-
-#### 《孤岛猎神（Day of the Shell）》v1.1.10 中文版
-
-夸克：https://pan.quark.cn/s/d7f5075eafc7
 
 #### 《Ara：不为人知的历史（Ara History Untold）周年纪念版》v2.0.0.523 全DLC 中文版（标杆文明的策略游戏）
 
