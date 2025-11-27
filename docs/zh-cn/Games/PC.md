@@ -112,6 +112,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
 
+#### 《我的小绿屋（Urban Jungle）》v1.0.70.1 中文版
+
+夸克：https://pan.quark.cn/s/e2cc498d8ddf
+
 #### 《孤岛猎神（Day of the Shell）》v1.1.11 中文版
 
 夸克：https://pan.quark.cn/s/d7f5075eafc7
@@ -5576,10 +5580,6 @@
 #### 《海山 昆仑镜（Mirror of Heaven）》v1.41 中文版
 
 夸克：https://pan.quark.cn/s/a2f23a5e41c7
-
-#### 《我的小绿屋（Urban Jungle）》v1.0.68.3 中文版
-
-夸克：https://pan.quark.cn/s/e2cc498d8ddf
 
 #### 《山门与幻境（The Lost Village）》v1.2.12 全DLC 中文版
 

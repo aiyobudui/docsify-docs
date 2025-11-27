@@ -25,6 +25,16 @@
 
 ## 正在更新中的..
 
+#### 《怪奇物语》（2016-2025）第五期 4K 更新中..（1-4季全+SP 蓝光4K 内封中英特效字幕 FRDS压制）
+
+夸克：https://pan.quark.cn/s/61be75bdc7a6
+
+迅雷：https://pan.xunlei.com/s/VNlU1IN4k8Xd4UC1nkTpcbpDA1?pwd=rrkp#
+
+百度：<https://pan.baidu.com/s/1vJ9mQsKxN4aX9HBSyvxXLw?pwd=0000>
+
+阿里：<https://www.aliyundrive.com/s/MhuPDUn4MqV>
+
 #### 《同乐者 Pluribus》（2025）1080P 中字 9集 更新中..
 
 夸克：https://pan.quark.cn/s/4fb4fac22576
@@ -33,29 +43,35 @@
 
 夸克：https://pan.quark.cn/s/e36a0bbcd0cf
 
-#### 《入侵》（2021-2025）第三季 1080P 更新中..（附 1-2季全 外星人入侵科幻剧）
+---
+
+## 已完结的
+
+#### 《塔尔萨之王》（2022-2025）1-3季全 1080P 中英字幕
+
+夸克：https://pan.quark.cn/s/51deca0624bc
+
+迅雷：https://pan.xunlei.com/s/VOAGZP-AM4QiVvOwdB3hUImCA1?pwd=ezec#
+
+#### 《入侵》（2021-2025）1-3季全（外星人入侵科幻剧）
 
 夸克：https://pan.quark.cn/s/3b1f47eab5e6
 
 迅雷：https://pan.xunlei.com/s/VO_gO4e3Eu522eqxwmZLO7FuA1?pwd=izai#
 
-#### 《异形：地球  Alien：Earth》（2025）1080P 8集 更新中...（科幻）
+#### 《异形：地球  Alien：Earth》（2025）1080P 8集全（科幻）
 
 夸克：https://pan.quark.cn/s/f6d9987ede6f
 
 迅雷：https://pan.xunlei.com/s/VO_gLXmtNyXmC-lyAP1UmE55A1?pwd=2xce#
 
-#### 《V世代》（2023-2025）第二季 4K 更新中..（附第一季 黑袍纠察队衍生新剧）
+#### 《V世代》（2023-2025）1-2季全 4K （黑袍纠察队衍生新剧）
 
 夸克：https://pan.quark.cn/s/2ead2457f148
 
 迅雷：https://pan.xunlei.com/s/VNncVnj-NHs2eqzeLKvYHI4hA1?pwd=4bi4#
 
 阿里：<https://www.aliyundrive.com/s/vKUUX8aGQev>
-
-----
-
-## 已完结的
 
 #### 《研究院》（2025）1080P 中字 8集全（又名：异能研究所）
 
@@ -198,12 +214,6 @@
 #### 《百年孤独》（2024）1080P 8集全 西班牙+英语
 
 夸克：https://pan.quark.cn/s/8508828cdab2
-
-#### 《塔尔萨之王》（2022-2024）1-2季全 4K+1080P 中英字幕
-
-夸克：https://pan.quark.cn/s/51deca0624bc
-
-迅雷：https://pan.xunlei.com/s/VOAGZP-AM4QiVvOwdB3hUImCA1?pwd=ezec#
 
 #### 《梦魇绝镇》（2022-2024） 1-3季 1080P 中字
 
@@ -790,16 +800,6 @@
 百度：<https://pan.baidu.com/s/1M8Y34VZeiR0SzaPHDdcwTw?pwd=0000>
 
 阿里：<https://www.aliyundrive.com/s/pmp2BjzeD2Y>
-
-#### 《怪奇物语》（2016-2022）1-4季全+SP 蓝光4K 内封中英特效字幕 FRDS压制
-
-夸克：https://pan.quark.cn/s/61be75bdc7a6
-
-迅雷：https://pan.xunlei.com/s/VNlU1IN4k8Xd4UC1nkTpcbpDA1?pwd=rrkp#
-
-百度：<https://pan.baidu.com/s/1vJ9mQsKxN4aX9HBSyvxXLw?pwd=0000>
-
-阿里：<https://www.aliyundrive.com/s/MhuPDUn4MqV>
 
 #### 《绝望主妇》（2014-2011）1-8季全 1080P高码 官中+外挂字幕
 
