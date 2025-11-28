@@ -97,7 +97,7 @@
 
 #### 《师兄啊师兄》（2023-2024）4K 第三季 周四更新中..（附1-2季）
 
-夸克：https://pan.quark.cn/s/805132a82b15
+夸克：https://pan.quark.cn/s/563e6fab4004
 
 迅雷：https://pan.xunlei.com/s/VNm9axELHxKie2GFFXpIfxiUA1?pwd=rg86#
 
