@@ -25,7 +25,7 @@
 
 #### 《一拳超人》1080P 第三季 更新中..（附1-2季台粤日英配音+OVA+英雄之路）
 
-夸克：https://pan.quark.cn/s/3db3f3c86cdd
+夸克：https://pan.quark.cn/s/9a8d1509195a
 
 迅雷：https://pan.xunlei.com/s/VNnSbqTuVIOJAHKixEcO16ToA1?pwd=b6d8#
 
