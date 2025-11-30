@@ -23,10 +23,6 @@
 
 夸克：https://pan.quark.cn/s/bff50906a20e
 
-#### 《爸爸当家》（2022-2025）慢享季 更新中..（附1-3季全）
-
-夸克：https://pan.quark.cn/s/4c0837f09ada
-
 #### 《花儿与少年·同心季》（2025）更新中..
 
 夸克：https://pan.quark.cn/s/28dffa02ef5e
