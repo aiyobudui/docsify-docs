@@ -23,15 +23,15 @@
 
 #### 《唐朝诡事录之长安》（2020-2025）第三季 4K 40集全（附1-2季全）唐朝诡事录3
 
-夸克：https://pan.quark.cn/s/cfa6ddaf8fdd
+夸克：https://pan.quark.cn/s/ff6c97ba7f98
 
 迅雷：https://pan.xunlei.com/s/VO28_YPqnRf86ylmfm93K1HmA1?pwd=rwi3#
 
 阿里：https://www.aliyundrive.com/s/n9UYbWG8fPb
 
-#### 《新闻女王2》（2023-2025）第二季 4K 国粤双语音轨 25集 更新中..（附第一季）
+#### 《新闻女王2》（2023-2025）1-2季全 国粤语配音
 
-夸克：https://pan.quark.cn/s/aba8562cc925
+夸克：https://pan.quark.cn/s/05fefd9c150d
 
 迅雷：https://pan.xunlei.com/s/VNlBhJJdwI1_7ISBwOa3RTREA1?pwd=zqpf#
 

@@ -103,7 +103,7 @@
 
 #### 《诛仙》（2022-2025）4K 第3季 更新中..（附1-2季 4K 52集全）
 
-夸克：https://pan.quark.cn/s/3f035db4b052
+夸克：https://pan.quark.cn/s/c1ad42314f24
 
 迅雷：https://pan.xunlei.com/s/VNv3-1U53KF0Ir94-IdLypI6A1?pwd=4gbr#
 
