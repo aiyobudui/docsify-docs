@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《方块要塞2（Block Fortress 2）》Build.19501829 中文版
+
+夸克：https://pan.quark.cn/s/2cef8ec1817f
+
+#### 《凛冬前线（FrostBound）》Build.20960934 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/df3a4d1c4ead
+
 #### 《主题医院 复刻版（Theme Hospital）》v0.60 中文版
 
 夸克：https://pan.quark.cn/s/a6ff50c9a11c
@@ -59,6 +67,24 @@
 ---
 
 ## 最近更新
+
+#### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/3fbb5a637da1
+
+#### 《心之眼（MindsEye）豪华版》v5702549 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1d8bcee97d85
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.0.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
+#### 《世界盒子（WorldBox：God Simulator）》v0.51.2 中文版（附 手机版+春秋王朝版）
+
+夸克：https://pan.quark.cn/s/23913140daff
 
 #### 《PEAK》v1.47.a 中文 联机版（多人联机爬山）
 
@@ -163,10 +189,6 @@
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/a763fdb76323
-
-#### 《心之眼（MindsEye）》v5437054 中文版
-
-夸克：https://pan.quark.cn/s/1d8bcee97d85
 
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
@@ -1546,10 +1568,6 @@
 
 夸克：https://pan.quark.cn/s/8d2b0b6ea1be
 
-#### 《贪婪之秋2 垂死世界（Kingdom Come Deliverance 2）》2025.3.27 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/3fbb5a637da1
-
 #### 《前学期（Last Term）》v1.01 中文版（校园诡异循环恐怖游戏）
 
 夸克：https://pan.quark.cn/s/32b79b533c19
@@ -2351,12 +2369,6 @@
 #### 《胡闹厨房 全都好吃（Overcooked! All You Can Eat) 》v1173 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/90ad780a2681
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v10.1.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《夏日口袋：流光蓝（Summer Pockets REFLECTION BLUE）》v1.3.2.1 中文版（视觉小说）
 
@@ -8954,10 +8966,6 @@
 #### 《审判：末世生存模拟(Judgment：Apocalypse Survival Simulation)》v1.2.4290 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/48d7db0568ca
-
-#### 《世界盒子（WorldBox：God Simulator）》v0.22.9-558 中文版（附 手机版+春秋王朝版）
-
-夸克：https://pan.quark.cn/s/23913140daff
 
 #### 《英雄连3（Company of Heroes 3）》v1.4.2.21612 全DLC 中文版
 
