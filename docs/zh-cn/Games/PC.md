@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《主题医院 复刻版（Theme Hospital）》v0.60 中文版
+
+夸克：https://pan.quark.cn/s/a6ff50c9a11c
+
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
