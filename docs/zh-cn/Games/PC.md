@@ -52,33 +52,17 @@
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
 
-#### 《Windswept》v1.0.2 中文版（双角色跳跃平台）
-
-夸克：https://pan.quark.cn/s/1c9da7c4ea7a
-
-#### 《Morsels》v0.30.748 中文版（肉鸽怪兽收集）
-
-夸克：https://pan.quark.cn/s/cf2c571019a1
-
-#### 《阿西 美女室友竟然2（Five Hearts Under One Roof）》v2025.11.21 中文版（附第一部 韩国真人互动影游）
-
-夸克：https://pan.quark.cn/s/b6fb3fbe26bf
-
-#### 《溯光行（Retrace The Light）》v1.0.2311 中文版（有中文配音）
-
-夸克：https://pan.quark.cn/s/5775d7a03a85
-
-#### 《怪物来袭（Monsters are Coming! Rock & Road）》v1.0.4.1 中文版（肉鸽生存塔防）
-
-夸克：https://pan.quark.cn/s/9df859865ca6
-
-#### 《星球大战：战机中队（Star Wars Squadrons）》v1.0.10.39591 中文版
-
-夸克：https://pan.quark.cn/s/cd81a5c34f7e
-
 ---
 
 ## 最近更新
+
+#### 《PEAK》v1.47.a 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
+
+---
+
+## 顶置游戏
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.1 全DLC 中文配音 联机版
 
@@ -111,54 +95,6 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
-
-#### 《我的小绿屋（Urban Jungle）》v1.0.70.1 中文版
-
-夸克：https://pan.quark.cn/s/e2cc498d8ddf
-
-#### 《孤岛猎神（Day of the Shell）》v1.1.11 中文版
-
-夸克：https://pan.quark.cn/s/d7f5075eafc7
-
-#### 《桥梁建筑师 系列合集（Poly Bridge）》3部 最新 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e7a38d40056a
-
-#### 《浣币模拟器（Cash Cleaner Simulator）》v1.3.1.643 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7f01eae4ce9f
-
-#### 《苏丹的游戏（Sultans Game）》v1.0.17115 中文版
-
-夸克：https://pan.quark.cn/s/41c184b7bd72
-
-#### 《太空引擎 SpaceEngine Pro》v0.991 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b18facba2159
-
-#### 《纷争终结者：被遗弃的孩子们（TROUBLESHOOTER Abandoned Children）》v2025.11.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/13060dc8e032
-
-#### 《Aquarist》v2025.11.23 全DLC 中文版（建造水族馆，繁殖鱼类，拓展你的业务!）
-
-夸克：https://pan.quark.cn/s/7be489024f05
-
-#### 《gogh 虚拟形象与专注（gogh Focus with Your Avatar）》v2.4.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3e63ef024498
-
-#### 《预视武宗（Forestrike）》v1.0.2330 中文版
-
-夸克：https://pan.quark.cn/s/7f1285f4bf79
-
-#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.11.10 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fd2f2389fa35
-
----
-
-## 顶置游戏
 
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
 
@@ -359,6 +295,70 @@
 ---
 
 ## 已有游戏
+
+#### 《Windswept》v1.0.2 中文版（双角色跳跃平台）
+
+夸克：https://pan.quark.cn/s/1c9da7c4ea7a
+
+#### 《Morsels》v0.30.748 中文版（肉鸽怪兽收集）
+
+夸克：https://pan.quark.cn/s/cf2c571019a1
+
+#### 《溯光行（Retrace The Light）》v1.0.2311 中文版（有中文配音）
+
+夸克：https://pan.quark.cn/s/5775d7a03a85
+
+#### 《怪物来袭（Monsters are Coming! Rock & Road）》v1.0.4.1 中文版（肉鸽生存塔防）
+
+夸克：https://pan.quark.cn/s/9df859865ca6
+
+#### 《星球大战：战机中队（Star Wars Squadrons）》v1.0.10.39591 中文版
+
+夸克：https://pan.quark.cn/s/cd81a5c34f7e
+
+#### 《我的小绿屋（Urban Jungle）》v1.0.70.1 中文版
+
+夸克：https://pan.quark.cn/s/e2cc498d8ddf
+
+#### 《孤岛猎神（Day of the Shell）》v1.1.11 中文版
+
+夸克：https://pan.quark.cn/s/d7f5075eafc7
+
+#### 《桥梁建筑师 系列合集（Poly Bridge）》3部 最新 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e7a38d40056a
+
+#### 《浣币模拟器（Cash Cleaner Simulator）》v1.3.1.643 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7f01eae4ce9f
+
+#### 《苏丹的游戏（Sultans Game）》v1.0.17115 中文版
+
+夸克：https://pan.quark.cn/s/41c184b7bd72
+
+#### 《太空引擎 SpaceEngine Pro》v0.991 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b18facba2159
+
+#### 《纷争终结者：被遗弃的孩子们（TROUBLESHOOTER Abandoned Children）》v2025.11.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/13060dc8e032
+
+#### 《Aquarist》v2025.11.23 全DLC 中文版（建造水族馆，繁殖鱼类，拓展你的业务!）
+
+夸克：https://pan.quark.cn/s/7be489024f05
+
+#### 《gogh 虚拟形象与专注（gogh Focus with Your Avatar）》v2.4.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3e63ef024498
+
+#### 《预视武宗（Forestrike）》v1.0.2330 中文版
+
+夸克：https://pan.quark.cn/s/7f1285f4bf79
+
+#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.11.10 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fd2f2389fa35
 
 #### 《灵动世界（Vivid World）》v1.0.6 中文版
 
@@ -1063,10 +1063,6 @@
 #### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
 
 夸克：https://pan.quark.cn/s/b2330660a4a8
-
-#### 《PEAK》v1.34.a 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
 
 #### 《死亡重启（Dead Reset）》v1.0.4 中文版（恐怖游戏）
 
@@ -10442,6 +10438,10 @@
 ---
 ## 互动影游
 > 靠前的是新添加的
+
+#### 《阿西 美女室友竟然2（Five Hearts Under One Roof）》v2025.11.21 中文版（附第一部 韩国真人互动影游）
+
+夸克：https://pan.quark.cn/s/b6fb3fbe26bf
 
 #### 《天命重启：心跳的抉择（Refate Echoes of Desire）》v2025.10.29 中文版（真人互动影游）
 
