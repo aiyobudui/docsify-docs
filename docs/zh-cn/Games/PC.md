@@ -68,6 +68,10 @@
 
 ## 最近更新
 
+#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.9 中文 联机版
+
+夸克：https://pan.quark.cn/s/2ce76d085b7c
+
 #### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/3fbb5a637da1
@@ -4423,10 +4427,6 @@
 #### 《Nanomon Virtual Pet》v2025.6.24 中文版（小小萌——你的终极桌面宠物！）
 
 夸克：https://pan.quark.cn/s/b8a54f6e6869
-
-#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）》v1.2.12.77991 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/2ce76d085b7c
 
 #### 《质量效应：仙女座（Mass Effect Andromeda）豪华版》v1.10 全DLC 汉化版
 
