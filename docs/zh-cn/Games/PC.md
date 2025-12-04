@@ -94,6 +94,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
+#### 《星之侵略者（StarVaders）》v2.0.0 中 全DLC 文版
+
+夸克：https://pan.quark.cn/s/01c83a95a433
+
 #### 《世界盒子（WorldBox：God Simulator）》v0.51.2 中文版（附 手机版+春秋王朝版）
 
 夸克：https://pan.quark.cn/s/23913140daff
@@ -3943,10 +3947,6 @@
 #### 《翼星求生（ICARUS）》v2.3.1.140342 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/d6f92efcdb54
-
-#### 《星之侵略者（StarVaders）》v1.1.0 中文版
-
-夸克：https://pan.quark.cn/s/01c83a95a433
 
 #### 《贸易之路（Let Them Trade）》v1.0.0 中文版
 
