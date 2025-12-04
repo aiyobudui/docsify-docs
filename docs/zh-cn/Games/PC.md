@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《奶奶，是你吗（Grandma Is That You）》v2025.12.4 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/447fd1e7d067
+
 #### 《方块要塞2（Block Fortress 2）》Build.19501829 中文版
 
 夸克：https://pan.quark.cn/s/2cef8ec1817f
@@ -67,6 +71,10 @@
 ---
 
 ## 最近更新
+
+#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/220acef4a4a1
 
 #### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.9 中文 联机版
 
@@ -177,10 +185,6 @@
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/9dd4fa1dcd84
-
-#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.02.4 中文 联机版
-
-夸克：https://pan.quark.cn/s/220acef4a4a1
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
 
