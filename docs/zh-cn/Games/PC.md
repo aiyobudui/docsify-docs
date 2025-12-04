@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《完美音浪（Hi-Fi RUSH）》v2025.12.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/4b1b241ae64b
+
 #### 《奶奶，是你吗（Grandma Is That You）》v2025.12.4 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/447fd1e7d067
@@ -79,6 +83,14 @@
 #### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.9 中文 联机版
 
 夸克：https://pan.quark.cn/s/2ce76d085b7c
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.8 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《失落城堡2（Lost Castle 2）》v0.8.3.3 中文 联机版
+
+夸克：https://pan.quark.cn/s/f391be81e520
 
 #### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
 
@@ -437,10 +449,6 @@
 #### 《逃离鸭科夫（Escape From Duckov）》v1.2.5 中文版（附一堆MOD）
 
 夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.7 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《巨击大乱斗（GigaBash）》v172.1.7.2 全DLC 中文版
 
@@ -2821,10 +2829,6 @@
 #### 《岁久丹青（Ink Reverie）》Build.19330987 中文版（古风建造种田经营）
 
 夸克：https://pan.quark.cn/s/59d84e8c04e9
-
-#### 《失落城堡2（Lost Castle 2）》v0.8.1.3 中文 联机版
-
-夸克：https://pan.quark.cn/s/f391be81e520
 
 #### 《细胞分裂5：断罪（Tom Clancy's Splinter Cell Conviction）豪华版》v1.04 汉化 联机版
 
