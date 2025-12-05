@@ -64,6 +64,10 @@
 
 夸克：https://pan.quark.cn/s/2040719c5302
 
+#### 《舒舒服服小岛时光（Cozy Island）》Build.16102025 中文 联机版
+
+夸克：https://pan.quark.cn/s/84ad5ba336d4
+
 #### 《太鼓之达人 咚咚雷音祭（Taiko no Tatsujin Rhythm Festival）》v3.0.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/428458d0ad5b
