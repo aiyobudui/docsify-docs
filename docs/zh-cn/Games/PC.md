@@ -48,7 +48,7 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 中文版
+#### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/6d6532985d59
 
