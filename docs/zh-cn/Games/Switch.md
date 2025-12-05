@@ -56,6 +56,14 @@
 
 夸克：https://pan.quark.cn/s/ea41e9bc3f20
 
+#### 《密特罗德 究极 复刻》v1.0.0 NS 中文版
+
+夸克：https://pan.quark.cn/s/1ece9dd6c247
+
+#### 《密特罗德究极4 穿越未知》v1.1.0 NS整合 美区中文版
+
+夸克：https://pan.quark.cn/s/8e63fda3164c
+
 #### 《大人的Nintendo Switch脑部锻炼》v1.1.0 NS 中文版（大人的脑部锻炼）
 
 夸克：https://pan.quark.cn/s/17697a46539a

@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/6d6532985d59
 
+#### 《云之国（Cloudheim）》vCL87001 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6afb4342e8a
+
 #### 《完美音浪（Hi-Fi RUSH）》v2025.12.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
@@ -115,6 +119,10 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《模拟人生4（The Sims 4）豪华版》v1.119.109.1020 全DLC 中文 联机版 附联机教程
+
+夸克：https://pan.quark.cn/s/844d489a7abd
 
 #### 《失落城堡2（Lost Castle 2）》v0.8.3.3 中文 联机版
 
@@ -4091,10 +4099,6 @@
 #### 《成圣之道（Becoming Saint）》v2025.7.16 中文版
 
 夸克：https://pan.quark.cn/s/63c1f010e091
-
-#### 《模拟人生4（The Sims 4）》v1.116.232.1030 全DLC 豪华中文 联机版 附联机教程
-
-夸克：https://pan.quark.cn/s/844d489a7abd
 
 #### 《蚂蚁帝国（Empire of the Ants）》v1.04.20550 中文版
 
