@@ -52,6 +52,18 @@
 
 夸克：https://pan.quark.cn/s/ea41e9bc3f20
 
+#### 《大人的Nintendo Switch脑部锻炼》v1.1.0 NS 中文版（大人的脑部锻炼）
+
+夸克：https://pan.quark.cn/s/17697a46539a
+
+#### 《舞力全开 LEGACY Plus》v2.2 全DLC NS整合 中文版 [1370首歌］
+
+夸克：https://pan.quark.cn/s/23abc7b42fc1
+
+#### 《太鼓达人 咚咚雷音祭》v3.3.1 全DLC NS整合 中文版
+
+夸克：https://pan.quark.cn/s/76e4c8fcf5d4
+
 #### 《植物大战僵尸 重植版》v1.1.0 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/0e246c4828ee

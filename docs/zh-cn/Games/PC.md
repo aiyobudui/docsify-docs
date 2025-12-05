@@ -31,7 +31,7 @@
 
 #### 《PC游戏 总目录》不能实现搜索，请在文档或者网站搜索
 
-夸克：https://pan.quark.cn/s/2a1ce17aed90
+夸克：https://pan.quark.cn/s/f236e6b0002e
 
 迅雷：https://pan.xunlei.com/s/VOY6VxoeeebiD_D7L6XEZ-aSA1?pwd=gtqt#
 
@@ -48,9 +48,29 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 中文版
+
+夸克：https://pan.quark.cn/s/6d6532985d59
+
 #### 《完美音浪（Hi-Fi RUSH）》v2025.12.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
+
+#### 《康斯坦丝（Constance）》Build.1.0.2.77733 中文版（2D手绘动作冒险）
+
+夸克：https://pan.quark.cn/s/d2a577f4ea3f
+
+#### 《黑夜刀锋：幸存者（Night Swarm）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/2040719c5302
+
+#### 《太鼓之达人 咚咚雷音祭（Taiko no Tatsujin Rhythm Festival）》v3.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/428458d0ad5b
+
+#### 《世外之地（Outlanders）》Build.18611776 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6d389166075c
 
 #### 《奶奶，是你吗（Grandma Is That You）》v2025.12.4 中文版（心理恐怖游戏）
 
@@ -88,6 +108,10 @@
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
 
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
 #### 《失落城堡2（Lost Castle 2）》v0.8.3.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/f391be81e520
@@ -121,10 +145,6 @@
 ---
 
 ## 顶置游戏
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.3.1 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.3.1 中文版
 
