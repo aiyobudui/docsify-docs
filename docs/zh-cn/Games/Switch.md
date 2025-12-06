@@ -76,7 +76,7 @@
 
 夸克：https://pan.quark.cn/s/76e4c8fcf5d4
 
-#### 《植物大战僵尸 重植版》v1.1.0 NS整合 中文版
+#### 《植物大战僵尸 重植版》v1.4.0 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/0e246c4828ee
 

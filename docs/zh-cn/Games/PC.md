@@ -60,6 +60,14 @@
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
 
+#### 《ANGST A TALE OF SURVIVAL》v2025.12.6 中文版（黑暗生存游戏）
+
+夸克：https://pan.quark.cn/s/8f8ca343e930
+
+#### 《裂隙防线（Repel The Rifts）》v0.13.28 中文版
+
+夸克：https://pan.quark.cn/s/7d5a41610f6e
+
 #### 《康斯坦丝（Constance）》Build.1.0.2.77733 中文版（2D手绘动作冒险）
 
 夸克：https://pan.quark.cn/s/d2a577f4ea3f
@@ -108,7 +116,7 @@
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
 
-#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.9 中文 联机版
+#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.9 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/2ce76d085b7c
 
@@ -119,6 +127,14 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《方块公国 (Drop Duchy）》v1.2.12 全DLC 中文版（俄罗斯方块）
+
+夸克：https://pan.quark.cn/s/632298c20af7
+
+#### 《战锤40K：战区（Warhammer 40000 Battlesector）豪华版》v1.5.331 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2cd1e90a428b
 
 #### 《模拟人生4（The Sims 4）豪华版》v1.119.109.1020 全DLC 中文 联机版 附联机教程
 
@@ -2406,10 +2422,6 @@
 
 夸克：https://pan.quark.cn/s/90b60ae2cc4a
 
-#### 《方块公国 (Drop Duchy）》v1.1.18 中文版（俄罗斯方块）
-
-夸克：https://pan.quark.cn/s/632298c20af7
-
 #### 《寻找伪人（No Im not a Human）》v1.1.17 中文版
 
 夸克：https://pan.quark.cn/s/50375cac2ce2
@@ -4411,10 +4423,6 @@
 #### 《盒子城2（Boxville 2）》v2025.6.27 中文版（附第1部）益智解密
 
 夸克：https://pan.quark.cn/s/f27adce51b9d
-
-#### 《战锤40K：战区（Warhammer 40000 Battlesector）豪华版》v1.5.275 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2cd1e90a428b
 
 #### 《废土之歌（Shambles Sons of Apocalypse）》v1.3.23 中文版
 
