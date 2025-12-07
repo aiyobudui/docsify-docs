@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
 
+#### 《月球任务（ROUTINE）》v1.7.0.0 中文版（科幻恐怖游戏）
+
+夸克：https://pan.quark.cn/s/199d7e6f3ab3
+
 #### 《灰雨钢锋（Of Ash and Steel）》v1.04 中文版
 
 夸克：https://pan.quark.cn/s/9c5a315866f7
