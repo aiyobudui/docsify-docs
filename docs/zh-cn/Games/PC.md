@@ -96,6 +96,12 @@
 
 ## 最近更新
 
+#### 《幻兽帕鲁（Palworld）》v0.6.9.82911 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
@@ -193,12 +199,6 @@
 夸克：https://pan.quark.cn/s/a507e892f30a
 
 迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
-
-#### 《幻兽帕鲁（Palworld）》v0.6.9.82048 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
 
