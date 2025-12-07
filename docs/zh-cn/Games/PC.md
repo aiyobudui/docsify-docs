@@ -60,6 +60,14 @@
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
 
+#### 《灰雨钢锋（Of Ash and Steel）》v1.04 中文版
+
+夸克：https://pan.quark.cn/s/9c5a315866f7
+
+#### 《异形：火力精英（Aliens Fireteam Elite）》v1.0.5.114949 全DLC 中文 联机版（异形：精英小队）
+
+夸克：https://pan.quark.cn/s/4566be55e147
+
 #### 《ANGST A TALE OF SURVIVAL》v2025.12.6 中文版（黑暗生存游戏）
 
 夸克：https://pan.quark.cn/s/8f8ca343e930
@@ -72,41 +80,13 @@
 
 夸克：https://pan.quark.cn/s/d2a577f4ea3f
 
+#### 《红怪（Carrion）豪华版》v1.0.5.643 全DLC 中文版（逆转恐怖游戏）
+
+夸克：https://pan.quark.cn/s/36fe581927ec
+
 #### 《黑夜刀锋：幸存者（Night Swarm）》v1.0.1 中文版
 
 夸克：https://pan.quark.cn/s/2040719c5302
-
-#### 《舒舒服服小岛时光（Cozy Island）》Build.16102025 中文 联机版
-
-夸克：https://pan.quark.cn/s/84ad5ba336d4
-
-#### 《太鼓之达人 咚咚雷音祭（Taiko no Tatsujin Rhythm Festival）》v3.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/428458d0ad5b
-
-#### 《世外之地（Outlanders）》Build.18611776 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6d389166075c
-
-#### 《奶奶，是你吗（Grandma Is That You）》v2025.12.4 中文版（心理恐怖游戏）
-
-夸克：https://pan.quark.cn/s/447fd1e7d067
-
-#### 《方块要塞2（Block Fortress 2）》Build.19501829 中文版
-
-夸克：https://pan.quark.cn/s/2cef8ec1817f
-
-#### 《凛冬前线（FrostBound）》Build.20960934 中文版（肉鸽卡牌）
-
-夸克：https://pan.quark.cn/s/df3a4d1c4ead
-
-#### 《主题医院 复刻版（Theme Hospital）》v0.60 中文版
-
-夸克：https://pan.quark.cn/s/a6ff50c9a11c
-
-#### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/11019cbca2fb
 
 ---
 
@@ -132,6 +112,10 @@
 
 夸克：https://pan.quark.cn/s/632298c20af7
 
+#### 《鼠宝小镇（Whiskerwood）》v0.6.173.0 中文版（猫鼠对战城市建造）
+
+夸克：https://pan.quark.cn/s/9b516a2cf02e
+
 #### 《战锤40K：战区（Warhammer 40000 Battlesector）豪华版》v1.5.331 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/2cd1e90a428b
@@ -144,35 +128,13 @@
 
 夸克：https://pan.quark.cn/s/f391be81e520
 
-#### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/3fbb5a637da1
-
-#### 《心之眼（MindsEye）豪华版》v5702549 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1d8bcee97d85
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.0.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
-
-#### 《星之侵略者（StarVaders）》v2.0.0 中 全DLC 文版
-
-夸克：https://pan.quark.cn/s/01c83a95a433
-
-#### 《世界盒子（WorldBox：God Simulator）》v0.51.2 中文版（附 手机版+春秋王朝版）
-
-夸克：https://pan.quark.cn/s/23913140daff
-
-#### 《PEAK》v1.47.a 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
-
 ---
 
 ## 顶置游戏
+
+#### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/11019cbca2fb
 
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.3.1 中文版
 
@@ -393,6 +355,60 @@
 ---
 
 ## 已有游戏
+
+#### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/3fbb5a637da1
+
+#### 《心之眼（MindsEye）豪华版》v5702549 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1d8bcee97d85
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.0.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
+#### 《星之侵略者（StarVaders）》v2.0.0 中 全DLC 文版
+
+夸克：https://pan.quark.cn/s/01c83a95a433
+
+#### 《世界盒子（WorldBox：God Simulator）》v0.51.2 中文版（附 手机版+春秋王朝版）
+
+夸克：https://pan.quark.cn/s/23913140daff
+
+#### 《PEAK》v1.47.a 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
+
+#### 《舒舒服服小岛时光（Cozy Island）》Build.16102025 中文 联机版
+
+夸克：https://pan.quark.cn/s/84ad5ba336d4
+
+#### 《太鼓之达人 咚咚雷音祭（Taiko no Tatsujin Rhythm Festival）》v3.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/428458d0ad5b
+
+#### 《世外之地（Outlanders）》Build.18611776 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6d389166075c
+
+#### 《奶奶，是你吗（Grandma Is That You）》v2025.12.4 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/447fd1e7d067
+
+#### 《方块要塞2（Block Fortress 2）》Build.19501829 中文版
+
+夸克：https://pan.quark.cn/s/2cef8ec1817f
+
+#### 《凛冬前线（FrostBound）》Build.20960934 中文版（肉鸽卡牌）
+
+夸克：https://pan.quark.cn/s/df3a4d1c4ead
+
+#### 《主题医院 复刻版（Theme Hospital）》v0.60 中文版
+
+夸克：https://pan.quark.cn/s/a6ff50c9a11c
 
 #### 《Windswept》v1.0.2 中文版（双角色跳跃平台）
 
@@ -965,10 +981,6 @@
 #### 《诸神灰烬：抉择（Ash of Gods The Way）》v1.11.8.0 全DLC 中文版（策略卡牌）
 
 夸克：https://pan.quark.cn/s/a7a3297dab87
-
-#### 《鼠宝小镇（Whiskerwood）》v0.6.155.0 中文版（猫鼠对战城市建造）
-
-夸克：https://pan.quark.cn/s/9b516a2cf02e
 
 #### 《亚路塔：狐狸狐途的面包冒险（Aeruta）》v1.0.0 中文版
 
