@@ -84,6 +84,10 @@
 
 夸克：https://pan.quark.cn/s/ee94a70b44fa
 
+#### 《无感染区（Infection Free Zone）》v0.25.10.25 2 中文版
+
+夸克：https://pan.quark.cn/s/b7697055707f
+
 #### 《幻兽帕鲁（Palworld）》v0.6.9.82911 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
@@ -2661,10 +2665,6 @@
 #### 《动物收容所2（Animal Shelter 2）》v1.0.32 中文版
 
 夸克：https://pan.quark.cn/s/1057e0a53bfd
-
-#### 《无感染区（Infection Free Zone）》v0.25.9.2 11 中文版
-
-夸克：https://pan.quark.cn/s/b7697055707f
 
 #### 《Fate/hollow ataraxia REMASTERED 复刻版》v1.0.3.726 中文版（视觉小说）
 
