@@ -21,6 +21,8 @@
 
 夸克：https://pan.quark.cn/s/533cc8d7720a
 
+迅雷：https://pan.xunlei.com/s/VOg1cas_5NaciNH2WsBPtrLUA1?pwd=g76x#
+
 #### 《他为什么依然单身》（2025）4K 16集全
 
 夸克：https://pan.quark.cn/s/066a11ffb798

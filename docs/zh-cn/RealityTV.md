@@ -11,13 +11,13 @@
 
 #### 《喜人奇妙夜2》（2024-2025）1-2季全 4K（附前几季）
 
-夸克：https://pan.quark.cn/s/105c50344ec7
+夸克：https://pan.quark.cn/s/af683ab8ee2b
 
 迅雷：https://pan.xunlei.com/s/VO7wj_ndEYkY4fupDFP2XPCEA1?pwd=7khq#
 
 #### 《向往的生活》（2025）第八季 更新中..
 
-夸克：https://pan.quark.cn/s/5af59810958d
+夸克：https://pan.quark.cn/s/7e597b2cbc4c
 
 #### 《王牌对王牌》（2025）第9季全 4K
 

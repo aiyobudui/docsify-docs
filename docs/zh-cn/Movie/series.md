@@ -82,6 +82,10 @@
 
 阿里：https://www.aliyundrive.com/s/ZhH5CQQGG34
 
+#### 《安妮海瑟薇》系列电影合集
+
+夸克：https://pan.quark.cn/s/f0540c7a8c27
+
 #### 《招魂 系列合集》（1952-2025）8部 4K HDR 中字（招魂4：终章）
 
 夸克：https://pan.quark.cn/s/988747990125

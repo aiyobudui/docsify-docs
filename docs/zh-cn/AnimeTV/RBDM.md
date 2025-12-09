@@ -548,7 +548,7 @@
 
 阿里：<https://www.aliyundrive.com/s/QiLGs48eWt9>
 
-#### 《电锯人》（2022）第一季 12集全（附漫画）
+#### 《电锯人》（2022-2025）4K 第一季+剧场版（附漫画）
 
 夸克：https://pan.quark.cn/s/0a3a3a90efe3
 
