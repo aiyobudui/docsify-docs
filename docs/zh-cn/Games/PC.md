@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《人中之龙０ 誓约的场所 导演剪辑版》v1.11 中文版（如龙0 导演剪辑版）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
+#### 《航海奇闻2：传承（Pirates Outlaws 2 Heritage）》v0.7.0 中文版
+
+链接：https://pan.quark.cn/s/7942ac530c95
+
 #### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/6d6532985d59
@@ -60,41 +68,21 @@
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
 
-#### 《月球任务（ROUTINE）》v1.7.0.0 中文版（科幻恐怖游戏）
+#### 《孤胆枪手2：重装上阵（Alien Shooter 2 Reloaded）》v1.2 汉化版
 
-夸克：https://pan.quark.cn/s/199d7e6f3ab3
-
-#### 《灰雨钢锋（Of Ash and Steel）》v1.04 中文版
-
-夸克：https://pan.quark.cn/s/9c5a315866f7
-
-#### 《异形：火力精英（Aliens Fireteam Elite）》v1.0.5.114949 全DLC 中文 联机版（异形：精英小队）
-
-夸克：https://pan.quark.cn/s/4566be55e147
-
-#### 《ANGST A TALE OF SURVIVAL》v2025.12.6 中文版（黑暗生存游戏）
-
-夸克：https://pan.quark.cn/s/8f8ca343e930
-
-#### 《裂隙防线（Repel The Rifts）》v0.13.28 中文版
-
-夸克：https://pan.quark.cn/s/7d5a41610f6e
-
-#### 《康斯坦丝（Constance）》Build.1.0.2.77733 中文版（2D手绘动作冒险）
-
-夸克：https://pan.quark.cn/s/d2a577f4ea3f
-
-#### 《红怪（Carrion）豪华版》v1.0.5.643 全DLC 中文版（逆转恐怖游戏）
-
-夸克：https://pan.quark.cn/s/36fe581927ec
-
-#### 《黑夜刀锋：幸存者（Night Swarm）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/2040719c5302
+夸克：https://pan.quark.cn/s/2ca887e4afca
 
 ---
 
 ## 最近更新
+
+#### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.0 全DLC 中文配音版（新增DLC：破碎理想国）
+
+夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《节奏医生（Rhythm Doctor）》v1.0.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/ee94a70b44fa
 
 #### 《幻兽帕鲁（Palworld）》v0.6.9.82911 中文 联机版
 
@@ -117,26 +105,6 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
-#### 《方块公国 (Drop Duchy）》v1.2.12 全DLC 中文版（俄罗斯方块）
-
-夸克：https://pan.quark.cn/s/632298c20af7
-
-#### 《鼠宝小镇（Whiskerwood）》v0.6.173.0 中文版（猫鼠对战城市建造）
-
-夸克：https://pan.quark.cn/s/9b516a2cf02e
-
-#### 《战锤40K：战区（Warhammer 40000 Battlesector）豪华版》v1.5.331 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2cd1e90a428b
-
-#### 《模拟人生4（The Sims 4）豪华版》v1.119.109.1020 全DLC 中文 联机版 附联机教程
-
-夸克：https://pan.quark.cn/s/844d489a7abd
-
-#### 《失落城堡2（Lost Castle 2）》v0.8.3.3 中文 联机版
-
-夸克：https://pan.quark.cn/s/f391be81e520
 
 ---
 
@@ -215,10 +183,6 @@
 #### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/9dd4fa1dcd84
-
-#### 《冰汽时代2（Frostpunk 2）豪华版》v1.4.1 全DLC 中文配音版
-
-夸克：https://pan.quark.cn/s/d1d00e8c72d5
 
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0C 全DLC 中文版（魂游）
 
@@ -359,6 +323,58 @@
 ---
 
 ## 已有游戏
+
+#### 《方块公国 (Drop Duchy）》v1.2.12 全DLC 中文版（俄罗斯方块）
+
+夸克：https://pan.quark.cn/s/632298c20af7
+
+#### 《鼠宝小镇（Whiskerwood）》v0.6.173.0 中文版（猫鼠对战城市建造）
+
+夸克：https://pan.quark.cn/s/9b516a2cf02e
+
+#### 《战锤40K：战区（Warhammer 40000 Battlesector）豪华版》v1.5.331 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2cd1e90a428b
+
+#### 《模拟人生4（The Sims 4）豪华版》v1.119.109.1020 全DLC 中文 联机版 附联机教程
+
+夸克：https://pan.quark.cn/s/844d489a7abd
+
+#### 《失落城堡2（Lost Castle 2）》v0.8.3.3 中文 联机版
+
+夸克：https://pan.quark.cn/s/f391be81e520
+
+#### 《月球任务（ROUTINE）》v1.7.0.0 中文版（科幻恐怖游戏）
+
+夸克：https://pan.quark.cn/s/199d7e6f3ab3
+
+#### 《灰雨钢锋（Of Ash and Steel）》v1.04 中文版
+
+夸克：https://pan.quark.cn/s/9c5a315866f7
+
+#### 《异形：火力精英（Aliens Fireteam Elite）》v1.0.5.114949 全DLC 中文 联机版（异形：精英小队）
+
+夸克：https://pan.quark.cn/s/4566be55e147
+
+#### 《ANGST A TALE OF SURVIVAL》v2025.12.6 中文版（黑暗生存游戏）
+
+夸克：https://pan.quark.cn/s/8f8ca343e930
+
+#### 《裂隙防线（Repel The Rifts）》v0.13.28 中文版
+
+夸克：https://pan.quark.cn/s/7d5a41610f6e
+
+#### 《康斯坦丝（Constance）》Build.1.0.2.77733 中文版（2D手绘动作冒险）
+
+夸克：https://pan.quark.cn/s/d2a577f4ea3f
+
+#### 《红怪（Carrion）豪华版》v1.0.5.643 全DLC 中文版（逆转恐怖游戏）
+
+夸克：https://pan.quark.cn/s/36fe581927ec
+
+#### 《黑夜刀锋：幸存者（Night Swarm）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/2040719c5302
 
 #### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
 
@@ -5954,10 +5970,6 @@
 #### 《迷宫校舍（School Labyrinth）》v2.05 中文 联机版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/7755a17652f4
-
-#### 《节奏医生（Rhythm Doctor）》v0.17.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/ee94a70b44fa
 
 #### 《蜂语镇（Apico）》v4.3 中文 联机版（已安装官方MOD）
 
