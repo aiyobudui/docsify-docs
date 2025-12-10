@@ -52,13 +52,29 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
-#### 《航海奇闻2：传承（Pirates Outlaws 2 Heritage）》v0.7.0 中文版
-
-链接：https://pan.quark.cn/s/7942ac530c95
-
 #### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/6d6532985d59
+
+#### 《物种战争：启示录（Bad 2 Bad Apocalypse）》v2025.12.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1159397f11db
+
+#### 《整理拾光（Organized Inside）》v1.3.0 中文版
+
+夸克：https://pan.quark.cn/s/e66de63dfd3f
+
+#### 《新闻大厦（News Tower）》v1.0.397.r 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c39dbc18c0d0
+
+#### 《航海奇闻2：传承（Pirates Outlaws 2 Heritage）》v0.7.0 中文版
+
+夸克：https://pan.quark.cn/s/7942ac530c95
+
+#### 《孤胆枪手2：重装上阵（Alien Shooter 2 Reloaded）》v1.2 汉化版
+
+夸克：https://pan.quark.cn/s/2ca887e4afca
 
 #### 《云之国（Cloudheim）》vCL87001 中文 联机版
 
@@ -68,17 +84,27 @@
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
 
-#### 《孤胆枪手2：重装上阵（Alien Shooter 2 Reloaded）》v1.2 汉化版
-
-夸克：https://pan.quark.cn/s/2ca887e4afca
-
 ---
 
 ## 最近更新
 
+#### 《寂静岭F（SILENT HILL F）豪华版》v1.2.382755 全DLC 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/90391fdabda9
+
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.0 全DLC 中文配音版（新增DLC：破碎理想国）
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《群星（Stellaris）终极版》v4.2.1 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e812eb1562dd
+
+迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
+
+#### 《征服之歌（Songs of Conquest）完全版》v1.8.1 全DLC 中文版（回合制策略）
+
+夸克：https://pan.quark.cn/s/e53b0330c930
 
 #### 《节奏医生（Rhythm Doctor）》v1.0.0 中文 联机版
 
@@ -149,10 +175,6 @@
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-#### 《寂静岭F（SILENT HILL F）豪华版》v1.2.381918 全DLC 中文版（心理恐怖游戏）
-
-夸克：https://pan.quark.cn/s/90391fdabda9
 
 #### 《辐射4（Fallout 4）周年版》v1.11.137.0.0 全DLC 中文版
 
@@ -1098,12 +1120,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
 
-#### 《群星（Stellaris）终极版》v4.1.7 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e812eb1562dd
-
-迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
-
 #### 《永恒天空（Forever Skies）豪华版》v1.1.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/13bbd841c5dd
@@ -1209,10 +1225,6 @@
 #### 《狩猎之道（Way of the Hunter）终结版》v1.29 全DLC 中文版（猎人之路）
 
 夸克：https://pan.quark.cn/s/399ba986c9cc
-
-#### 《征服之歌（Songs of Conquest）完全版》v1.7.2 全DLC 中文版（回合制策略）
-
-夸克：https://pan.quark.cn/s/e53b0330c930
 
 #### 《窒爱（SUFFOCATE）》v1.0.1 中文版（生存恐怖游戏）
 
