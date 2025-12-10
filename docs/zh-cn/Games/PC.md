@@ -56,6 +56,14 @@
 
 夸克：https://pan.quark.cn/s/6d6532985d59
 
+#### 《圣域2 重制版（Sacred 2 Remaster）》vCL16183 汉化 联机版
+
+夸克：https://pan.quark.cn/s/7ba04095dc9d
+
+#### 《轮回修仙传（Re-xiuxian Legend）》v2025.12.9 中文版
+
+夸克：https://pan.quark.cn/s/cfb98fe88d3f
+
 #### 《物种战争：启示录（Bad 2 Bad Apocalypse）》v2025.12.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/1159397f11db
@@ -92,6 +100,10 @@
 
 夸克：https://pan.quark.cn/s/90391fdabda9
 
+#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.10.103977 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/2ce76d085b7c
+
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.0 全DLC 中文配音版（新增DLC：破碎理想国）
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
@@ -123,10 +135,6 @@
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
-
-#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.9 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/2ce76d085b7c
 
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.8 全DLC 中文 联机版
 
