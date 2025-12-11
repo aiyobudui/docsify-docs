@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/6d6532985d59
 
+#### 《焦虑小狗（Anxiety Puppy）》v2025.12.10 中文版
+
+夸克：https://pan.quark.cn/s/4714fd4f3acc
+
 #### 《圣域2 重制版（Sacred 2 Remaster）》vCL16183 汉化 联机版
 
 夸克：https://pan.quark.cn/s/7ba04095dc9d
@@ -107,6 +111,14 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.0 全DLC 中文配音版（新增DLC：破碎理想国）
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《维多利亚3（Victoria 3）豪华版》v1.12.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/5b0145311ea9
+
+#### 《帕格尼物语（Pioneers of Pagonia）》最新 中文版
+
+夸克：https://pan.quark.cn/s/5f6e98ee44a0
 
 #### 《群星（Stellaris）终极版》v4.2.1 全DLC 中文 联机版
 
@@ -1675,10 +1687,6 @@
 #### 《最后的咒语（The Last Spell）》v1.2.20.4.s.de 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/da09d7e24047
-
-#### 《维多利亚3（Victoria 3）豪华版》v1.10.6 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/5b0145311ea9
 
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
 
@@ -10230,10 +10238,6 @@
 #### 《动物园之星》v1.2.5.63260 全DLC 豪华中文收藏版 附修改器（修复只能运行一次的问题）
 
 夸克：https://pan.quark.cn/s/11e1a6dd0270
-
-#### 《帕格尼物语》最新 中文版 版本号看链接
-
-夸克：https://pan.quark.cn/s/5f6e98ee44a0
 
 #### 《天穗之咲稻姬》豪华中文最终版+全DLC
 
