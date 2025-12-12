@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《啵点节奏（Bits Bops）》v1.0.0 中文版（节奏小游戏）
+
+夸克：https://pan.quark.cn/s/ce09d817703f
+
+#### 《派对杀手 1+2（party hard）》2部 最新 全DLC 中文版（疯狂派对）
+
+夸克：https://pan.quark.cn/s/b019c8883116
+
 #### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/6d6532985d59

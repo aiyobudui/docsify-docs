@@ -22,9 +22,21 @@
 
 **靠前的是最新添加的**
 
+#### 《电锯人 蕾塞篇 剧场版》（2022-2025）4K 第一季+剧场版（附漫画）
+
+夸克：https://pan.quark.cn/s/0a3a3a90efe3
+
+迅雷：https://pan.xunlei.com/s/VNo62f4hi7Wtop60ZlxqRIlZA1?pwd=ejen#
+
+阿里：https://www.aliyundrive.com/s/6Epnwwt77s7
+
+#### 《阿诺拉》（2025） 4K HDR 外挂中字
+
+夸克：https://pan.quark.cn/s/34dff7752783
+
 #### 《运钞大劫案》（2025）4K 60帧
 
-夸克：https://pan.quark.cn/s/f3a72c25a323
+夸克：https://pan.quark.cn/s/a739f97ea7ba
 
 #### 《浪浪山小妖怪》（2025）4K HDR
 
