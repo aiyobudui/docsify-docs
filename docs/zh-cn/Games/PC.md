@@ -76,6 +76,10 @@
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
 
+#### 《刀剑神域 碎梦边境（SWORD ART ONLINE Fractured Daydream）》v1.5.2.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bb5134dcb570
+
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.2.382755 全DLC 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/90391fdabda9
@@ -87,6 +91,10 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.0 全DLC 中文配音版（新增DLC：破碎理想国）
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.5.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
 
 #### 《茂林源记（Root：The Marauder Expansion）收藏家版》v2.1.1 全DLC 中文版
 
@@ -659,10 +667,6 @@
 #### 《云族裔（inZOI）》v20251118.8820.W 中文版（韩国模拟人生）
 
 夸克：https://pan.quark.cn/s/8458e4ca4a38
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.4.1461.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
 
 #### 《恐鬼症（Phasmophobia）》v0.15.0.0 中文 联机版
 
@@ -1947,10 +1951,6 @@
 夸克：https://pan.quark.cn/s/695816605aeb
 
 迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
-
-#### 《刀剑神域 碎梦边境（SWORD ART ONLINE Fractured Daydream）》v1.4.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bb5134dcb570
 
 #### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
 
