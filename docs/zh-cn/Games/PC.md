@@ -72,6 +72,14 @@
 
 ## 最近更新
 
+#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61339 中文版
+
+夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《禁闭求生2（Grounded 2）》v0.2.2.3 中文 联机版
+
+夸克：https://pan.quark.cn/s/9dd4fa1dcd84
+
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.2 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
@@ -220,10 +228,6 @@
 
 夸克：https://pan.quark.cn/s/bdfdcea387f0
 
-#### 《禁闭求生2（Grounded 2）》v0.2.0.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/9dd4fa1dcd84
-
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0C 全DLC 中文版（魂游）
 
 夸克：https://pan.quark.cn/s/f45144acd21e
@@ -267,10 +271,6 @@
 夸克：https://pan.quark.cn/s/f961d5992bd3
 
 迅雷：https://pan.xunlei.com/s/VNobQXRzwnHPNq9H7Mv6PEXmA1?pwd=kami#
-
-#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v57661 中文版
-
-夸克：https://pan.quark.cn/s/32c452be1479
 
 #### 《最后生还者2：重制版（The Last of Us Part 2 Remastered）》v1.6.10721 中文版（美末2）
 
