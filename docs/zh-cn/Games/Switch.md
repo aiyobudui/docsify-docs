@@ -48,7 +48,7 @@
 
 夸克：https://pan.quark.cn/s/ba323806235b
 
-#### 《宝可梦传说Z-A》v1.0.2 全DLC NS整合 中文版
+#### 《宝可梦传说Z-A》v2.0.0 全DLC NS整合 中文版
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
@@ -216,7 +216,7 @@
 
 夸克：https://pan.quark.cn/s/83869492b208
 
-#### 《文明7》v1.2.5 全DLC NS整合 中文版
+#### 《文明7》v1.3.1 全DLC NS整合 中文版
 
 夸克：https://pan.quark.cn/s/dc3b513887ff
 

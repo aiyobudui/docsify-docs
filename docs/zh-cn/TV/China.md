@@ -17,6 +17,18 @@
 
 ## 正在更新中的...
 
+#### 《长安二十四计》（2025）4K 28集 更新中..
+
+夸克：https://pan.quark.cn/s/43451cf864fd
+
+迅雷：https://pan.xunlei.com/s/VOgMzWzS8RsAcYQbV3XAgnIeA1?pwd=7aif#
+
+#### 《狙击蝴蝶》（2025）4K 30集 更新中..
+
+夸克：https://pan.quark.cn/s/92073f364a08
+
+迅雷：https://pan.xunlei.com/s/VOgMcRWoZaJkeFwFpOCyybbiA1?pwd=dagy#
+
 #### 《大生意人》（2025）4K 40集全
 
 夸克：https://pan.quark.cn/s/533cc8d7720a

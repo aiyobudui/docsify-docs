@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《放松时光：与你共享Lo-Fi故事（Chill with You Lo-Fi Story）》v1.0.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0228709ba196
+
 #### 《啵点节奏（Bits Bops）》v1.0.0 中文版（节奏小游戏）
 
 夸克：https://pan.quark.cn/s/ce09d817703f
@@ -60,46 +64,6 @@
 
 夸克：https://pan.quark.cn/s/b019c8883116
 
-#### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/6d6532985d59
-
-#### 《焦虑小狗（Anxiety Puppy）》v2025.12.10 中文版
-
-夸克：https://pan.quark.cn/s/4714fd4f3acc
-
-#### 《圣域2 重制版（Sacred 2 Remaster）》vCL16183 汉化 联机版
-
-夸克：https://pan.quark.cn/s/7ba04095dc9d
-
-#### 《轮回修仙传（Re-xiuxian Legend）》v2025.12.9 中文版
-
-夸克：https://pan.quark.cn/s/cfb98fe88d3f
-
-#### 《物种战争：启示录（Bad 2 Bad Apocalypse）》v2025.12.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1159397f11db
-
-#### 《整理拾光（Organized Inside）》v1.3.0 中文版
-
-夸克：https://pan.quark.cn/s/e66de63dfd3f
-
-#### 《新闻大厦（News Tower）》v1.0.397.r 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c39dbc18c0d0
-
-#### 《航海奇闻2：传承（Pirates Outlaws 2 Heritage）》v0.7.0 中文版
-
-夸克：https://pan.quark.cn/s/7942ac530c95
-
-#### 《孤胆枪手2：重装上阵（Alien Shooter 2 Reloaded）》v1.2 汉化版
-
-夸克：https://pan.quark.cn/s/2ca887e4afca
-
-#### 《云之国（Cloudheim）》vCL87001 中文 联机版
-
-夸克：https://pan.quark.cn/s/c6afb4342e8a
-
 #### 《完美音浪（Hi-Fi RUSH）》v2025.12.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/4b1b241ae64b
@@ -107,6 +71,10 @@
 ---
 
 ## 最近更新
+
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.2 全DLC 中文版（新增修院迷踪DLC）
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
 
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.2.382755 全DLC 中文版（心理恐怖游戏）
 
@@ -119,6 +87,20 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.0 全DLC 中文配音版（新增DLC：破碎理想国）
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《茂林源记（Root：The Marauder Expansion）收藏家版》v2.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fdb300c860c5
+
+#### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.60.04 中文版
+
+夸克：https://pan.quark.cn/s/4d0702c9d08c
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(89) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《维多利亚3（Victoria 3）豪华版》v1.12.0 全DLC 中文 联机版
 
@@ -146,6 +128,10 @@
 
 夸克：https://pan.quark.cn/s/b7697055707f
 
+---
+
+## 顶置游戏
+
 #### 《幻兽帕鲁（Palworld）》v0.6.9.82911 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
@@ -163,10 +149,6 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
----
-
-## 顶置游戏
 
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
@@ -199,10 +181,6 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
-
-#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.1 全DLC 中文版（新增修院迷踪DLC）
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
 
 #### 《辐射4（Fallout 4）周年版》v1.11.137.0.0 全DLC 中文版
 
@@ -377,6 +355,46 @@
 ---
 
 ## 已有游戏
+
+#### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/6d6532985d59
+
+#### 《焦虑小狗（Anxiety Puppy）》v2025.12.10 中文版
+
+夸克：https://pan.quark.cn/s/4714fd4f3acc
+
+#### 《圣域2 重制版（Sacred 2 Remaster）》vCL16183 汉化 联机版
+
+夸克：https://pan.quark.cn/s/7ba04095dc9d
+
+#### 《轮回修仙传（Re-xiuxian Legend）》v2025.12.9 中文版
+
+夸克：https://pan.quark.cn/s/cfb98fe88d3f
+
+#### 《物种战争：启示录（Bad 2 Bad Apocalypse）》v2025.12.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1159397f11db
+
+#### 《整理拾光（Organized Inside）》v1.3.0 中文版
+
+夸克：https://pan.quark.cn/s/e66de63dfd3f
+
+#### 《新闻大厦（News Tower）》v1.0.397.r 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c39dbc18c0d0
+
+#### 《航海奇闻2：传承（Pirates Outlaws 2 Heritage）》v0.7.0 中文版
+
+夸克：https://pan.quark.cn/s/7942ac530c95
+
+#### 《孤胆枪手2：重装上阵（Alien Shooter 2 Reloaded）》v1.2 汉化版
+
+夸克：https://pan.quark.cn/s/2ca887e4afca
+
+#### 《云之国（Cloudheim）》vCL87001 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6afb4342e8a
 
 #### 《方块公国 (Drop Duchy）》v1.2.12 全DLC 中文版（俄罗斯方块）
 
@@ -1215,12 +1233,6 @@
 #### 《刀剑江湖路（Path of Kung Fu）豪华版》v1.0.1.3 中文版
 
 夸克：https://pan.quark.cn/s/53ac0e97ba27
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(86) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《突击：第二次世界大战（RAID World War II）特别版》v25.03 全DLC 中文 联机版（突袭二战）
 
@@ -2929,10 +2941,6 @@
 #### 《纪念碑谷3（Monument Valley 3）》v1.3.19596 中文 电脑版
 
 夸克：https://pan.quark.cn/s/3dce3d7980c4
-
-#### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.59.29 中文版
-
-夸克：https://pan.quark.cn/s/4d0702c9d08c
 
 #### 《地狱卡牌（Hellcard）》v1.1.250807 中文 联机版
 
@@ -6988,10 +6996,6 @@
 #### 《无尽爱丽丝（Endless Alice）》v2025.1.16 中文版
 
 夸克：https://pan.quark.cn/s/df87419d5ca8
-
-#### 《Root：茂林源记（Root：The Marauder Expansion）》v2025.1.16 中文版
-
-夸克：https://pan.quark.cn/s/fdb300c860c5
 
 #### 《幻刃奇美拉（BLADE CHIMERA）》v2025.1.16 中文版
 
