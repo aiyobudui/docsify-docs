@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《破神者（GODBREAKERS）》v2025.12.11 中文 联机版（动作肉鸽）
+
+夸克：https://pan.quark.cn/s/e9d7bd3293cb
+
 #### 《放松时光：与你共享Lo-Fi故事（Chill with You Lo-Fi Story）》v1.0.12 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0228709ba196
