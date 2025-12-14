@@ -76,9 +76,17 @@
 
 ## 最近更新
 
+#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.6.0 中文版
+
+夸克：https://pan.quark.cn/s/9baad4a27102
+
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61339 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15b 全DLC 中文版（魂游）
+
+夸克：https://pan.quark.cn/s/f45144acd21e
 
 #### 《七日杀（7 Days to Die）》v2.5-b18 中文 联机版（多版本自选）
 
@@ -210,10 +218,6 @@
 
 夸克：https://pan.quark.cn/s/3c6a02617ff3
 
-#### 《天外世界2（The Outer Worlds 2）高级版》v1.0.5.0 中文版
-
-夸克：https://pan.quark.cn/s/9baad4a27102
-
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/3a5af4f32c61
@@ -235,10 +239,6 @@
 #### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bdfdcea387f0
-
-#### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.1.0C 全DLC 中文版（魂游）
-
-夸克：https://pan.quark.cn/s/f45144acd21e
 
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
