@@ -80,6 +80,10 @@
 
 夸克：https://pan.quark.cn/s/32c452be1479
 
+#### 《七日杀（7 Days to Die）》v2.5-b18 中文 联机版（多版本自选）
+
+夸克：https://pan.quark.cn/s/30fe4607b484
+
 #### 《禁闭求生2（Grounded 2）》v0.2.2.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/9dd4fa1dcd84
@@ -3357,10 +3361,6 @@
 #### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v889.19 中文版（GTA5增强版）
 
 夸克：https://pan.quark.cn/s/f27bd77aa030
-
-#### 《七日杀（7 Days to Die）》v2.3.b6 中文 联机版（多版本自选）
-
-夸克：https://pan.quark.cn/s/30fe4607b484
 
 #### 《动物迷城（Back to the Dawn）》v2.0.0.27 中文版
 
