@@ -56,6 +56,14 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《北望江山（JSBW Final Version）》v1.15 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/93497f6dd846
+
+#### 《奴役西游记（Enslaved Odyssey to the West）高级版》v1.1 全DLC 英文版
+
+夸克：https://pan.quark.cn/s/5a6b1f40d4f6
+
 #### 《破神者（GODBREAKERS）》v2025.12.11 中文 联机版（动作肉鸽）
 
 夸克：https://pan.quark.cn/s/e9d7bd3293cb
