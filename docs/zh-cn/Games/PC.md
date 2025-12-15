@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.2 中文版（PC版非模拟器版）
+
+夸克：https://pan.quark.cn/s/550ed16aa7c9
+
 #### 《人中之龙０ 誓约的场所 导演剪辑版》v1.11 中文版（如龙0 导演剪辑版）
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
@@ -88,6 +92,10 @@
 
 夸克：https://pan.quark.cn/s/f45144acd21e
 
+#### 《节奏医生（Rhythm Doctor）》v1.0.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/ee94a70b44fa
+
 #### 《七日杀（7 Days to Die）》v2.5-b18 中文 联机版（多版本自选）
 
 夸克：https://pan.quark.cn/s/30fe4607b484
@@ -127,38 +135,6 @@
 #### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.60.04 中文版
 
 夸克：https://pan.quark.cn/s/4d0702c9d08c
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(89) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
-
-#### 《维多利亚3（Victoria 3）豪华版》v1.12.0 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/5b0145311ea9
-
-#### 《帕格尼物语（Pioneers of Pagonia）》最新 中文版
-
-夸克：https://pan.quark.cn/s/5f6e98ee44a0
-
-#### 《群星（Stellaris）终极版》v4.2.1 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e812eb1562dd
-
-迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
-
-#### 《征服之歌（Songs of Conquest）完全版》v1.8.1 全DLC 中文版（回合制策略）
-
-夸克：https://pan.quark.cn/s/e53b0330c930
-
-#### 《节奏医生（Rhythm Doctor）》v1.0.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/ee94a70b44fa
-
-#### 《无感染区（Infection Free Zone）》v0.25.10.25 2 中文版
-
-夸克：https://pan.quark.cn/s/b7697055707f
 
 ---
 
@@ -371,6 +347,34 @@
 ---
 
 ## 已有游戏
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(89) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
+
+#### 《维多利亚3（Victoria 3）豪华版》v1.12.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/5b0145311ea9
+
+#### 《帕格尼物语（Pioneers of Pagonia）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/5f6e98ee44a0
+
+#### 《群星（Stellaris）终极版》v4.2.1 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e812eb1562dd
+
+迅雷：https://pan.xunlei.com/s/VNyaMJxMNH47wljXItgCPhlEA1?pwd=a3dy#
+
+#### 《征服之歌（Songs of Conquest）完全版》v1.8.1 全DLC 中文版（回合制策略）
+
+夸克：https://pan.quark.cn/s/e53b0330c930
+
+#### 《无感染区（Infection Free Zone）》v0.25.10.25 2 中文版
+
+夸克：https://pan.quark.cn/s/b7697055707f
 
 #### 《我独自升级：起立觉醒（Solo Leveling ARISE OVERDRIVE）豪华版》v1.1.71.0 全DLC 中文 联机版
 

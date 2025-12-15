@@ -29,6 +29,12 @@
 
 迅雷：https://pan.xunlei.com/s/VOgMcRWoZaJkeFwFpOCyybbiA1?pwd=dagy#
 
+#### 《毒舌家庭》（2025）4K 24集全
+
+夸克：https://pan.quark.cn/s/7497a8f7af67
+
+迅雷：https://pan.xunlei.com/s/VOgWqAi4_64y3Mn_JheZ_86ZA1?pwd=f42j#
+
 #### 《大生意人》（2025）4K 40集全
 
 夸克：https://pan.quark.cn/s/533cc8d7720a
