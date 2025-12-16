@@ -56,6 +56,18 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《漫威宇宙入侵（MARVEL Cosmic Invasion）》v1.0.0.12409 中文版
+
+夸克：https://pan.quark.cn/s/2ffb58818955
+
+#### 《冥界契约（Netherworld Covenant）》v1.0.2 中文版（3D动作肉鸽）
+
+夸克：https://pan.quark.cn/s/f782c1f22063
+
+#### 《亡魂战纪（Winds Of Arcana Ruination）》v1.201 中文版
+
+夸克：https://pan.quark.cn/s/e5abf7015026
+
 #### 《时光之塔（Tower of Time）》v1.5.1.11880 全DLC 中文版（奇特的冒险游戏）
 
 夸克：https://pan.quark.cn/s/f09a0ea1aa09
@@ -100,9 +112,35 @@
 
 夸克：https://pan.quark.cn/s/32c452be1479
 
+#### 《云之国（Cloudheim）》v88959 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6afb4342e8a
+
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15b 全DLC 中文版（魂游）
 
 夸克：https://pan.quark.cn/s/f45144acd21e
+
+#### 《九日（Nine Sols）典藏版》v2025.12.16 中文版（2D平台动作冒险）
+
+夸克：https://pan.quark.cn/s/7ed87f26d10f
+
+迅雷：https://pan.xunlei.com/s/VNzD0rofXLpKsVRD2s80vHc8A1?pwd=ztsm#
+
+#### 《深岩银河（Deep Rock Galactic）》v1.39.126583.0 全DLC 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/cb16ac738ce8
+
+#### 《露玛岛（Luma Island）》v1.1.5.25810 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9a929198d5a2
+
+#### 《西部公路（Heading Out）》v1.047 中文版（心理恐惧驾驶游戏）
+
+夸克：https://pan.quark.cn/s/1821310e6752
+
+#### 《墙世界2（Wall World 2）》v1.0.9.357 中文版（肉鸽挖矿模拟）
+
+夸克：https://pan.quark.cn/s/91f6468861e8
 
 #### 《鳄鱼侦探布罗格（BROK the InvestiGator）》v1.5.4.9 全DLC 中文版
 
@@ -431,10 +469,6 @@
 #### 《孤胆枪手2：重装上阵（Alien Shooter 2 Reloaded）》v1.2 汉化版
 
 夸克：https://pan.quark.cn/s/2ca887e4afca
-
-#### 《云之国（Cloudheim）》vCL87001 中文 联机版
-
-夸克：https://pan.quark.cn/s/c6afb4342e8a
 
 #### 《方块公国 (Drop Duchy）》v1.2.12 全DLC 中文版（俄罗斯方块）
 
@@ -848,10 +882,6 @@
 
 夸克：https://pan.quark.cn/s/fc45d8adc295
 
-#### 《墙世界2（Wall World 2）》v1.0.9.357 中文版（肉鸽挖矿模拟）
-
-夸克：https://pan.quark.cn/s/91f6468861e8
-
 #### 《所罗门之钥2：酷明岛救出作战（Find The Key 2）》v2025.11.11 中文版（线性恐怖游戏）
 
 夸克：https://pan.quark.cn/s/b95a05f31ce9
@@ -1186,12 +1216,6 @@
 
 夸克：https://pan.quark.cn/s/155d22153703
 
-#### 《九日（Nine Sols）典藏版》v202511032357 中文版（2D平台动作冒险）
-
-夸克：https://pan.quark.cn/s/7ed87f26d10f
-
-迅雷：https://pan.xunlei.com/s/VNzD0rofXLpKsVRD2s80vHc8A1?pwd=ztsm#
-
 #### 《太太！我喜欢你！（Sensei I Like You So Much）》v1.0.0.1028 中文版
 
 夸克：https://pan.quark.cn/s/a64a7ae50f98
@@ -1365,10 +1389,6 @@
 #### 《绝对魔权（Absolum）》v2025.10.23 中文版
 
 夸克：https://pan.quark.cn/s/1179f67a6076
-
-#### 《深岩银河（Deep Rock Galactic）》v1.39.125673.0 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/cb16ac738ce8
 
 #### 《海港物语（Havendock）》v1.2.7 中文版
 
@@ -2053,10 +2073,6 @@
 #### 《犯罪模拟器（Crime Simulator）》v1.19m 中文 联机版
 
 夸克：https://pan.quark.cn/s/98518c51a604
-
-#### 《露玛岛（Luma Island）》v1.1.4.25459 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9a929198d5a2
 
 #### 《虐杀原形 2部（Prototype）》v2025.9.29 汉化版（已修复诸多问题）
 
@@ -4796,10 +4812,6 @@
 #### 《虚拟少女@ 世界末日（VIRTUAL GIRL @ WORLD’S END）》v2025.6.13 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/d030cf3a2b8b
-
-#### 《西部公路（Heading Out）》v1.040 中文版（心理恐惧驾驶游戏）
-
-夸克：https://pan.quark.cn/s/1821310e6752
 
 #### 《塞伯利亚之谜：世界之前（Syberia The World Before）》v1.39367 中文 豪华版
 
