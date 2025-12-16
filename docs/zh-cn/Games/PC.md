@@ -104,6 +104,10 @@
 
 夸克：https://pan.quark.cn/s/f45144acd21e
 
+#### 《鳄鱼侦探布罗格（BROK the InvestiGator）》v1.5.4.9 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/34be69fe9932
+
 #### 《沙石镇时光（My Time at Sandrock）》Build.18623106 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/49f38c7926bb
@@ -844,7 +848,7 @@
 
 夸克：https://pan.quark.cn/s/fc45d8adc295
 
-#### 《墙世界2（Wall World 2）》v1.0.4.323 中文版（肉鸽挖矿模拟）
+#### 《墙世界2（Wall World 2）》v1.0.9.357 中文版（肉鸽挖矿模拟）
 
 夸克：https://pan.quark.cn/s/91f6468861e8
 
@@ -3677,10 +3681,6 @@
 #### 《罗马陨落（Yield! Fall of Rome）》v1.0.5 中文版（回合制策略游戏）
 
 夸克：https://pan.quark.cn/s/719cf5a80fdf
-
-#### 《鳄鱼侦探布罗格（BROK the InvestiGator）》v1.5.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/34be69fe9932
 
 #### 《致命躯壳（Mortal Shell）》v1.014707 全DLC 中文版
 
