@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《时光之塔（Tower of Time）》v1.5.1.11880 全DLC 中文版（奇特的冒险游戏）
+
+夸克：https://pan.quark.cn/s/f09a0ea1aa09
+
 #### 《北望江山（JSBW Final Version）》v1.15 中文版（真人互动影游）
 
 夸克：https://pan.quark.cn/s/93497f6dd846
