@@ -25,6 +25,12 @@
 
 ## 正在更新中的..
 
+#### 《辐射》（2024-2025）4K HDR 第二季 更新中.. （附件第一季 游戏改编）
+
+夸克：https://pan.quark.cn/s/cbaee595c3ee
+
+迅雷：https://pan.xunlei.com/s/VNvC8Ux_zbOcgUvTEI_xp41lA1?pwd=nnyu#
+
 #### 《陆海之战》（2025）4K 中字 更新中...(神秘博士 衍生剧)
 
 夸克：https://pan.quark.cn/s/ba5ed862cfcc
@@ -418,12 +424,6 @@
 迅雷：https://pan.quark.cn/s/94ac269eb091
 
 迅雷：https://pan.xunlei.com/s/VNvHhqS3ti8Tf5yIE5eKUQr6A1?pwd=u8e4#
-
-#### 《辐射》（2024）4K HDR 8集全 》（游戏改编）
-
-夸克：https://pan.quark.cn/s/cbaee595c3ee
-
-迅雷：https://pan.xunlei.com/s/VNvC8Ux_zbOcgUvTEI_xp41lA1?pwd=nnyu#
 
 #### 《好想做一次》（2020-2023）1-4季全 4K+1080P 简繁英字幕
 
