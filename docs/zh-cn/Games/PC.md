@@ -120,6 +120,10 @@
 
 夸克：https://pan.quark.cn/s/f45144acd21e
 
+#### 《莱恩岛生存指南（Lens Island）》v1.1.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/ea7c0d999573
+
 #### 《九日（Nine Sols）典藏版》v2025.12.16 中文版（2D平台动作冒险）
 
 夸克：https://pan.quark.cn/s/7ed87f26d10f
@@ -1625,10 +1629,6 @@
 #### 《夜下降生2（UNDER NIGHT IN-BIRTH II Sys Celes）豪华版》v1.35 全DLC 中文 联机版（格斗游戏）
 
 夸克：https://pan.quark.cn/s/7c8258ed4b8c
-
-#### 《莱恩岛生存指南（Lens Island）》v1.1.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/ea7c0d999573
 
 #### 《超级滑刃战士（Super Drift Blade）》v1.0.2.4 中文版
 
