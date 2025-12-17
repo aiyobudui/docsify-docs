@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
+#### 《死亡回归（Returnal）》v1.0-Build.11083317 中文版
+
+夸克：https://pan.quark.cn/s/39a545da9d4d
+
 #### 《漫威宇宙入侵（MARVEL Cosmic Invasion）》v1.0.0.12409 中文版
 
 夸克：https://pan.quark.cn/s/2ffb58818955
@@ -103,6 +107,12 @@
 ---
 
 ## 最近更新
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.2.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.6.0 中文版
 
@@ -533,12 +543,6 @@
 #### 《心之眼（MindsEye）豪华版》v5702549 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.0.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《星之侵略者（StarVaders）》v2.0.0 中 全DLC 文版
 
