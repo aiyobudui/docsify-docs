@@ -23,9 +23,9 @@
 
 迅雷：https://pan.xunlei.com/s/VOgMzWzS8RsAcYQbV3XAgnIeA1?pwd=7aif#
 
-#### 《狙击蝴蝶》（2025）4K 30集 更新中..
+#### 《狙击蝴蝶》（2025）4K 30集全
 
-夸克：https://pan.quark.cn/s/92073f364a08
+夸克：https://pan.quark.cn/s/df72a5b8755a
 
 迅雷：https://pan.xunlei.com/s/VOgMcRWoZaJkeFwFpOCyybbiA1?pwd=dagy#
 
