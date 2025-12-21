@@ -25,7 +25,7 @@
 
 #### 《狙击蝴蝶》（2025）4K 30集全
 
-夸克：https://pan.quark.cn/s/df72a5b8755a
+夸克：https://pan.quark.cn/s/6616a6c177ae
 
 迅雷：https://pan.xunlei.com/s/VOgMcRWoZaJkeFwFpOCyybbiA1?pwd=dagy#
 
