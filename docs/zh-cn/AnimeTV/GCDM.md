@@ -233,9 +233,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNnm4PdI95sz6Xth82ua2SdKA1?pwd=3h6m#
 
-#### 《少年歌行 血染天启篇》（2025）1080P 26集全（少年行歌系列）
+#### 《少年歌行 血染天启篇》（2025）1080P 26集全（少年歌行系列）
 
-夸克：https://pan.quark.cn/s/56c081b7f230
+夸克：https://pan.quark.cn/s/b5e12d11a99e
 
 #### 《如果历史是一群喵》（2018+2024）4K 1-11季全
 
@@ -271,9 +271,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNmiid0L2CgsOHo1ccvIfT3mA1?pwd=g2v2#
 
-#### 《少年白马醉春风》（2022-2024）1-2季全（少年行歌系列）
+#### 《少年白马醉春风》（2022-2024）1-2季全（少年歌行系列）
 
-夸克：https://pan.quark.cn/s/de578cd0782f
+夸克：https://pan.quark.cn/s/2df26953a440
 
 #### 《大道朝天》（2024）4K 16集全
 
@@ -357,9 +357,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNzr5unJjiDIH4Q3e_R8pvDMA1?pwd=5pkh#
 
-#### 《暗河传》（2023）4K 第一季 26集全【少年行歌系列】
+#### 《暗河传动画版》（2023）4K 第一季 26集全（少年歌行系列）
 
-夸克：https://pan.quark.cn/s/9fed3f03e145
+夸克：https://pan.quark.cn/s/f74655529d58
 
 迅雷：https://pan.xunlei.com/s/VNnm7qFJINhdSmIIz38_PsC5A1?pwd=j7kc#
 
@@ -375,9 +375,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNyJvZ6oPqnb2KGS1cQtlWM5A1?pwd=hbv2#
 
-#### 《少年歌行海外仙山篇》1-3季全 4K
+#### 《少年歌行 海外仙山篇》1-3季全 4K（少年歌行系列）
 
-夸克：https://pan.quark.cn/s/959cb72b0e31
+夸克：https://pan.quark.cn/s/e330e383c5dc
 
 迅雷：https://pan.xunlei.com/s/VNm4hStYGPNbscE4xQSY0JgFA1?pwd=avfn#
 

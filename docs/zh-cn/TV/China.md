@@ -1897,7 +1897,13 @@
 
 夸克：https://pan.quark.cn/s/abcdcb8584d5
 
-#### 《珠帘玉幕》（2024）4K 40集全
+#### 《我和僵尸有个约会》（1998）1-3季全 1080P 中字 国粤配音（默认国语）
+
+夸克：https://pan.quark.cn/s/d2074032cafd
+
+#### 《珠帘玉幕》（2024）4K高码 40集全
+
+夸克：https://pan.quark.cn/s/17667f775266
 
 迅雷：https://pan.xunlei.com/s/VOe_ygNFOnumIfO0-DC4d_HXA1?pwd=2qxq#
 
