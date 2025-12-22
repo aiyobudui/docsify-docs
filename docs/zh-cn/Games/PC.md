@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《宇宙之轮姐妹会（The Cosmic Wheel Sisterhood）》v1.1.0 中文版
+
+夸克：https://pan.quark.cn/s/f977feee95ac
+
 #### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
 
 夸克：https://pan.quark.cn/s/550ed16aa7c9
@@ -82,6 +86,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
 
+#### 《战争传说（Wartales）雇佣兵版》v1.0.45242 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/f2a711fede86
+
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.10 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
@@ -89,6 +97,12 @@
 #### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.3.23175 中文版（附淬火MOD+地图包+秘籍）
 
 夸克：https://pan.quark.cn/s/cb54f62be869
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.2.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 ---
 
@@ -299,12 +313,6 @@
 #### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.10.103977 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/2ce76d085b7c
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.2.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.6.0 中文版
 
@@ -4003,10 +4011,6 @@
 #### 《杀戮空间3（Killing Floor 3）》Build.19273238 全DLC 中文版（恐怖射击）
 
 夸克：https://pan.quark.cn/s/02ab4ad5f5ea
-
-#### 《战争传说（Wartales）雇佣兵版》v1.0.42132 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/f2a711fede86
 
 #### 《寂静之歌（Songs Of Silence）》v1.4.2 豪华中文 联机版
 
