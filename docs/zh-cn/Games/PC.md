@@ -146,6 +146,10 @@
 
 夸克：https://pan.quark.cn/s/810a70e3cf63
 
+#### 《人渣（SCUM）豪华版》v1.1.0.4 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e1be35435129
+
 #### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.2.0.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/42d400d7daa0
@@ -1555,10 +1559,6 @@
 #### 《合金装备5：幻痛（Metal Gear Solid V The Phantom Pain）》v1.15 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/783c4ed9f794
-
-#### 《人渣（SCUM）豪华版》v1.1.0.2 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e1be35435129
 
 #### 《忍者龙剑传 大师合集（NINJA GAIDEN Master Collection）豪华版》v1.0.0.4 中文版
 
