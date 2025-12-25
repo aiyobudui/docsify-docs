@@ -34,7 +34,11 @@
 
 阿里：https://www.aliyundrive.com/s/6Epnwwt77s7
 
-#### 《阿诺拉》（2025） 4K HDR 外挂中字
+#### 《角头斗阵欸》（2025）1080P 中字
+
+夸克：https://pan.quark.cn/s/a0c13a20ccf7
+
+#### 《阿诺拉》（2025）4K HDR 外挂中字
 
 夸克：https://pan.quark.cn/s/34dff7752783
 

@@ -72,9 +72,17 @@
 
 ## 最近更新
 
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v2.0.3 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
 #### 《云族裔（inZOI）》v0.5.0 中文版（韩国模拟人生）
 
 夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《R.E.P.O.》v0.3.2 汉化 联机版（REPO）
+
+夸克：https://pan.quark.cn/s/dbc5648e077e
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.3 全DLC 中文配音版（新增DLC：破碎理想国）
 
@@ -83,6 +91,10 @@
 #### 《红色的炼金术士和白色的守护者 ～蕾斯莱莉娅娜的炼金工房～ 豪华版》v1.3.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/1116a514fb72
+
+#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61582 中文版
+
+夸克：https://pan.quark.cn/s/32c452be1479
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.3.1.0 中文版（附一堆MOD）
 
@@ -104,43 +116,9 @@
 
 夸克：https://pan.quark.cn/s/f45144acd21e
 
-#### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.3.3 中文版
-
-夸克：https://pan.quark.cn/s/54fab26752d3
-
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.1 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
-
-#### 《石头模拟器（Stone Simulator）》v1.2.0.2 中文版
-
-夸克：https://pan.quark.cn/s/51c7153cf91c
-
-#### 《宿命残响（Chained Echoes）》v1.41 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8664b482f44f
-
-#### 《古墓丽影9（Tomb Raider）终结版》v1.01.838.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8c417acf572b
-
-#### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1212.1408 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a507e892f30a
-
-迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
-
-#### 《战争传说（Wartales）雇佣兵版》v1.0.45242 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/f2a711fede86
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.10 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
-
-#### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.3.23175 中文版（附淬火MOD+地图包+秘籍）
-
-夸克：https://pan.quark.cn/s/cb54f62be869
 
 #### 《浪人崛起（Rise of the Ronin）》v1.09.0.5 全DLC 中文 联机版
 
@@ -173,10 +151,6 @@
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
-
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v1.3.1 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.7.0 全DLC 中文版
 
@@ -362,10 +336,6 @@
 
 夸克：https://pan.quark.cn/s/9baad4a27102
 
-#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61339 中文版
-
-夸克：https://pan.quark.cn/s/32c452be1479
-
 #### 《云之国（Cloudheim）》v88959 中文 联机版
 
 夸克：https://pan.quark.cn/s/c6afb4342e8a
@@ -373,6 +343,40 @@
 ---
 
 ## 已有游戏
+
+#### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.3.3 中文版
+
+夸克：https://pan.quark.cn/s/54fab26752d3
+
+#### 《石头模拟器（Stone Simulator）》v1.2.0.2 中文版
+
+夸克：https://pan.quark.cn/s/51c7153cf91c
+
+#### 《宿命残响（Chained Echoes）》v1.41 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8664b482f44f
+
+#### 《古墓丽影9（Tomb Raider）终结版》v1.01.838.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8c417acf572b
+
+#### 《对马岛之魂：导演剪辑版（Ghost of Tsushima）》v1053.8.1212.1408 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a507e892f30a
+
+迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
+
+#### 《战争传说（Wartales）雇佣兵版》v1.0.45242 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/f2a711fede86
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.10 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.3.23175 中文版（附淬火MOD+地图包+秘籍）
+
+夸克：https://pan.quark.cn/s/cb54f62be869
 
 #### 《漫威宇宙入侵（MARVEL Cosmic Invasion）》v1.0.0.12409 中文版
 
@@ -1297,10 +1301,6 @@
 夸克：https://pan.quark.cn/s/fb7b018a7a5d
 
 迅雷：https://pan.xunlei.com/s/VNyvFGWShGu_CGUmL_VMIZtBA1?pwd=zynj#
-
-#### 《R.E.P.O.》v0.3.0 汉化 联机版（REPO）
-
-夸克：https://pan.quark.cn/s/dbc5648e077e
 
 #### 《White Knuckle》vb0.51f 汉化版（又名？白色关节 赤手求升）
 
