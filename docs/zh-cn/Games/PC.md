@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《扑克总督2（Governor of Poker 2）豪华版》v11604 汉化版（所有扑克牌游戏）
+
+夸克：https://pan.quark.cn/s/203aa2bb768a
+
 #### 《翡翠山谷（Emerald Valley）》v2025.12.23 中文版（解密游戏）
 
 夸克：https://pan.quark.cn/s/fdfdafbc0c99
@@ -72,17 +76,33 @@
 
 ## 最近更新
 
+#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.13.105726 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/2ce76d085b7c
+
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v2.0.3 中文版
 
 夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《颂钟长鸣（Bellwright）》v0.046807 中文 联机版
+
+夸克：https://pan.quark.cn/s/4bffb8ad0065
 
 #### 《云族裔（inZOI）》v0.5.0 中文版（韩国模拟人生）
 
 夸克：https://pan.quark.cn/s/8458e4ca4a38
 
+#### 《Bodycam》Build.21150357 （2025.12.11）中文 联机版
+
+夸克：https://pan.quark.cn/s/d238d11a58fe
+
 #### 《R.E.P.O.》v0.3.2 汉化 联机版（REPO）
 
 夸克：https://pan.quark.cn/s/dbc5648e077e
+
+#### 《严阵以待（Ready or Not）》v97150 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/296a2d4242e8
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.3 全DLC 中文配音版（新增DLC：破碎理想国）
 
@@ -327,10 +347,6 @@
 #### 《寂静岭F（SILENT HILL F）豪华版》v1.2.382755 全DLC 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/90391fdabda9
-
-#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.10.103977 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/2ce76d085b7c
 
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.6.0 中文版
 
@@ -3964,10 +3980,6 @@
 
 夸克：https://pan.quark.cn/s/b473194cc9b1
 
-#### 《严阵以待（Ready or Not）》v90642 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/296a2d4242e8
-
 #### 《终结者：黑暗命运 - 反抗（Terminator Dark Fate - Defiance Complete）》v1.07.1145.1.HF 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/a5c624c91ef0
@@ -5909,10 +5921,6 @@
 
 夸克：https://pan.quark.cn/s/ea24531988f7
 
-#### 《颂钟长鸣（Bellwright）》v0.0.38456 中文 联机版
-
-夸克：https://pan.quark.cn/s/4bffb8ad0065
-
 #### 《人类黎明（Dawn of Man）》v1.8.3a 英文版（暂无汉化补丁）
 
 夸克：https://pan.quark.cn/s/3747dc8361e4
@@ -7512,10 +7520,6 @@
 #### 《战争游戏 红龙（Wargame Red Dragon）》v24.09.10.131544 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/9cd8e71d0dbb
-
-#### 《Bodycam》v2024.11.13 中文 联机版
-
-夸克：https://pan.quark.cn/s/d238d11a58fe
 
 #### 《山河旅探（Murders on the Yangtze River）》v1.4.18 中文版
 

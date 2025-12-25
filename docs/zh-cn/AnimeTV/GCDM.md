@@ -89,6 +89,12 @@
 
 ## 周四
 
+#### 《剑来》（2024-2025）第二季 4K 26集 周四更新中..（附第一季+电子书+有声书）
+
+夸克：https://pan.quark.cn/s/b521663129f8
+
+迅雷：https://pan.xunlei.com/s/VO4LkndfUJ5GLndTbtPAHy7SA1?pwd=rh7r#
+
 #### 《神印王座》（2024）4K 周四 更新中..
 
 夸克：https://pan.quark.cn/s/37bc835d2d81
@@ -278,12 +284,6 @@
 #### 《大道朝天》（2024）4K 16集全
 
 夸克：https://pan.quark.cn/s/2851a4a719bd
-
-#### 《剑来》（2024）第一季 4K 26集全（附电子书+有声小说）
-
-夸克：https://pan.quark.cn/s/b521663129f8
-
-迅雷：https://pan.xunlei.com/s/VO4LkndfUJ5GLndTbtPAHy7SA1?pwd=rh7r#
 
 #### 《蜀山奇侠录》（2021-2024）4K 1-2季 20集全
 
