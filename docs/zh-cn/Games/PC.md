@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《方舟动物园（Ark Nova）》Build.19166888 中文版
+
+夸克：https://pan.quark.cn/s/9df8245f1b9c
+
 #### 《扑克总督2（Governor of Poker 2）豪华版》v11604 汉化版（所有扑克牌游戏）
 
 夸克：https://pan.quark.cn/s/203aa2bb768a
