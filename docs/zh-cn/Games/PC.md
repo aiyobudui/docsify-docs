@@ -96,6 +96,14 @@
 
 ## 最近更新
 
+#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/e6b2b4cad601
+
+#### 《梦幻主义（Onirism）》build.21313783 中文 联机版（奇幻动作冒险）
+
+夸克：https://pan.quark.cn/s/0dc0e9840bcf
+
 #### 《逃离鸭科夫（Escape From Duckov）》v1.3.12 中文版（附一堆MOD）
 
 夸克：https://pan.quark.cn/s/0efc56eb9b21
@@ -257,10 +265,6 @@
 #### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.1.2 全DLC 中文版（合金装备食蛇者）
 
 夸克：https://pan.quark.cn/s/b47797155789
-
-#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）》v1.5.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/e6b2b4cad601
 
 #### 《战神5：诸神黄昏（God of War Ragnarök）豪华版》v1.0.668.5700 全DLC 中文版
 
@@ -1535,10 +1539,6 @@
 #### 《斗阵骑士（Knightica）》v1.1.1a 中文版（自走棋）
 
 夸克：https://pan.quark.cn/s/76751d9d13c3
-
-#### 《Onirism》v1.0 中文版（卡通奇幻动作冒险）
-
-夸克：https://pan.quark.cn/s/0dc0e9840bcf
 
 #### 《孤独公会（The Lonesome Guild）》v2025.10.23 中文版
 
