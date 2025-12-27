@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/d299b36c9609
 
+#### 《命运 创世（Fate EXTELLA）》v2067651 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/238a6a689301
+
 #### 《命运 创世 连接（Fate EXTELLA LINK）豪华版》Build.3810333 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e69fe5c4304c
@@ -123,6 +127,14 @@
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v2.0.3 中文版
 
 夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《正当防卫3（Just Cause 3）XXL版》v20251217 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/79965ca81c2b
+
+#### 《喵斯快跑（Muse Dash）》v5.10.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/84aed71b9812
 
 #### 《金垦小镇（Dinkum）》v1.0.7 中文 联机版
 
@@ -4090,10 +4102,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO-UqMA1q0RpLJvqr4VXytFnA1?pwd=eh5v#
 
-#### 《喵斯快跑（Muse Dash）》v5.6.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/84aed71b9812
-
 #### 《原始星球（primal planet）》v1.0 中文版
 
 夸克：https://pan.quark.cn/s/b28e9093ac2c
@@ -7637,15 +7645,11 @@
 
 #### 《正当防卫4（Just Cause 4）完整版》v4110618 全DLC 豪华中文版
 
-夸克：https://pan.quark.cn/s/ad5fb5b9c0d9
-
-#### 《正当防卫3（Just Cause 3）》v1.05 全DLC 豪华中文版
-
 夸克：https://pan.quark.cn/s/79965ca81c2b
 
 #### 《正当防卫2（Just Cause 2）完全版》v1.0.0.1 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/b5594d3af3b5
+夸克：https://pan.quark.cn/s/79965ca81c2b
 
 #### 《Until Then》v2024.11.22 中文版
 
@@ -10823,6 +10827,10 @@
 ---
 
 ## 系列合集
+
+#### 《正当防卫 系列合集（Just Cause）豪华版》3部 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/79965ca81c2b
 
 #### 《王国保卫战 系列合集（Kingdom Rush）6部》v2025.9.26 全DLC 中文版（电脑版）新增DLC
 
