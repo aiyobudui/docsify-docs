@@ -183,6 +183,12 @@
 
 ## 暂时完结
 
+#### 《武动乾坤》（2019-2025）4K 1-6季全
+
+夸克：https://pan.quark.cn/s/e08d8a968b73
+
+迅雷：https://pan.xunlei.com/s/VNlTsLQ8CHiPkLfGRwZ9XcEmA1?pwd=2xif#
+
 #### 《西行纪》（2018-2025）4K 1-5季+前缘篇+完结篇+电影版+大猿魂特别篇
 
 夸克：https://pan.quark.cn/s/55af858bbfba
@@ -500,14 +506,6 @@
 迅雷：https://pan.xunlei.com/s/VNm4aagXhTbSf7679Avf2ahbA1?pwd=snyv#
 
 阿里：<https://www.aliyundrive.com/s/5r6rswnRkjE>
-
-#### 《武动乾坤》（2023）4K 1-4季全
-
-夸克：https://pan.quark.cn/s/e08d8a968b73
-
-迅雷：https://pan.xunlei.com/s/VNlTsLQ8CHiPkLfGRwZ9XcEmA1?pwd=2xif#
-
-阿里：<https://www.alipan.com/s/BnHhY8Tftzn>
 
 #### 《修罗武神》（2023）1080P.16集全
 

@@ -48,7 +48,7 @@
 
 夸克：https://pan.quark.cn/s/ba323806235b
 
-#### 《宝可梦传说Z-A》v2.0.0 全DLC NS整合 中文版
+#### 《宝可梦传说ZA》v2.0.0 全DLC NS整合 中文版
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 

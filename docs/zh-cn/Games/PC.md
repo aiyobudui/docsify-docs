@@ -48,6 +48,22 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《喵喵甜品屋（Cats and Cups）》v1.2.2 中文版
+
+夸克：https://pan.quark.cn/s/eca3b1bfd1f9
+
+#### 《汽车工厂帝国（Car Factory Empire）》v0.7.67 中文版
+
+夸克：https://pan.quark.cn/s/4861ae955070
+
+#### 《Worldwide Rush》v1.2.1 中文版（交通运输模拟游戏）
+
+夸克：https://pan.quark.cn/s/2b1b93d16875
+
+#### 《战争号令 地狱之门：东线（Call to Arms Gates of Hell Ostfront）》v1.060.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ddf763743c13
+
 #### 《黑纱突袭者（Raiders of Blackveil）》v0.1.0 中文 联机版（动作肉鸽）
 
 夸克：https://pan.quark.cn/s/d299b36c9609
@@ -99,6 +115,18 @@
 ---
 
 ## 最近更新
+
+#### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
+
+夸克：https://pan.quark.cn/s/821421b633bc
+
+#### 《加油站大亨（Gas Station Simulator）》v1.0.2.51074S 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6cd7822ab074
+
+#### 《CyberCorp》v1.36 中文 联机版（赛博巨头、赛博公司？）
+
+夸克：https://pan.quark.cn/s/7e18b53c27fb
 
 #### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
 
@@ -5283,10 +5311,6 @@
 
 夸克：https://pan.quark.cn/s/84296bf05660
 
-#### 《CyberCorp》v1.03 中文 联机版（赛博巨头、赛博公司？）
-
-夸克：https://pan.quark.cn/s/7e18b53c27fb
-
 #### 《酒馆大师（Tavern Master）》v2025.5.20 中文版
 
 夸克：https://pan.quark.cn/s/0d4ff5e082b1
@@ -5960,10 +5984,6 @@
 #### 《钢铁之躯（Iron Meat）》v1.05g 中文版
 
 夸克：https://pan.quark.cn/s/a66cc29f998e
-
-#### 《史前王国（Prehistoric Kingdom）》v1.10.52 中文版
-
-夸克：https://pan.quark.cn/s/821421b633bc
 
 #### 《猎天使魔女（Bayonetta）》v1.01 汉化版（PC版）
 
@@ -6962,10 +6982,6 @@
 #### 《美食大战老鼠》v0.6 中文版（附安卓版）
 
 夸克：https://pan.quark.cn/s/728f71e7af8f
-
-#### 《加油站大亨（Gas Station Simulator）》v2025.2.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6cd7822ab074
 
 #### 《DMC：鬼泣（DmC Devil May Cry）》v1.1 全DLC 汉化中文版
 
