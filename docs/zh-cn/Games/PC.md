@@ -116,6 +116,12 @@
 
 ## 最近更新
 
+#### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
 #### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
 
 夸克：https://pan.quark.cn/s/821421b633bc
@@ -197,12 +203,6 @@
 ---
 
 ## 顶置游戏
-
-#### 《幻兽帕鲁（Palworld）》v0.6.9.82911 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
 

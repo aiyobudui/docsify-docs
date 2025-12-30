@@ -31,7 +31,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNvC8Ux_zbOcgUvTEI_xp41lA1?pwd=nnyu#
 
-#### 《陆海之战》（2025）4K 中字 更新中...(神秘博士 衍生剧)
+#### 《陆海之战》（2025）1080P 中字 5集全（神秘博士 衍生剧)
 
 夸克：https://pan.quark.cn/s/ba5ed862cfcc
 
@@ -49,17 +49,21 @@
 
 阿里：<https://www.aliyundrive.com/s/MhuPDUn4MqV>
 
-#### 《同乐者 Pluribus》（2025）1080P 中字 9集 更新中..
+#### 《同乐者 Pluribus》（2025）1080P 中字 9集全
 
 夸克：https://pan.quark.cn/s/4fb4fac22576
 
-#### 《小丑回魂：欢迎来到德里镇》（2025）1080P 中英字幕 8集更新中...
+#### 《小丑回魂：欢迎来到德里镇》（2025）1080P 中英字幕 8集全
 
 夸克：https://pan.quark.cn/s/e36a0bbcd0cf
 
 ---
 
 ## 已完结的
+
+#### 《巅峰对决（Heated Rivalry）》（2025）4K 外挂中字 6集全（加拿大）
+
+夸克：https://pan.quark.cn/s/883484c73d77
 
 #### 《塔尔萨之王》（2022-2025）1-3季全 1080P 中英字幕
 
@@ -1031,6 +1035,9 @@
 
 夸克：https://pan.quark.cn/s/9b1dd86f8fc8
 
+#### 《地球百子》1-7季全 1080P 中字
+
+夸克：https://pan.quark.cn/s/412c5a56b20a
 ----
 
 ## 漫威衍生剧..
