@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《死亡空间 重制版（Dead Space Remake）豪华版》v2025.12.31 中文版（有中文配音）
+
+夸克：https://pan.quark.cn/s/095d1c334b71
+
+#### 《炼金工厂（Alchemy Factory）》v0.4.1.3824 中文版
+
+夸克：https://pan.quark.cn/s/b3d64b3cca2d
+
 #### 《喵喵甜品屋（Cats and Cups）》v1.2.2 中文版
 
 夸克：https://pan.quark.cn/s/eca3b1bfd1f9
@@ -59,38 +67,6 @@
 #### 《Worldwide Rush》v1.2.1 中文版（交通运输模拟游戏）
 
 夸克：https://pan.quark.cn/s/2b1b93d16875
-
-#### 《战争号令 地狱之门：东线（Call to Arms Gates of Hell Ostfront）》v1.060.0 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/ddf763743c13
-
-#### 《黑纱突袭者（Raiders of Blackveil）》v0.1.0 中文 联机版（动作肉鸽）
-
-夸克：https://pan.quark.cn/s/d299b36c9609
-
-#### 《命运 创世（Fate EXTELLA）》v2067651 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/238a6a689301
-
-#### 《命运 创世 连接（Fate EXTELLA LINK）豪华版》Build.3810333 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e69fe5c4304c
-
-#### 《方舟动物园（Ark Nova）》Build.19166888 中文版
-
-夸克：https://pan.quark.cn/s/9df8245f1b9c
-
-#### 《扑克总督2（Governor of Poker 2）豪华版》v11604 汉化版（所有扑克牌游戏）
-
-夸克：https://pan.quark.cn/s/203aa2bb768a
-
-#### 《翡翠山谷（Emerald Valley）》v2025.12.23 中文版（解密游戏）
-
-夸克：https://pan.quark.cn/s/fdfdafbc0c99
-
-#### 《宇宙之轮姐妹会（The Cosmic Wheel Sisterhood）》v1.1.0 中文版
-
-夸克：https://pan.quark.cn/s/f977feee95ac
 
 #### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
 
@@ -121,6 +97,14 @@
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.220 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《辐射4（Fallout 4）周年版》v1.11.191 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3c6a02617ff3
 
 #### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
 
@@ -220,10 +204,6 @@
 
 夸克：https://pan.quark.cn/s/32c452be1479
 
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.204 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
-
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15c 全DLC 中文版（魂游）
 
 夸克：https://pan.quark.cn/s/f45144acd21e
@@ -259,10 +239,6 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
-
-#### 《辐射4（Fallout 4）周年版》v1.11.137.0.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3c6a02617ff3
 
 #### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
 
@@ -419,6 +395,38 @@
 ---
 
 ## 已有游戏
+
+#### 《战争号令 地狱之门：东线（Call to Arms Gates of Hell Ostfront）》v1.060.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/ddf763743c13
+
+#### 《黑纱突袭者（Raiders of Blackveil）》v0.1.0 中文 联机版（动作肉鸽）
+
+夸克：https://pan.quark.cn/s/d299b36c9609
+
+#### 《命运 创世（Fate EXTELLA）》v2067651 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/238a6a689301
+
+#### 《命运 创世 连接（Fate EXTELLA LINK）豪华版》Build.3810333 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e69fe5c4304c
+
+#### 《方舟动物园（Ark Nova）》Build.19166888 中文版
+
+夸克：https://pan.quark.cn/s/9df8245f1b9c
+
+#### 《扑克总督2（Governor of Poker 2）豪华版》v11604 汉化版（所有扑克牌游戏）
+
+夸克：https://pan.quark.cn/s/203aa2bb768a
+
+#### 《翡翠山谷（Emerald Valley）》v2025.12.23 中文版（解密游戏）
+
+夸克：https://pan.quark.cn/s/fdfdafbc0c99
+
+#### 《宇宙之轮姐妹会（The Cosmic Wheel Sisterhood）》v1.1.0 中文版
+
+夸克：https://pan.quark.cn/s/f977feee95ac
 
 #### 《海洋守护者（Codename Ocean Keeper）》v1.0.5 中文版
 
