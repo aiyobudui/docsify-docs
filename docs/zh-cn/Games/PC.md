@@ -114,6 +114,12 @@
 
 夸克：https://pan.quark.cn/s/9c5a315866f7
 
+#### 《庄园领主（Manor Lords）》v0.8.050 中文版
+
+夸克：https://pan.quark.cn/s/5a5272a9a4ba
+
+迅雷：https://pan.xunlei.com/s/VNwQI4byH3lpIbSUeQ2ABQXCA1?pwd=zjjb#
+
 #### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
 
 夸克：https://pan.quark.cn/s/821421b633bc
@@ -5642,12 +5648,6 @@
 #### 《开拓者：正义之怒（Pathfinder Wrath of the Righteous）神话版》v2.7.0W 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/27a9461af361
-
-#### 《庄园领主（Manor Lords）》v0.8.031 中文版
-
-夸克：https://pan.quark.cn/s/5a5272a9a4ba
-
-迅雷：https://pan.xunlei.com/s/VNwQI4byH3lpIbSUeQ2ABQXCA1?pwd=zjjb#
 
 #### 《吾王保卫战：正义国王（Just King）》v1.3.13B 全DLC 中文版（塔防游戏）
 
