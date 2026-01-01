@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《斩妖除魔 重制版（Painkiller）豪华版》v232837 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cee8868eac20
+
 #### 《炼金工厂（Alchemy Factory）》v0.4.1.3824 中文版
 
 夸克：https://pan.quark.cn/s/b3d64b3cca2d
@@ -106,6 +110,10 @@
 
 夸克：https://pan.quark.cn/s/3c6a02617ff3
 
+#### 《灰雨钢锋（Of Ash and Steel）》v1.05b 中文版
+
+夸克：https://pan.quark.cn/s/9c5a315866f7
+
 #### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
 
 夸克：https://pan.quark.cn/s/821421b633bc
@@ -121,68 +129,6 @@
 #### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
 
 夸克：https://pan.quark.cn/s/e6b2b4cad601
-
-#### 《梦幻主义（Onirism）》build.21313783 中文 联机版（奇幻动作冒险）
-
-夸克：https://pan.quark.cn/s/0dc0e9840bcf
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.3.12 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《PEAK》v1.51.a 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
-
-#### 《全面战争：三国（Total War Three Kingdoms）》v1.7.8 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/c6f9e205035b
-
-#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.13.105726 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/2ce76d085b7c
-
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v2.0.3 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
-
-#### 《正当防卫3（Just Cause 3）XXL版》v20251217 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/79965ca81c2b
-
-#### 《喵斯快跑（Muse Dash）》v5.10.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/84aed71b9812
-
-#### 《金垦小镇（Dinkum）》v1.0.7 中文 联机版
-
-夸克：https://pan.quark.cn/s/44e5d688e433
-
-迅雷：https://pan.xunlei.com/s/VO-l9gAPcA8sbZ7PP_tGZUrnA1?pwd=zkxk#
-
-#### 《颂钟长鸣（Bellwright）》v0.046807 中文 联机版
-
-夸克：https://pan.quark.cn/s/4bffb8ad0065
-
-#### 《云族裔（inZOI）》v0.5.0 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
-
-#### 《Bodycam》Build.21150357 （2025.12.11）中文 联机版
-
-夸克：https://pan.quark.cn/s/d238d11a58fe
-
-#### 《R.E.P.O.》v0.3.2 汉化 联机版（REPO）
-
-夸克：https://pan.quark.cn/s/dbc5648e077e
-
-#### 《严阵以待（Ready or Not）》v97150 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/296a2d4242e8
-
-#### 《红色的炼金术士和白色的守护者 ～蕾斯莱莉娅娜的炼金工房～ 豪华版》v1.3.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1116a514fb72
 
 ---
 
@@ -395,6 +341,68 @@
 ---
 
 ## 已有游戏
+
+#### 《梦幻主义（Onirism）》build.21313783 中文 联机版（奇幻动作冒险）
+
+夸克：https://pan.quark.cn/s/0dc0e9840bcf
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.3.12 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《PEAK》v1.51.a 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
+
+#### 《全面战争：三国（Total War Three Kingdoms）》v1.7.8 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6f9e205035b
+
+#### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.13.105726 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/2ce76d085b7c
+
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v2.0.3 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《正当防卫3（Just Cause 3）XXL版》v20251217 全DLC 豪华中文版
+
+夸克：https://pan.quark.cn/s/79965ca81c2b
+
+#### 《喵斯快跑（Muse Dash）》v5.10.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/84aed71b9812
+
+#### 《金垦小镇（Dinkum）》v1.0.7 中文 联机版
+
+夸克：https://pan.quark.cn/s/44e5d688e433
+
+迅雷：https://pan.xunlei.com/s/VO-l9gAPcA8sbZ7PP_tGZUrnA1?pwd=zkxk#
+
+#### 《颂钟长鸣（Bellwright）》v0.046807 中文 联机版
+
+夸克：https://pan.quark.cn/s/4bffb8ad0065
+
+#### 《云族裔（inZOI）》v0.5.0 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《Bodycam》Build.21150357 （2025.12.11）中文 联机版
+
+夸克：https://pan.quark.cn/s/d238d11a58fe
+
+#### 《R.E.P.O.》v0.3.2 汉化 联机版（REPO）
+
+夸克：https://pan.quark.cn/s/dbc5648e077e
+
+#### 《严阵以待（Ready or Not）》v97150 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/296a2d4242e8
+
+#### 《红色的炼金术士和白色的守护者 ～蕾斯莱莉娅娜的炼金工房～ 豪华版》v1.3.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1116a514fb72
 
 #### 《战争号令 地狱之门：东线（Call to Arms Gates of Hell Ostfront）》v1.060.0 全DLC 中文 联机版
 
@@ -665,10 +673,6 @@
 #### 《月球任务（ROUTINE）》v1.7.0.0 中文版（科幻恐怖游戏）
 
 夸克：https://pan.quark.cn/s/199d7e6f3ab3
-
-#### 《灰雨钢锋（Of Ash and Steel）》v1.04 中文版
-
-夸克：https://pan.quark.cn/s/9c5a315866f7
 
 #### 《异形：火力精英（Aliens Fireteam Elite）》v1.0.5.114949 全DLC 中文 联机版（异形：精英小队）
 
