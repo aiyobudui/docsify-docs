@@ -114,6 +114,10 @@
 
 夸克：https://pan.quark.cn/s/9c5a315866f7
 
+#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.19.1.0 中文 联机版（法外狂徒）
+
+夸克：https://pan.quark.cn/s/54c0aaad57e2
+
 #### 《庄园领主（Manor Lords）》v0.8.050 中文版
 
 夸克：https://pan.quark.cn/s/5a5272a9a4ba
@@ -311,10 +315,6 @@
 #### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v2025.9.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b433499adaec
-
-#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.18.1.0 中文 联机版（法外狂徒）
-
-夸克：https://pan.quark.cn/s/54c0aaad57e2
 
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.2.0 中文版
 

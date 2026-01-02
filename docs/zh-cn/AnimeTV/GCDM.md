@@ -103,7 +103,7 @@
 
 #### 《师兄啊师兄》（2023-2024）4K 第三季 周四更新中..（附1-2季）
 
-夸克：https://pan.quark.cn/s/563e6fab4004
+夸克：https://pan.quark.cn/s/b9763c6d23fa
 
 迅雷：https://pan.xunlei.com/s/VNm9axELHxKie2GFFXpIfxiUA1?pwd=rg86#
 
@@ -125,7 +125,7 @@
 
 #### 《完美世界》（2024）4K 周五 更新中..
 
-夸克：https://pan.quark.cn/s/449050716022
+夸克：https://pan.quark.cn/s/4cc4be466f22
 
 迅雷：https://pan.xunlei.com/s/VNl7gMz6RajsUgWO5aRp45iYA1?pwd=8yf3#
 
