@@ -104,6 +104,10 @@
 
 ## 最近更新
 
+#### 《汽车经销商模拟器（car dealer simulator）》v4791 中文版
+
+夸克：https://pan.quark.cn/s/07d7b79e1ce3
+
 #### 《墨境（Realm of Ink）》Build.21343145 中文版
 
 夸克：https://pan.quark.cn/s/9c8494132b6e
@@ -3089,10 +3093,6 @@
 #### 《Ithya：魔法研究室（Ithya Magic Studies）》v2025.8.31 中文版（手绘静谧休闲）
 
 夸克：https://pan.quark.cn/s/cfddda07da41
-
-#### 《汽车经销商模拟器（car dealer simulator）》v2025.9.9 中文版
-
-夸克：https://pan.quark.cn/s/07d7b79e1ce3
 
 #### 《终端：灭绝永恒（Endling-Extinction is Forever）》v0.17.19 全DLC 中文版（狐狸生存冒险）
 
