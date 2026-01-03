@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《永恒终焉 4KHD版（RESONANCE OF FATE）》v1.0.0.4 汉化版（永恒终结）
+
+夸克：https://pan.quark.cn/s/62b52373093f
+
+#### 《嘘 美女拍摄中（Heroines Through My Lens）》v2025.12.27 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/9cb85dd9db6b
+
 #### 《斩妖除魔 重制版（Painkiller）豪华版》v232837 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/cee8868eac20
