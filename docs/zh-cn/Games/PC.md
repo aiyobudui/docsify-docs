@@ -60,6 +60,10 @@
 
 夸克：https://pan.quark.cn/s/9cb85dd9db6b
 
+#### 《前线（The Front ）黄金版》v1.5.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a5f5b73dfd10
+
 #### 《斩妖除魔 重制版（Painkiller）豪华版》v232837 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/cee8868eac20
@@ -173,6 +177,10 @@
 #### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
 
 夸克：https://pan.quark.cn/s/e6b2b4cad601
+
+#### 《末日的回声（Echoes of the End）增强版》v2.0.3 中文版（魂类游戏）
+
+夸克：https://pan.quark.cn/s/ac1e0683f780
 
 ---
 
@@ -353,10 +361,6 @@
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.2.0 中文版
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
-
-#### 《末日的回声（Echoes of the End）增强版》v2.0.2 中文版（魂类游戏）
-
-夸克：https://pan.quark.cn/s/ac1e0683f780
 
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.2 全DLC 中文版（新增修院迷踪DLC）
 
