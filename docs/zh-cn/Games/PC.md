@@ -96,6 +96,20 @@
 
 ## 最近更新
 
+#### 《墨境（Realm of Ink）》Build.21343145 中文版
+
+夸克：https://pan.quark.cn/s/9c8494132b6e
+
+迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
+
+#### 《故障星系（Galactic Glitch）》v1.84 中文版
+
+夸克：https://pan.quark.cn/s/7ffbd37791e7
+
+#### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.5b 全DLC 中文版（桌面小游戏）
+
+夸克：https://pan.quark.cn/s/dd64b7e57e0d
+
 #### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
@@ -105,6 +119,10 @@
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.5.220 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.3.13 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《辐射4（Fallout 4）周年版》v1.11.191 全DLC 中文版
 
@@ -351,10 +369,6 @@
 #### 《梦幻主义（Onirism）》build.21313783 中文 联机版（奇幻动作冒险）
 
 夸克：https://pan.quark.cn/s/0dc0e9840bcf
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.3.12 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
 
 #### 《PEAK》v1.51.a 中文 联机版（多人联机爬山）
 
@@ -1034,10 +1048,6 @@
 
 夸克：https://pan.quark.cn/s/3d048bd03ffb
 
-#### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.4b 全DLC 中文版（桌面小游戏）
-
-夸克：https://pan.quark.cn/s/dd64b7e57e0d
-
 #### 《梅树林的回声（Echoes of the Plum Grove）》v1.0.5.38s 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e8c54df06e5f
@@ -1375,12 +1385,6 @@
 #### 《太太！我喜欢你！（Sensei I Like You So Much）》v1.0.0.1028 中文版
 
 夸克：https://pan.quark.cn/s/a64a7ae50f98
-
-#### 《墨境（Realm of Ink）》v0.18.04 中文版
-
-夸克：https://pan.quark.cn/s/9c8494132b6e
-
-迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
 
 #### 《永恒天空（Forever Skies）豪华版》v1.1.0 全DLC 中文 联机版
 
@@ -4517,10 +4521,6 @@
 #### 《苏菲亚的谎言与代价（Sofia in Exchange for Lies）》Build.19064136 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/9371f37448e3
-
-#### 《故障星系（Galactic Glitch）》v1.11 中文版
-
-夸克：https://pan.quark.cn/s/7ffbd37791e7
 
 #### 《发霉的孩子（The Mildew Children）》v1.4.3 中文版
 

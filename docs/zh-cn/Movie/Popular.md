@@ -1352,3 +1352,7 @@
 #### 《米拉 Mira》 （2022）1080P 中字（俄罗斯 科幻灾难）
 
 夸克：https://pan.quark.cn/s/85fd3836adbd
+
+#### 《天启Z：完结的起点》（2024）4K HDR 内封中字
+
+夸克：https://pan.quark.cn/s/5fb61f253458
