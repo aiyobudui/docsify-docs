@@ -104,6 +104,10 @@
 
 ## 最近更新
 
+#### 《帝国时代2 决定版（Age of Empires II）》v162286 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/0c0f7a82ce32
+
 #### 《汽车经销商模拟器（car dealer simulator）》v4791 中文版
 
 夸克：https://pan.quark.cn/s/07d7b79e1ce3
@@ -1857,10 +1861,6 @@
 #### 《星之海（Sea of Stars）》v2.0.59021 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7cf9121649c1
-
-#### 《帝国时代2 决定版（Age of Empires II）》v158041 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/0c0f7a82ce32
 
 #### 《Luto》v2025.10.15 中文版（心理恐怖叙事游戏）
 
