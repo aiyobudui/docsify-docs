@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《DuneCrawl》v1.0.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/cbd46356bf06
+
 #### 《永恒终焉 4KHD版（RESONANCE OF FATE）》v1.0.0.4 汉化版（永恒终结）
 
 夸克：https://pan.quark.cn/s/62b52373093f
@@ -59,6 +63,10 @@
 #### 《嘘 美女拍摄中（Heroines Through My Lens）》v2025.12.27 中文版（真人互动影游）
 
 夸克：https://pan.quark.cn/s/9cb85dd9db6b
+
+#### 《疯狂连杀（ULTRAKILL）》Build.17867434 英文版
+
+夸克：https://pan.quark.cn/s/c5e7bc8fb7d0
 
 #### 《前线（The Front ）黄金版》v1.5.3 全DLC 中文版
 
