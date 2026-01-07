@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《星际裂变（StarRupture）》v0.1.0.112462-S 中文版
+
+夸克：https://pan.quark.cn/s/83e2a97e0727
+
 #### 《DuneCrawl》v1.0.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/cbd46356bf06
