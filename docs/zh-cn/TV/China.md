@@ -77,6 +77,10 @@
 
 ## 已完结的...
 
+#### 《海市蜃楼》（2025）4K 24集全
+
+夸克：https://pan.quark.cn/s/e6dd97769dcd
+
 #### 《树影迷宫》（2025）4K 18集全
 
 夸克：https://pan.quark.cn/s/e98fa966bebb

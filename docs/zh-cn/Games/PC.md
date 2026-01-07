@@ -138,6 +138,10 @@
 
 夸克：https://pan.quark.cn/s/7ffbd37791e7
 
+#### 《ASKA》v1.25.1812 中文 联机版 （生存建造游戏）
+
+夸克：https://pan.quark.cn/s/ce6b9d234a5f
+
 #### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.5b 全DLC 中文版（桌面小游戏）
 
 夸克：https://pan.quark.cn/s/dd64b7e57e0d
@@ -9652,10 +9656,6 @@
 夸克：https://pan.quark.cn/s/5b428a2c81e2
 
 迅雷：https://pan.xunlei.com/s/VO03zbfothJ4r1ksMhWGCM7rA1?pwd=syjx#
-
-#### 《ASKA》最新 中文版 （生存建造游戏）
-
-夸克：https://pan.quark.cn/s/ce6b9d234a5f
 
 #### 《禁忌试炼（Taboo Trial）》v5.0 + 4DLC 中文版
 
