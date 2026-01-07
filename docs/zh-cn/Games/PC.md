@@ -52,17 +52,25 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《Perpetuo》v2.0e 中文版（心理恐惧游戏）陷入循环的公寓
+
+夸克：https://pan.quark.cn/s/25735c5f1914
+
 #### 《洇客（Inked A Tale of Love）》Build.21146346 中文版
 
 夸克：https://pan.quark.cn/s/cf5a309c46c8
 
-#### 《星际裂变（StarRupture）》v0.1.0.112462-S 中文版
+#### 《星际裂变（StarRupture）》v0.1.0.112462-S 中文 联机版
 
 夸克：https://pan.quark.cn/s/83e2a97e0727
 
 #### 《DuneCrawl》v1.0.1 中文 联机版
 
 夸克：https://pan.quark.cn/s/cbd46356bf06
+
+#### 《狂怒2（Rage 2）豪华版》v1.09u4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/54418eb21932
 
 #### 《永恒终焉 4KHD版（RESONANCE OF FATE）》v1.0.0.4 汉化版（永恒终结）
 
