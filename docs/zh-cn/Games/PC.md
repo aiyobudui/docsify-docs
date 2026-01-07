@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《Cosplayer’s Quest》v2025.1.7 全DLC 中文版（穿越到异世界的阴角Cosplayer黑井衣）
+
+夸克：https://pan.quark.cn/s/97fc06a17e62
+
 #### 《Perpetuo》v2.0e 中文版（心理恐惧游戏）陷入循环的公寓
 
 夸克：https://pan.quark.cn/s/25735c5f1914
