@@ -76,143 +76,31 @@
 
 夸克：https://pan.quark.cn/s/62b52373093f
 
-#### 《嘘 美女拍摄中（Heroines Through My Lens）》v2025.12.27 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/9cb85dd9db6b
-
-#### 《疯狂连杀（ULTRAKILL）》Build.17867434 英文版
-
-夸克：https://pan.quark.cn/s/c5e7bc8fb7d0
-
-#### 《前线（The Front ）黄金版》v1.5.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a5f5b73dfd10
-
-#### 《斩妖除魔 重制版（Painkiller）豪华版》v232837 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/cee8868eac20
-
-#### 《炼金工厂（Alchemy Factory）》v0.4.1.3824 中文版
-
-夸克：https://pan.quark.cn/s/b3d64b3cca2d
-
-#### 《喵喵甜品屋（Cats and Cups）》v1.2.2 中文版
-
-夸克：https://pan.quark.cn/s/eca3b1bfd1f9
-
-#### 《汽车工厂帝国（Car Factory Empire）》v0.7.67 中文版
-
-夸克：https://pan.quark.cn/s/4861ae955070
-
-#### 《Worldwide Rush》v1.2.1 中文版（交通运输模拟游戏）
-
-夸克：https://pan.quark.cn/s/2b1b93d16875
-
-#### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
-
-夸克：https://pan.quark.cn/s/550ed16aa7c9
-
-#### 《人中之龙2 极2（Yakuza Kiwami 2）终结版》v1.11 中文版（如龙极2）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《人中之龙 极1（Yakuza Kiwami R）终结版》v1.12 中文版（如龙极2）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《人中之龙0 誓约的场所 导演剪辑版》v1.11 中文版（如龙0 导演剪辑版）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《死亡回归（Returnal）》v1.0-Build.11083317 中文版
-
-夸克：https://pan.quark.cn/s/39a545da9d4d
-
 ---
 
 ## 最近更新
 
-#### 《帝国时代2 决定版（Age of Empires II）》v162286 全DLC 中文 联机版
+#### 《失落之魂（Lost Soul Aside）豪华版》v1.101 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/0c0f7a82ce32
+夸克：https://pan.quark.cn/s/254473ee08f7
 
-#### 《汽车经销商模拟器（car dealer simulator）》v4791 中文版
+#### 《龙腾世纪3：审判（Dragon Age Inquisition）年度版》v2025.12.31 全DLC 汉化版
 
-夸克：https://pan.quark.cn/s/07d7b79e1ce3
+夸克：https://pan.quark.cn/s/dfabe34160e7
 
-#### 《墨境（Realm of Ink）》Build.21343145 中文版
+---
 
-夸克：https://pan.quark.cn/s/9c8494132b6e
+## 顶置游戏
 
-迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
+#### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
 
-#### 《故障星系（Galactic Glitch）》v1.84 中文版
-
-夸克：https://pan.quark.cn/s/7ffbd37791e7
-
-#### 《ASKA》v1.25.1812 中文 联机版 （生存建造游戏）
-
-夸克：https://pan.quark.cn/s/ce6b9d234a5f
-
-#### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.5b 全DLC 中文版（桌面小游戏）
-
-夸克：https://pan.quark.cn/s/dd64b7e57e0d
+夸克：https://pan.quark.cn/s/550ed16aa7c9
 
 #### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.220 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
-
-#### 《逃离鸭科夫（Escape From Duckov）》v1.3.13 中文版（附一堆MOD）
-
-夸克：https://pan.quark.cn/s/0efc56eb9b21
-
-#### 《辐射4（Fallout 4）周年版》v1.11.191 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3c6a02617ff3
-
-#### 《灰雨钢锋（Of Ash and Steel）》v1.05b 中文版
-
-夸克：https://pan.quark.cn/s/9c5a315866f7
-
-#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.19.1.0 中文 联机版（法外狂徒）
-
-夸克：https://pan.quark.cn/s/54c0aaad57e2
-
-#### 《庄园领主（Manor Lords）》v0.8.050 中文版
-
-夸克：https://pan.quark.cn/s/5a5272a9a4ba
-
-迅雷：https://pan.xunlei.com/s/VNwQI4byH3lpIbSUeQ2ABQXCA1?pwd=zjjb#
-
-#### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
-
-夸克：https://pan.quark.cn/s/821421b633bc
-
-#### 《加油站大亨（Gas Station Simulator）》v1.0.2.51074S 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6cd7822ab074
-
-#### 《CyberCorp》v1.36 中文 联机版（赛博巨头、赛博公司？）
-
-夸克：https://pan.quark.cn/s/7e18b53c27fb
-
-#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/e6b2b4cad601
-
-#### 《末日的回声（Echoes of the End）增强版》v2.0.3 中文版（魂类游戏）
-
-夸克：https://pan.quark.cn/s/ac1e0683f780
-
----
-
-## 顶置游戏
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
 
@@ -221,6 +109,14 @@
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
+
+#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/e6b2b4cad601
+
+#### 《末日的回声（Echoes of the End）增强版》v2.0.3 中文版（魂类游戏）
+
+夸克：https://pan.quark.cn/s/ac1e0683f780
 
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.3 全DLC 中文配音版（新增DLC：破碎理想国）
 
@@ -245,10 +141,6 @@
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.7.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
-
-#### 《失落之魂（Lost Soul Aside）豪华版》v1.100 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/254473ee08f7
 
 #### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179951 全DLC 中文版
 
@@ -413,6 +305,114 @@
 ---
 
 ## 已有游戏
+
+#### 《疯狂连杀（ULTRAKILL）》Build.17867434 英文版
+
+夸克：https://pan.quark.cn/s/c5e7bc8fb7d0
+
+#### 《前线（The Front ）黄金版》v1.5.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a5f5b73dfd10
+
+#### 《斩妖除魔 重制版（Painkiller）豪华版》v232837 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cee8868eac20
+
+#### 《炼金工厂（Alchemy Factory）》v0.4.1.3824 中文版
+
+夸克：https://pan.quark.cn/s/b3d64b3cca2d
+
+#### 《喵喵甜品屋（Cats and Cups）》v1.2.2 中文版
+
+夸克：https://pan.quark.cn/s/eca3b1bfd1f9
+
+#### 《汽车工厂帝国（Car Factory Empire）》v0.7.67 中文版
+
+夸克：https://pan.quark.cn/s/4861ae955070
+
+#### 《Worldwide Rush》v1.2.1 中文版（交通运输模拟游戏）
+
+夸克：https://pan.quark.cn/s/2b1b93d16875
+
+#### 《人中之龙2 极2（Yakuza Kiwami 2）终结版》v1.11 中文版（如龙极2）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
+#### 《人中之龙 极1（Yakuza Kiwami R）终结版》v1.12 中文版（如龙极2）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
+#### 《人中之龙0 誓约的场所 导演剪辑版》v1.11 中文版（如龙0 导演剪辑版）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
+#### 《死亡回归（Returnal）》v1.0-Build.11083317 中文版
+
+夸克：https://pan.quark.cn/s/39a545da9d4d
+
+#### 《帝国时代2 决定版（Age of Empires II）》v162286 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/0c0f7a82ce32
+
+#### 《汽车经销商模拟器（car dealer simulator）》v4791 中文版
+
+夸克：https://pan.quark.cn/s/07d7b79e1ce3
+
+#### 《墨境（Realm of Ink）》Build.21343145 中文版
+
+夸克：https://pan.quark.cn/s/9c8494132b6e
+
+迅雷：https://pan.xunlei.com/s/VO8HDZsLAc5ng5SPqCvILFBeA1?pwd=h5y2#
+
+#### 《故障星系（Galactic Glitch）》v1.84 中文版
+
+夸克：https://pan.quark.cn/s/7ffbd37791e7
+
+#### 《ASKA》v1.25.1812 中文 联机版 （生存建造游戏）
+
+夸克：https://pan.quark.cn/s/ce6b9d234a5f
+
+#### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.5b 全DLC 中文版（桌面小游戏）
+
+夸克：https://pan.quark.cn/s/dd64b7e57e0d
+
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.220 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《逃离鸭科夫（Escape From Duckov）》v1.3.13 中文版（附一堆MOD）
+
+夸克：https://pan.quark.cn/s/0efc56eb9b21
+
+#### 《辐射4（Fallout 4）周年版》v1.11.191 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3c6a02617ff3
+
+#### 《灰雨钢锋（Of Ash and Steel）》v1.05b 中文版
+
+夸克：https://pan.quark.cn/s/9c5a315866f7
+
+#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.19.1.0 中文 联机版（法外狂徒）
+
+夸克：https://pan.quark.cn/s/54c0aaad57e2
+
+#### 《庄园领主（Manor Lords）》v0.8.050 中文版
+
+夸克：https://pan.quark.cn/s/5a5272a9a4ba
+
+迅雷：https://pan.xunlei.com/s/VNwQI4byH3lpIbSUeQ2ABQXCA1?pwd=zjjb#
+
+#### 《史前王国（Prehistoric Kingdom）》v1.16.36 全DLC 中文版（史前动物园建造）
+
+夸克：https://pan.quark.cn/s/821421b633bc
+
+#### 《加油站大亨（Gas Station Simulator）》v1.0.2.51074S 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6cd7822ab074
+
+#### 《CyberCorp》v1.36 中文 联机版（赛博巨头、赛博公司？）
+
+夸克：https://pan.quark.cn/s/7e18b53c27fb
 
 #### 《梦幻主义（Onirism）》build.21313783 中文 联机版（奇幻动作冒险）
 
@@ -4990,10 +4990,6 @@
 #### 《胡闹厨房2（Overcooked! 2）美食版》v1034.799570 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/1059667c287f
-
-#### 《龙腾世纪3：审判（Dragon Age Inquisition）》v1.12u12 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/dfabe34160e7
 
 #### 《熔炉密林（Rotwood）》v665148 中文 联机版
 
@@ -10690,6 +10686,10 @@
 ---
 ## 互动影游
 > 靠前的是新添加的
+
+#### 《嘘 美女拍摄中（Heroines Through My Lens）》v2025.12.27 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/9cb85dd9db6b
 
 #### 《北望江山（JSBW Final Version）》v1.15 中文版（真人互动影游）
 
