@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《洇客（Inked A Tale of Love）》Build.21146346 中文版
+
+夸克：https://pan.quark.cn/s/cf5a309c46c8
+
 #### 《星际裂变（StarRupture）》v0.1.0.112462-S 中文版
 
 夸克：https://pan.quark.cn/s/83e2a97e0727
