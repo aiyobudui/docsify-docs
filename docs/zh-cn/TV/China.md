@@ -1925,3 +1925,8 @@
 
 迅雷：https://pan.xunlei.com/s/VOe_ygNFOnumIfO0-DC4d_HXA1?pwd=2qxq#
 
+#### 《跨过鸭绿江》（2020）4K 60帧 40集全（附电影）
+
+夸克：https://pan.quark.cn/s/2181cfce5d6c
+
+迅雷：https://pan.xunlei.com/s/VOiUL1kUp_l03wptst0E10spA1?pwd=r3qk#
