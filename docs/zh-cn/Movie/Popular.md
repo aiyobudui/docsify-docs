@@ -160,9 +160,9 @@
 
 夸克：https://pan.quark.cn/s/e0ab18a6eb9e
 
-#### 《毒液：最后一舞》（2024）4K
+#### 《毒液：最后一舞》（2024）4K（附1-3部+漫威宇宙电影合集）
 
-夸克：https://pan.quark.cn/s/8887add1ed99
+夸克：https://pan.quark.cn/s/ac1fe9f846e5
 
 #### 《749局》（2024）4K
 
@@ -320,25 +320,25 @@
 
 迅雷：https://pan.xunlei.com/s/VO8RmRK0QK6sT7_g6qmKSPZsA1?pwd=kq8a#
 
-#### 《云边有个小卖部》（2024）4K 
+#### 《云边有个小卖部》（2024）4K
 
 夸克：https://pan.quark.cn/s/dec3c0dc72a1
 
 迅雷：https://pan.xunlei.com/s/VO8NEw5HX8MwyiCHwHCsZDG-A1?pwd=grh5#
 
-#### 《死侍与金刚狼》（2024）4K 
+#### 《死侍与金刚狼》（2024）4K
 
 夸克：https://pan.quark.cn/s/d6c78e90c660
 
 迅雷：https://pan.xunlei.com/s/VO8768WN8Dw1ooVGCRkt-QFpA1?pwd=vwkx#
 
-#### 《默杀》（2024）4K 
+#### 《默杀》（2024）4K
 
 夸克：https://pan.quark.cn/s/08f8cd297bb2
 
 迅雷：https://pan.xunlei.com/s/VO7wbg7TPfPHE0x3nfULaHT6A1?pwd=qs4w#
 
-#### 《抓娃娃》（2024）4K 
+#### 《抓娃娃》（2024）4K
 
 夸克：https://pan.quark.cn/s/bf14706e2f77
 
@@ -711,12 +711,6 @@
 夸克：https://pan.quark.cn/s/876719afd840
 
 迅雷：https://pan.xunlei.com/s/VNoR6GJy-sCCfSfVDXeR_iNsA1?pwd=rig2#
-
-#### 《惊奇队长 1-2部》（2023）4K HDR 外挂中字
-
-夸克：https://pan.quark.cn/s/62ee80b002a9
-
-迅雷：https://pan.xunlei.com/s/VNuKMB8MCxtrKizkgaZxVtzGA1?pwd=wk6w#
 
 #### 《爱丽丝和特蕾丝的梦幻工厂》（2023）1080P 日语中字 动画电影
 

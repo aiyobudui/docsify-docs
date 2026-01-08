@@ -50,7 +50,7 @@
 
 阿里：https://www.alipan.com/s/Gydx8E6EXt8
 
-#### 《漫威宇宙电影合集》蓝光4K HDR 多国配音音轨 特效字幕
+#### 《漫威宇宙电影合集》蓝光4K HDR 多国配音音轨 特效字幕（包含了所有漫威的电影合集）
 
 夸克：https://pan.quark.cn/s/ac1fe9f846e5
 
@@ -58,7 +58,7 @@
 
 阿里：https://www.alipan.com/s/4LWbvEJqh7z
 
-#### 《DC宇宙电影合集》蓝光4K + 1080P 中英配音.特效字幕
+#### 《DC宇宙电影合集》蓝光4K + 1080P 中英配音.特效字幕（包含了所有DC的电影合集）
 
 夸克：https://pan.quark.cn/s/8802c654b8e3
 
@@ -443,23 +443,29 @@
 
 阿里：https://www.aliyundrive.com/s/d3W5iaCPvvJ
 
-#### 《蜘蛛侠》系列电影大合集 蓝光 4K REMUX + 蓝光 4K HDR 国英音轨 特效字幕
+#### 《蜘蛛侠 系列电影大合集》蓝光 4K HDR 国英音轨 特效字幕（超凡蜘蛛侠）
 
-夸克：https://pan.quark.cn/s/c6fb93d8dbe2
+夸克：https://pan.quark.cn/s/ac1fe9f846e5
 
 迅雷：https://pan.xunlei.com/s/VNxxMk7FyIp9ZTrRD0pV_RKNA1?pwd=beed#
 
 阿里：https://www.aliyundrive.com/s/d3W5iaCPvvJ
 
-#### 《X战警》1-13部 蓝光4K HDR + REMUX原盘 中英配音 内封特效中英字幕（死侍+X-men+金刚狼）
+#### 《X战警》1-13部 蓝光4K HDR 中英配音 内封特效中英字幕（死侍+X-men+金刚狼）
 
-夸克：https://pan.quark.cn/s/1f7f8ae03ce4
+夸克：https://pan.quark.cn/s/ac1fe9f846e5
 
 迅雷：https://pan.xunlei.com/s/VNxxOnkIxWRaCbiYr62UHagYA1?pwd=xf3v#
 
 阿里：https://www.aliyundrive.com/s/N4sBvz9rZHw
 
-#### 《人类清除计划》1-5部 蓝光4K REMUX原盘 + 蓝光4K HDR
+#### 《惊奇队长 1-2部》（2023）4K HDR 外挂中字
+
+夸克：https://pan.quark.cn/s/ac1fe9f846e5
+
+迅雷：https://pan.xunlei.com/s/VNuKMB8MCxtrKizkgaZxVtzGA1?pwd=wk6w#
+
+#### 《人类清除计划》1-5部 蓝光4K HDR
 
 夸克：https://pan.quark.cn/s/8d1de267f4aa
 
@@ -729,7 +735,7 @@
 
 #### 《蚁人》1-3部 蓝光4K HDR 中英配音 中英特效字幕
 
-夸克：https://pan.quark.cn/s/d34cf149c46b
+夸克：https://pan.quark.cn/s/ac1fe9f846e5
 
 迅雷：https://pan.xunlei.com/s/VNxyRLtsGOdmO8hqVDaZ_W1UA1?pwd=jbpj#
 
