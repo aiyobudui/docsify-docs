@@ -52,7 +52,11 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
-#### 《Cosplayer’s Quest》v2025.1.7 全DLC 中文版（穿越到异世界的阴角Cosplayer黑井衣）
+#### 《幸运草的约定（Clover Days Plus）终结版》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/7f8c6929ad3a
+
+#### 《Cosplayer’s Quest》v2025.1.7 全DLC 中文版（穿越到异世界Cosplayer黑井衣）
 
 夸克：https://pan.quark.cn/s/97fc06a17e62
 
@@ -84,6 +88,24 @@
 
 ## 最近更新
 
+#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
+
+夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《吾王保卫战（Just King）》v1.4.0g 中文版
+
+夸克：https://pan.quark.cn/s/b75304d5a2ed
+
+迅雷：https://pan.xunlei.com/s/VNy6StxOxWaqD3hpW75KTPDXA1?pwd=2b4k#
+
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.0 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.3.0 中文版
+
+夸克：https://pan.quark.cn/s/e47e913a8da7
+
 #### 《失落之魂（Lost Soul Aside）豪华版》v1.101 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/254473ee08f7
@@ -106,10 +128,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.4.0 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
-
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
@@ -125,10 +143,6 @@
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.3 全DLC 中文配音版（新增DLC：破碎理想国）
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
-
-#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61582 中文版
-
-夸克：https://pan.quark.cn/s/32c452be1479
 
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15c 全DLC 中文版（魂游）
 
@@ -281,10 +295,6 @@
 #### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v2025.9.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b433499adaec
-
-#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.2.0 中文版
-
-夸克：https://pan.quark.cn/s/e47e913a8da7
 
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.2 全DLC 中文版（新增修院迷踪DLC）
 
@@ -5688,12 +5698,6 @@
 #### 《开拓者：正义之怒（Pathfinder Wrath of the Righteous）神话版》v2.7.0W 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/27a9461af361
-
-#### 《吾王保卫战：正义国王（Just King）》v1.3.13B 全DLC 中文版（塔防游戏）
-
-夸克：https://pan.quark.cn/s/b75304d5a2ed
-
-迅雷：https://pan.xunlei.com/s/VNy6StxOxWaqD3hpW75KTPDXA1?pwd=2b4k#
 
 #### 《EvilSlayer》v2025.5.6 中文版（女仆打丧尸）
 
