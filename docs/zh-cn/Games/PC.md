@@ -52,11 +52,23 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《二战重建者（WW2 Rebuilder）》v1.5.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5408e6cbaf57
+
+##### 《古农庄（Ancient Farm）》v1.0.8 中文版
+
+夸克：https://pan.quark.cn/s/55cc53a60b54
+
+#### 《雪原余烬（Snow Ash）》v2026.1.9 中文版
+
+夸克：https://pan.quark.cn/s/08648b65183a
+
 #### 《幸运草的约定（Clover Days Plus）终结版》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/7f8c6929ad3a
 
-#### 《Cosplayer’s Quest》v2025.1.7 全DLC 中文版（穿越到异世界Cosplayer黑井衣）
+#### 《Cosplayer’s Quest》v2026.1.7 全DLC 中文版（穿越到异世界Cosplayer黑井衣）
 
 夸克：https://pan.quark.cn/s/97fc06a17e62
 
@@ -97,6 +109,10 @@
 夸克：https://pan.quark.cn/s/b75304d5a2ed
 
 迅雷：https://pan.xunlei.com/s/VNy6StxOxWaqD3hpW75KTPDXA1?pwd=2b4k#
+
+#### 《心之眼（MindsEye）豪华版》v6073305 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1d8bcee97d85
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.0 全DLC 中文配音 联机版
 
@@ -783,10 +799,6 @@
 #### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》v0.3 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/3fbb5a637da1
-
-#### 《心之眼（MindsEye）豪华版》v5702549 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1d8bcee97d85
 
 #### 《星之侵略者（StarVaders）》v2.0.0 中 全DLC 文版
 
