@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《兵连祸结（Wartorn）》v2025.12.18 中文版
+
+夸克：https://pan.quark.cn/s/9db03069901b
+
 #### 《蜉蝣世界（Flotsam）》v1.0.0f12 中文版
 
 夸克：https://pan.quark.cn/s/9b208670cc90
@@ -87,6 +91,14 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《寂静之歌（Songs Of Silence）》v1.6.1 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/60e04ec94244
+
+#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）豪华版》v1.3.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/49dd6d0d10cf
 
 #### 《奇物斋（Strange Antiquities）》v1.0.47 中文版（解密游戏 奇异古物）
 
@@ -2005,10 +2017,6 @@
 #### 《地狱之刃2：塞娜的传说（Senua’s Saga Hellblade II）增强版》v2025.10.11 中文版
 
 夸克：https://pan.quark.cn/s/d069de18760a
-
-#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）》v1.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/49dd6d0d10cf
 
 #### 《龙的传人：孤旅（Dragonkin The Banished）》v0.6.35.44610 全DLC 中文版
 
@@ -4209,10 +4217,6 @@
 #### 《杀戮空间3（Killing Floor 3）》Build.19273238 全DLC 中文版（恐怖射击）
 
 夸克：https://pan.quark.cn/s/02ab4ad5f5ea
-
-#### 《寂静之歌（Songs Of Silence）》v1.4.2 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/60e04ec94244
 
 #### 《战锤40K：角斗士之战争圣器（Warhammer 40000 Gladius Relics of War）》v1.16.2 全DLC 中文版
 
