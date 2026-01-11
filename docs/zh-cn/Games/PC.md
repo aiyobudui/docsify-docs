@@ -52,6 +52,22 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《蜉蝣世界（Flotsam）》v1.0.0f12 中文版
+
+夸克：https://pan.quark.cn/s/9b208670cc90
+
+#### 《血薪记：罪恶园区（Blood Money Lethal Eden）》v2026.1.11 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/6e5db3829e75
+
+#### 《崛起前线（Rising Front）》v2026.1.11 中文版
+
+夸克：https://pan.quark.cn/s/d092f94321f2
+
+#### 《帕夏时代（Roots of Pacha）》v1.3.0.5 中文版
+
+夸克：https://pan.quark.cn/s/29b5e1d775e0
+
 #### 《二战重建者（WW2 Rebuilder）》v1.5.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/5408e6cbaf57
@@ -64,38 +80,6 @@
 
 夸克：https://pan.quark.cn/s/08648b65183a
 
-#### 《幸运草的约定（Clover Days Plus）终结版》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/7f8c6929ad3a
-
-#### 《Cosplayer’s Quest》v2026.1.7 全DLC 中文版（穿越到异世界Cosplayer黑井衣）
-
-夸克：https://pan.quark.cn/s/97fc06a17e62
-
-#### 《Perpetuo》v2.0e 中文版（心理恐惧游戏）陷入循环的公寓
-
-夸克：https://pan.quark.cn/s/25735c5f1914
-
-#### 《洇客（Inked A Tale of Love）》Build.21146346 中文版
-
-夸克：https://pan.quark.cn/s/cf5a309c46c8
-
-#### 《星际裂变（StarRupture）》v0.1.0.112462-S 中文 联机版
-
-夸克：https://pan.quark.cn/s/83e2a97e0727
-
-#### 《DuneCrawl》v1.0.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/cbd46356bf06
-
-#### 《狂怒2（Rage 2）豪华版》v1.09u4 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/54418eb21932
-
-#### 《永恒终焉 4KHD版（RESONANCE OF FATE）》v1.0.0.4 汉化版（永恒终结）
-
-夸克：https://pan.quark.cn/s/62b52373093f
-
 ---
 
 ## 最近更新
@@ -103,6 +87,22 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《奇物斋（Strange Antiquities）》v1.0.47 中文版（解密游戏 奇异古物）
+
+夸克：https://pan.quark.cn/s/3d048bd03ffb
+
+#### 《抬头只见天花板（Looking Up I See Only A Ceiling）》v2.0.0.19 中文版
+
+夸克：https://pan.quark.cn/s/7b5b908bf9eb
+
+#### 《爱氏物语（Artis Impact）》v1.14 中文版
+
+夸克：https://pan.quark.cn/s/3dcd0ecc9013
+
+#### 《岛民 新海岸（Islanders New Shores）》v20251127 中文版
+
+夸克：https://pan.quark.cn/s/97141668cc4d
 
 #### 《吾王保卫战（Just King）》v1.4.0g 中文版
 
@@ -335,6 +335,38 @@
 ---
 
 ## 已有游戏
+
+#### 《幸运草的约定（Clover Days Plus）终结版》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/7f8c6929ad3a
+
+#### 《Cosplayer’s Quest》v2026.1.7 全DLC 中文版（穿越到异世界Cosplayer黑井衣）
+
+夸克：https://pan.quark.cn/s/97fc06a17e62
+
+#### 《Perpetuo》v2.0e 中文版（心理恐惧游戏）陷入循环的公寓
+
+夸克：https://pan.quark.cn/s/25735c5f1914
+
+#### 《洇客（Inked A Tale of Love）》Build.21146346 中文版
+
+夸克：https://pan.quark.cn/s/cf5a309c46c8
+
+#### 《星际裂变（StarRupture）》v0.1.0.112462-S 中文 联机版
+
+夸克：https://pan.quark.cn/s/83e2a97e0727
+
+#### 《DuneCrawl》v1.0.1 中文 联机版
+
+夸克：https://pan.quark.cn/s/cbd46356bf06
+
+#### 《狂怒2（Rage 2）豪华版》v1.09u4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/54418eb21932
+
+#### 《永恒终焉 4KHD版（RESONANCE OF FATE）》v1.0.0.4 汉化版（永恒终结）
+
+夸克：https://pan.quark.cn/s/62b52373093f
 
 #### 《疯狂连杀（ULTRAKILL）》Build.17867434 英文版
 
@@ -1117,10 +1149,6 @@
 #### 《幽室鬼牌（Deck of Haunts）》v666 中文版
 
 夸克：https://pan.quark.cn/s/929929d1ec80
-
-#### 《奇异古物（Strange Antiquities）》v1.0.40 中文版（解密游戏）
-
-夸克：https://pan.quark.cn/s/3d048bd03ffb
 
 #### 《梅树林的回声（Echoes of the Plum Grove）》v1.0.5.38s 全DLC 中文版
 
@@ -3652,10 +3680,6 @@
 
 夸克：https://pan.quark.cn/s/394ea7a5d3c2
 
-#### 《岛民：新海岸（Islanders New Shores）》v2025.8.1 中文版
-
-夸克：https://pan.quark.cn/s/97141668cc4d
-
 #### 《另一个肉鸽农场（Another Farm Roguelike Rebirth）》v2025.8.22 中文版
 
 夸克：https://pan.quark.cn/s/36439445a96c
@@ -4003,10 +4027,6 @@
 #### 《战争警告（Warnament）》v1.0.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/1c648426c2a9
-
-#### 《爱氏物语（Artis Impact）》v1.00 中文版
-
-夸克：https://pan.quark.cn/s/3dcd0ecc9013
 
 #### 《停车世界（Parking World Build & Manage）》v1.0.4 中文版
 
@@ -4954,10 +4974,6 @@
 #### 《叛逆神魂 GODSOUL（Rebellion GODSOUL Awakening on）》v1.12 中文版
 
 夸克：https://pan.quark.cn/s/91ac79013686
-
-#### 《抬头只见天花板（Looking Up I See Only A Ceiling）》v2.0.0.17 中文版
-
-夸克：https://pan.quark.cn/s/7b5b908bf9eb
 
 #### 《异变战区2（E.E.R.I.E2）》v1.9.4 中文 联机版
 
