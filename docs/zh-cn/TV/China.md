@@ -73,7 +73,7 @@
 
 #### 《新闻女王2》（2023-2025）1-2季全 国粤语配音
 
-夸克：https://pan.quark.cn/s/05fefd9c150d
+夸克：https://pan.quark.cn/s/33fae296a3ec
 
 迅雷：https://pan.xunlei.com/s/VNlBhJJdwI1_7ISBwOa3RTREA1?pwd=zqpf#
 
