@@ -19,9 +19,9 @@
 
 #### 《人之初》（2025）4K 18集 更新中...
 
-夸克：https://pan.quark.cn/s/802018ece412
+夸克：https://pan.quark.cn/s/da3ab7e69301
 
-#### 《逍遥》（2025）4K 40集 更新中..
+#### 《逍遥》（2025）4K 40集全
 
 夸克：https://pan.quark.cn/s/3383c5958f93
 

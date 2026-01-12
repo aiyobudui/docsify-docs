@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《孤女困魇（Silly Polly Beast）》V1.2 中文版（射击恐怖）
+
+夸克：https://pan.quark.cn/s/d41c34afa726
+
+#### 《我的世界 故事模式 1-2季（Minecraft：Story Mode）》最新 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/696ff58454c6
+
 #### 《兵连祸结（Wartorn）》v2025.12.18 中文版
 
 夸克：https://pan.quark.cn/s/9db03069901b
@@ -80,10 +88,6 @@
 
 夸克：https://pan.quark.cn/s/55cc53a60b54
 
-#### 《雪原余烬（Snow Ash）》v2026.1.9 中文版
-
-夸克：https://pan.quark.cn/s/08648b65183a
-
 ---
 
 ## 最近更新
@@ -91,6 +95,18 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《犯罪模拟器（Crime Simulator）》v1.32 中文 联机版
+
+夸克：https://pan.quark.cn/s/98518c51a604
+
+#### 《Morsels》v0.33.4 中文版（肉鸽怪兽收集）
+
+夸克：https://pan.quark.cn/s/cf2c571019a1
+
+#### 《雪原余烬（Snow Ash）》v2026.1.11 中文版
+
+夸克：https://pan.quark.cn/s/08648b65183a
 
 #### 《寂静之歌（Songs Of Silence）》v1.6.1 豪华中文 联机版
 
@@ -883,10 +899,6 @@
 #### 《Windswept》v1.0.2 中文版（双角色跳跃平台）
 
 夸克：https://pan.quark.cn/s/1c9da7c4ea7a
-
-#### 《Morsels》v0.30.748 中文版（肉鸽怪兽收集）
-
-夸克：https://pan.quark.cn/s/cf2c571019a1
 
 #### 《溯光行（Retrace The Light）》v1.0.2311 中文版（有中文配音）
 
@@ -2315,10 +2327,6 @@
 #### 《六星门：观星者（Sixtar Gate STARGAZER）》v1.0.6.001 全DLC 中文版（音乐游戏）
 
 夸克：https://pan.quark.cn/s/6ca8967a1a34
-
-#### 《犯罪模拟器（Crime Simulator）》v1.19m 中文 联机版
-
-夸克：https://pan.quark.cn/s/98518c51a604
 
 #### 《虐杀原形 2部（Prototype）》v2025.9.29 汉化版（已修复诸多问题）
 
