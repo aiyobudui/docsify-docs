@@ -80,6 +80,10 @@
 
 夸克：https://pan.quark.cn/s/0e246c4828ee
 
+#### 《说谎公主与盲眼王子》v1.0.1 NS模拟器整合 PC+安卓版
+
+夸克：https://pan.quark.cn/s/58e637680cf3
+
 #### 《朋克战士杜罗斯 Dros》v1.0.4 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ba0fbf9a5d1f

@@ -100,6 +100,10 @@
 
 ## 最近更新
 
+#### 《废品大亨（Barn Finders）》v27551 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/9576ae987e1e
+
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
@@ -6232,14 +6236,6 @@
 夸克：https://pan.quark.cn/s/e6b8e78aaf3b
 
 迅雷：https://pan.xunlei.com/s/VO8vc8xMVoRXq2d_xceb7ypOA1?pwd=k883#
-
-#### 《废品大亨（Barn Finders）》v26985 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/9576ae987e1e
-
-#### 《说谎公主与盲眼王子》v1.0.1 模拟器整合 PC+安卓版
-
-夸克：https://pan.quark.cn/s/58e637680cf3
 
 #### 《大厨生活：餐厅模拟器（Chef Life A Restaurant Simulator）》v31175 中文版
 
