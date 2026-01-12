@@ -52,6 +52,14 @@
 
 夸克：https://pan.quark.cn/s/095d1c334b71
 
+#### 《鲁特里一家死了（The Roottrees are Dead）》v2025.12.19 中文版
+
+夸克：https://pan.quark.cn/s/572c3c7faf90
+
+#### 《粉红谷》最新 汉化版（电脑+手机版）
+
+夸克：https://pan.quark.cn/s/c371836cc25d
+
 #### 《孤女困魇（Silly Polly Beast）》V1.2 中文版（射击恐怖）
 
 夸克：https://pan.quark.cn/s/d41c34afa726
@@ -95,6 +103,10 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《失落城堡2（Lost Castle 2）》v0.9.2.4.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/f391be81e520
 
 #### 《犯罪模拟器（Crime Simulator）》v1.32 中文 联机版
 
@@ -823,10 +835,6 @@
 #### 《模拟人生4（The Sims 4）豪华版》v1.119.109.1020 全DLC 中文 联机版 附联机教程
 
 夸克：https://pan.quark.cn/s/844d489a7abd
-
-#### 《失落城堡2（Lost Castle 2）》v0.8.3.3 中文 联机版
-
-夸克：https://pan.quark.cn/s/f391be81e520
 
 #### 《月球任务（ROUTINE）》v1.7.0.0 中文版（科幻恐怖游戏）
 

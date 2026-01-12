@@ -1871,6 +1871,10 @@
 
 夸克：https://pan.quark.cn/s/0a60a7ebc187
 
+#### 《鬓边不是海棠红》（2020）4K 49集全
+
+夸克：https://pan.quark.cn/s/4529e374fffe
+
 #### 《穿越火线》 (2020）1080P 36集全（鹿晗、吴磊）
 
 夸克：https://pan.quark.cn/s/11c16ca88ec5
