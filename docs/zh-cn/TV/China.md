@@ -29,6 +29,10 @@
 
 夸克：https://pan.quark.cn/s/6ec7409c9d0c
 
+#### 《唐诡奇谭》（2025）4K 21集全（唐朝诡事录4）
+
+夸克：https://pan.quark.cn/s/f00bd661f7c0
+
 ---
 
 ## 已完结的...
@@ -65,7 +69,7 @@
 
 #### 《唐朝诡事录之长安》（2020-2025）第三季 4K 40集全（附1-2季全）唐朝诡事录3
 
-夸克：https://pan.quark.cn/s/ff6c97ba7f98
+夸克：https://pan.quark.cn/s/c271f82e0422
 
 迅雷：https://pan.xunlei.com/s/VO28_YPqnRf86ylmfm93K1HmA1?pwd=rwi3#
 
