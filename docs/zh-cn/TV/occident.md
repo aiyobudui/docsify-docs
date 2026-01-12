@@ -305,7 +305,7 @@
 
 迅雷：https://pan.xunlei.com/s/VO6RL0kFHKb1Wzsgf_Gw1nL2A1?pwd=rm54# 《4K HDR
 
-#### 《猎魔人》（2019-2023）1080P 1-3季 + 血源 中英字幕
+#### 《猎魔人》（2019-2023）1080P高码 1-4季全 + 血源 中英字幕
 
 夸克：https://pan.quark.cn/s/90644532cdc2
 

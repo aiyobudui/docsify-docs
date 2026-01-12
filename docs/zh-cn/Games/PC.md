@@ -100,6 +100,10 @@
 
 ## 最近更新
 
+#### 《虐杀熔炉（KIBORG）》V2025.12.16 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/d590ba9f9318
+
 #### 《废品大亨（Barn Finders）》v27551 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/9576ae987e1e
@@ -1395,10 +1399,6 @@
 #### 《受折磨的灵魂2（Tormented Souls 2）豪华版》v1.3.0 全DLC 中文版（生存恐怖游戏）
 
 夸克：https://pan.quark.cn/s/9a82f315c342
-
-#### 《虐杀熔炉（KIBORG）》V2025.11.5 中文版
-
-夸克：https://pan.quark.cn/s/d590ba9f9318
 
 #### 《渊域（Beneath）》v0.9990f 全DLC 中文版（射击恐怖游戏）
 
