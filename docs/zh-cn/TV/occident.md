@@ -31,6 +31,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNvC8Ux_zbOcgUvTEI_xp41lA1?pwd=nnyu#
 
+#### 《老练律师》（2024-2025）1080P 中英字幕 第二季 更新中..（附第一季）
+
+夸克：https://pan.quark.cn/s/b5ae8073db91
+
 #### 《陆海之战》（2025）1080P 中字 5集全（神秘博士 衍生剧)
 
 夸克：https://pan.quark.cn/s/ba5ed862cfcc
@@ -39,7 +43,7 @@
 
 夸克：https://pan.quark.cn/s/7e4ce182b0f3
 
-#### 《怪奇物语》（2016-2025）4K 第五季 更新中..（附1-4季全+SP 蓝光4K 内封中英特效字幕 FRDS压制）
+#### 《怪奇物语》（2016-2025）4K 1-5季全+SP 蓝光4K 内封中英特效字幕（FRDS压制）
 
 夸克：https://pan.quark.cn/s/61be75bdc7a6
 
@@ -146,10 +150,6 @@
 迅雷：https://pan.xunlei.com/s/VNuKaoameFwxEbSBXZZ7aJIpA1?pwd=cjcb#
 
 阿里：<https://www.aliyundrive.com/s/Df1kCaocnJR>
-
-#### 《老练律师》（2024）第一季 1080P 19集全 中英字幕
-
-夸克：https://pan.quark.cn/s/b5ae8073db91
 
 #### 《人生切割术》（2022-2025）4K 1-2季全 中字
 
