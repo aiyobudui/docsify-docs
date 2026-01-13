@@ -48,6 +48,26 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.1176 中文版
+
+夸克：https://pan.quark.cn/s/51ec3310edca
+
+#### 《Big Hops》v21207 中文版（勇敢小青蛙跳跃平台冒险）
+
+夸克：https://pan.quark.cn/s/9784f2887b37
+
+#### 《Log.in》v2026.1.13 中文版（恐怖解謎）
+
+夸克：https://pan.quark.cn/s/1ac7c4217cae
+
+#### 《尸姬之梦（Dream of Corpse Lady）》v2026.1.13 中文版
+
+夸克：https://pan.quark.cn/s/0020655e3565
+
+#### 《无主之地2（Borderlands 2）年度版》Build.9218157 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/75df078cc085
+
 #### 《死亡空间 重制版（Dead Space Remake）豪华版》v2025.12.31 中文版（有中文配音）
 
 夸克：https://pan.quark.cn/s/095d1c334b71
@@ -99,6 +119,20 @@
 ---
 
 ## 最近更新
+
+#### 《动物收容所2（Animal Shelter 2）》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1057e0a53bfd
+
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.5.1469.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
+#### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v1013.20 中文版（GTA5增强版+纯净版+MOD整合版）
+
+夸克：https://pan.quark.cn/s/f27bd77aa030
+
+迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
 
 #### 《虐杀熔炉（KIBORG）》V2025.12.16 全DLC 中文版
 
@@ -157,26 +191,6 @@
 夸克：https://pan.quark.cn/s/b75304d5a2ed
 
 迅雷：https://pan.xunlei.com/s/VNy6StxOxWaqD3hpW75KTPDXA1?pwd=2b4k#
-
-#### 《心之眼（MindsEye）豪华版》v6073305 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1d8bcee97d85
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.0 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
-
-#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.3.0 中文版
-
-夸克：https://pan.quark.cn/s/e47e913a8da7
-
-#### 《失落之魂（Lost Soul Aside）豪华版》v1.101 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/254473ee08f7
-
-#### 《龙腾世纪3：审判（Dragon Age Inquisition）年度版》v2025.12.31 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/dfabe34160e7
 
 ---
 
@@ -379,6 +393,26 @@
 #### 《云之国（Cloudheim）》v88959 中文 联机版
 
 夸克：https://pan.quark.cn/s/c6afb4342e8a
+
+#### 《心之眼（MindsEye）豪华版》v6073305 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1d8bcee97d85
+
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.0 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.3.0 中文版
+
+夸克：https://pan.quark.cn/s/e47e913a8da7
+
+#### 《失落之魂（Lost Soul Aside）豪华版》v1.101 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/254473ee08f7
+
+#### 《龙腾世纪3：审判（Dragon Age Inquisition）年度版》v2025.12.31 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/dfabe34160e7
 
 ---
 
@@ -751,10 +785,6 @@
 #### 《禁闭求生2（Grounded 2）》v0.2.2.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/9dd4fa1dcd84
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.5.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
 
 #### 《茂林源记（Root：The Marauder Expansion）收藏家版》v2.1.1 全DLC 中文版
 
@@ -3020,10 +3050,6 @@
 
 夸克：https://pan.quark.cn/s/0364c29c778f
 
-#### 《动物收容所2（Animal Shelter 2）》v1.0.32 中文版
-
-夸克：https://pan.quark.cn/s/1057e0a53bfd
-
 #### 《Fate/hollow ataraxia REMASTERED 复刻版》v1.0.3.726 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/5fec93a2e98b
@@ -3655,10 +3681,6 @@
 #### 《TCG卡牌商店模拟器（TCG Card Shop Simulator）》v0.60.1 中文版
 
 夸克：https://pan.quark.cn/s/15d5e510ec67
-
-#### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v889.19 中文版（GTA5增强版）
-
-夸克：https://pan.quark.cn/s/f27bd77aa030
 
 #### 《动物迷城（Back to the Dawn）》v2.0.0.27 中文版
 
@@ -7518,16 +7540,6 @@
 #### 《乐高 地平线大冒险（LEGO Horizon Adventures）》v1.3.0.0 豪华中文版
 
 夸克：https://pan.quark.cn/s/82ec4a73833e
-
-#### 《侠盗猎车手5（Grand Theft Auto V）》GTA5 MOD整合版 超清画质+800真车+179人物
-
-夸克：https://pan.quark.cn/s/31c7066d940b
-
-#### 《侠盗猎车手5（Grand Theft Auto V）》GTA5 v3407 中文版 附中国风MOD
-
-夸克：https://pan.quark.cn/s/9bc2da97e570
-
-迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
 
 #### 《模拟山羊3（Goat Simulator 3）》v1.1.2.0 全DLC 中文版
 
