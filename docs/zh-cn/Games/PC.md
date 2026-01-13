@@ -124,6 +124,10 @@
 
 夸克：https://pan.quark.cn/s/1057e0a53bfd
 
+#### 《都市天际线2（Cities Skylines 2）终极版》v1.5.3f1 全DLC 中文版（城市天际线2）
+
+夸克：https://pan.quark.cn/s/e78ffec97c4e
+
 #### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.5.1469.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/2971b90d1c45
@@ -1083,10 +1087,6 @@
 #### 《废都物语 Ruina》v1.2.1 汉化版+安卓版（附攻略+补丁+工具+小说+修G器）
 
 夸克：https://pan.quark.cn/s/a9bc873b9b7b
-
-#### 《都市天际线2（Cities Skylines 2）终极版》v1.4.2f1 全DLC 中文版（城市天际线2）
-
-夸克：https://pan.quark.cn/s/e78ffec97c4e
 
 #### 《恐鬼症（Phasmophobia）》v0.15.0.0 中文 联机版
 
