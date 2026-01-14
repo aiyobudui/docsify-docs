@@ -120,6 +120,26 @@
 
 ## 最近更新
 
+#### 《灵魂射手 死亡使者（Soulslinger Envoy of Death）》v1.031 中文版（射击肉鸽）
+
+夸克：https://pan.quark.cn/s/c0f971484682
+
+#### 《地狱即我们（Hell is Us）豪华版》v1.5.40.44840 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/656ab3363cbd
+
+#### 《潜水员戴夫（Dave the Diver）豪华版》v1.0.5.1781 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2ed8f0fbce63
+
+迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.57.2.7s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
+
 #### 《动物收容所2（Animal Shelter 2）》v1.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/1057e0a53bfd
@@ -281,10 +301,6 @@
 #### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v2025.9.23 中文版
 
 夸克：https://pan.quark.cn/s/7814edba170c
-
-#### 《地狱即我们（Hell is Us）》v1.4.22.43941 全DLC 中文版（冒险动作）
-
-夸克：https://pan.quark.cn/s/656ab3363cbd
 
 #### 《赛博朋克2077（Cyberpunk 2077）终极版》v2.31 全DLC 中文配音版
 
@@ -2194,12 +2210,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNri90IcCAPiwlDMNmgWCYvLA1?pwd=btgj#
 
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.56.1.8s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
-
 #### 《美国卡车模拟（American Truck Simulator）高级版》v1.56.1.7s 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b7c28d5b7861
@@ -2621,12 +2631,6 @@
 #### 《以撒的结合（The Binding of Isaac：Rebirth）》v1.9.7.15 全DLC 汉化 联机版
 
 夸克：https://pan.quark.cn/s/72ba766c2a16
-
-#### 《潜水员戴夫（Dave the Diver）豪华版》v1.0.5.1726 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2ed8f0fbce63
-
-迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
 
 #### 《末日准备狂（Mr. Prepper）完整版》v1.42b 全DLC 中文版
 
@@ -4697,10 +4701,6 @@
 #### 《卡多梦：超能自走棋（Kadomon Hyper Auto Battlers）》v1.0.12 中文版
 
 夸克：https://pan.quark.cn/s/11252a692180
-
-#### 《灵魂射手：死亡使者（Soulslinger Envoy of Death）》v1.03 中文版（射击肉鸽）
-
-夸克：https://pan.quark.cn/s/c0f971484682
 
 #### 《造作海岛（Tinkerlands）》v45822.45 中文 联机版
 
