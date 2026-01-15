@@ -120,6 +120,18 @@
 
 ## 最近更新
 
+#### 《hololive 滚滚山（hololive GoroGoro Mountain）》v2.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/92e5ab962799
+
+#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.10.1.16733 中文版
+
+夸克：https://pan.quark.cn/s/652d7102951b
+
+#### 《云族裔（inZOI）》v0.5.3 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
 #### 《灵魂射手 死亡使者（Soulslinger Envoy of Death）》v1.031 中文版（射击肉鸽）
 
 夸克：https://pan.quark.cn/s/c0f971484682
@@ -615,10 +627,6 @@
 #### 《颂钟长鸣（Bellwright）》v0.046807 中文 联机版
 
 夸克：https://pan.quark.cn/s/4bffb8ad0065
-
-#### 《云族裔（inZOI）》v0.5.0 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
 
 #### 《Bodycam》Build.21150357 （2025.12.11）中文 联机版
 
@@ -2391,10 +2399,6 @@
 #### 《奇迹时代4（Age of Wonders 4）高级版》v1.012.001.112690 全DLC 中文版（新增DLC）
 
 夸克：https://pan.quark.cn/s/692dc066767e
-
-#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.7.1.14499 中文版
-
-夸克：https://pan.quark.cn/s/652d7102951b
 
 #### 《忍者神龟：破碎命运（TMNT：Splintered Fate）》v1.11.1 全DLC 豪华中文版
 
@@ -4339,10 +4343,6 @@
 #### 《向生而死（Death Relives）》v0.14.68.398 中文版
 
 夸克：https://pan.quark.cn/s/f1a444cae928
-
-#### 《hololive 滚滚山（hololive GoroGoro Mountain）》v2025.7.26 中文版
-
-夸克：https://pan.quark.cn/s/92e5ab962799
 
 #### 《越狱模拟器挖掘逃生 (Prison Escape Simulator Dig Out)》v2025.7.25 中文版
 
