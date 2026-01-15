@@ -973,7 +973,7 @@
 
 夸克：https://pan.quark.cn/s/be15054675c5
 
-迅雷：https://pan.xunlei.com/s/VNoWUQFk7J24fn5hvE3jdE0IA1?pwd=3wuk#
+迅雷：https://pan.xunlei.com/s/VOj0CHlCovk42ltl8c5h6A40A1?pwd=g733#
 
 #### 《神隐》（2023）4K 40集全+彩蛋 （赵露思主演）
 
