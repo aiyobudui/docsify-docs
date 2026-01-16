@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/51ec3310edca
 
+#### 《团战经理（Teamfight Manager）》v1.5.2 中文版
+
+夸克：https://pan.quark.cn/s/ab47f42816f6
+
 #### 《Big Hops》v21207 中文版（勇敢小青蛙跳跃平台冒险）
 
 夸克：https://pan.quark.cn/s/9784f2887b37

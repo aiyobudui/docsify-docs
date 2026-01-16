@@ -27,8 +27,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNlTlPDAKMncq9ndG-_FPnjQA1?pwd=zq4h#
 
-阿里：<https://www.alipan.com/s/7LvbFUUe6yx>
-
 #### 《宗门里除了我都是卧底》（2024）4K + 1080P 周一周六更新中..
 
 夸克：https://pan.quark.cn/s/05b592559999
@@ -145,6 +143,12 @@
 
 ## 周六
 
+#### 《一人之下》（2026）4K 第6集 更新中..（附1-5季+番外篇+剧场版）
+
+夸克：https://pan.quark.cn/s/086960b90bf2
+
+迅雷：https://pan.xunlei.com/s/VNnmIOtkVPA98SCZPniW_bjBA1?pwd=ia8u#
+
 #### 《凡人修仙传》（2024）4K高码 新年番 周六更新中..（附：重制版+原版+星海飞驰篇共76集+有声书+电子书）
 
 夸克：https://pan.quark.cn/s/ad348de8e3b7
@@ -218,8 +222,6 @@
 夸克：https://pan.quark.cn/s/6723d755291a
 
 迅雷：https://pan.xunlei.com/s/VNnmA01B3ia4pn2Zv4UbCHDnA1?pwd=hkma#
-
-阿里：<https://www.aliyundrive.com/s/6WLn8ocnbAR>
 
 #### 《那年那兔那些事》1-7季全+番外
 
@@ -544,14 +546,6 @@
 夸克：https://pan.quark.cn/s/5de1a6f49ec1
 
 迅雷：https://pan.xunlei.com/s/VNtCjInOxQ4qEFLIT3WEb5VXA1?pwd=bx7y#
-
-#### 《一人之下》1-5季+番外篇+剧场版
-
-夸克：https://pan.quark.cn/s/086960b90bf2
-
-迅雷：https://pan.xunlei.com/s/VNnmIOtkVPA98SCZPniW_bjBA1?pwd=ia8u#
-
-阿里：<https://www.aliyundrive.com/s/FN3kvs6HUEL>
 
 #### 《中国奇谭》4K 8集全
 
