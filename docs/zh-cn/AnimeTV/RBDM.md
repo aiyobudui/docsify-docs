@@ -23,13 +23,7 @@
 
 ## 周一
 
-#### 《一拳超人》1080P 第三季 更新中..（附1-2季台粤日英配音+OVA+英雄之路）
-
-夸克：https://pan.quark.cn/s/9a8d1509195a
-
-迅雷：https://pan.xunlei.com/s/VNnSbqTuVIOJAHKixEcO16ToA1?pwd=b6d8#
-
-阿里：https://www.aliyundrive.com/s/ZCWLJqpbnmA
+  
 
 ---
 
@@ -47,29 +41,29 @@
 
 ## 周四
 
-#### 《赛马娘 芦毛灰姑娘》1080P 简中 更新中..（附1-3季+四格1-2季+ Road to the Top +剧场版 新时代之门）
+#### 《咒术回战》（2020-2026）第三季 1080P 中字 更新中..（附1-2季全+剧场+漫画）
 
-夸克：https://pan.quark.cn/s/cfe362956a3c
+夸克：https://pan.quark.cn/s/6b44584aeb32
 
-迅雷：https://pan.xunlei.com/s/VO5abMFgND3LigDK3dhDb-ltA1?pwd=aw84#
+迅雷：https://pan.xunlei.com/s/VNlCa8oEXfVYqdf3xxvyjUPhA1?pwd=5yhz#
+
+阿里：<https://www.aliyundrive.com/s/V8VHh28iPKZ>
 
 ----
 
 ## 周五
 
-  
+#### 《葬送的芙莉莲》（2023-2026）第二季 1080P 中字 更新中..（附第一季+漫画）
+
+夸克：https://pan.quark.cn/s/713097eae882
+
+迅雷：https://pan.xunlei.com/s/VNnO4lpmvkIuubjQo5GCNTiFA1?pwd=24hx#
 
 ----
 
 ## 周六
 
-#### 《间谍过家家》第3季 更新中..（附1-2季全+剧场版+漫画）
 
-夸克：https://pan.quark.cn/s/56e3f3d69faa
-
-迅雷：https://pan.xunlei.com/s/VNlqOzf1LK7PkT06lZVK8fYvA1?pwd=cbeq#
-
-阿里：<https://www.aliyundrive.com/s/WBQSiFzLGor>
 
 ----
 
@@ -83,7 +77,6 @@
 
 阿里：<https://www.aliyundrive.com/s/my11DWixdvN>
 
-
 #### 《名侦探柯南》（1996）4K+1080P修复版 国日双配音 TV版+剧场版 更新中..（附剧场版合集+漫画+原声音乐）
 
 夸克：https://pan.quark.cn/s/c101e773135b
@@ -92,13 +85,35 @@
 
 阿里：<https://www.alipan.com/s/JAfCN2r9eP5>
 
-#### 《数码宝贝 合集》数码宝贝 BEATBREAK 周日 更新中..（附1-8季 1080P 国粤日配音+剧场版+OVA）
+---
+
+## 近期完结
+
+#### 《数码宝贝 合集》1-8季 1080P 国粤日配音+BEATBREAK+剧场版+OVA
 
 夸克：https://pan.quark.cn/s/1a227a9585cd
 
-----
+#### 《一拳超人》（2015-2025）1-3季全 台粤日英配音+OVA+英雄之路
 
-## 近期完结
+夸克：https://pan.quark.cn/s/e6ec1f533cb0
+
+迅雷：https://pan.xunlei.com/s/VNnSbqTuVIOJAHKixEcO16ToA1?pwd=b6d8#
+
+阿里：https://www.aliyundrive.com/s/ZCWLJqpbnmA
+
+#### 《赛马娘》（2021-2025）1-3季+四格1-2季+Road to the Top+芦毛灰姑娘+剧场版 新时代之门
+
+夸克：https://pan.quark.cn/s/cfe362956a3c
+
+迅雷：https://pan.xunlei.com/s/VO5abMFgND3LigDK3dhDb-ltA1?pwd=aw84#
+
+#### 《间谍过家家》（2022-2025）1080P 中字 1-3季全+剧场版 代号 白+漫画
+
+夸克：https://pan.quark.cn/s/56e3f3d69faa
+
+迅雷：https://pan.xunlei.com/s/VNlqOzf1LK7PkT06lZVK8fYvA1?pwd=cbeq#
+
+阿里：<https://www.aliyundrive.com/s/WBQSiFzLGor>
 
 #### 《终末的女武神》（2021-2025）1-3季全 1080P高码 中字
 
@@ -372,12 +387,6 @@
 
 阿里：<https://www.aliyundrive.com/s/JAfCN2r9eP5>
 
-#### 《葬送的芙莉莲》（2023）4K+1080P 简繁英 28集全
-
-夸克：https://pan.quark.cn/s/713097eae882
-
-迅雷：https://pan.xunlei.com/s/VNnO4lpmvkIuubjQo5GCNTiFA1?pwd=24hx#
-
 #### 《香格里拉·开拓异境～粪作猎手挑战神作》（2023）1080P 25集全
 
 夸克：https://pan.quark.cn/s/9e0f44a9b74c
@@ -457,14 +466,6 @@
 迅雷：https://pan.xunlei.com/s/VNnSaw8odVlJSNvTRSkN593TA1?pwd=bbyq#
 
 阿里：<https://www.aliyundrive.com/s/BdjMgWXCPVA>
-
-#### 《咒术回战》1-2季全 4K 第1季国日英配音+剧场版
-
-夸克：https://pan.quark.cn/s/6b44584aeb32
-
-迅雷：https://pan.xunlei.com/s/VNlCa8oEXfVYqdf3xxvyjUPhA1?pwd=5yhz#
-
-阿里：<https://www.aliyundrive.com/s/V8VHh28iPKZ>
 
 #### 《石纪元》1-3季全 1080P 中字
 

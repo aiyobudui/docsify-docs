@@ -48,6 +48,18 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《电玩人生（Gamer Stop Simulator）》v2026.1.16 中文版
+
+夸克：https://pan.quark.cn/s/0334a55bd322
+
+#### 《最终幻想12：黄道年代（FINAL FANTASY XII THE ZODIAC AGE）》v1.0.4 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《最终幻想：零式（HD Final Fantasy TYPE-0 HD）》v2021.6.21 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
 #### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.1176 中文版
 
 夸克：https://pan.quark.cn/s/51ec3310edca
@@ -88,41 +100,13 @@
 
 夸克：https://pan.quark.cn/s/d41c34afa726
 
-#### 《我的世界 故事模式 1-2季（Minecraft：Story Mode）》最新 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/696ff58454c6
-
-#### 《兵连祸结（Wartorn）》v2025.12.18 中文版
-
-夸克：https://pan.quark.cn/s/9db03069901b
-
-#### 《蜉蝣世界（Flotsam）》v1.0.0f12 中文版
-
-夸克：https://pan.quark.cn/s/9b208670cc90
-
-#### 《血薪记：罪恶园区（Blood Money Lethal Eden）》v2026.1.11 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/6e5db3829e75
-
-#### 《崛起前线（Rising Front）》v2026.1.11 中文版
-
-夸克：https://pan.quark.cn/s/d092f94321f2
-
-#### 《帕夏时代（Roots of Pacha）》v1.3.0.5 中文版
-
-夸克：https://pan.quark.cn/s/29b5e1d775e0
-
-#### 《二战重建者（WW2 Rebuilder）》v1.5.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5408e6cbaf57
-
-#### 《古农庄（Ancient Farm）》v1.0.8 中文版
-
-夸克：https://pan.quark.cn/s/55cc53a60b54
-
 ---
 
 ## 最近更新
+
+#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《hololive 滚滚山（hololive GoroGoro Mountain）》v2.0.1 全DLC 中文版
 
@@ -185,52 +169,6 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
-
-#### 《失落城堡2（Lost Castle 2）》v0.9.2.4.4 中文 联机版
-
-夸克：https://pan.quark.cn/s/f391be81e520
-
-#### 《犯罪模拟器（Crime Simulator）》v1.32 中文 联机版
-
-夸克：https://pan.quark.cn/s/98518c51a604
-
-#### 《Morsels》v0.33.4 中文版（肉鸽怪兽收集）
-
-夸克：https://pan.quark.cn/s/cf2c571019a1
-
-#### 《雪原余烬（Snow Ash）》v2026.1.11 中文版
-
-夸克：https://pan.quark.cn/s/08648b65183a
-
-#### 《寂静之歌（Songs Of Silence）》v1.6.1 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/60e04ec94244
-
-#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）豪华版》v1.3.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/49dd6d0d10cf
-
-#### 《奇物斋（Strange Antiquities）》v1.0.47 中文版（解密游戏 奇异古物）
-
-夸克：https://pan.quark.cn/s/3d048bd03ffb
-
-#### 《抬头只见天花板（Looking Up I See Only A Ceiling）》v2.0.0.19 中文版
-
-夸克：https://pan.quark.cn/s/7b5b908bf9eb
-
-#### 《爱氏物语（Artis Impact）》v1.14 中文版
-
-夸克：https://pan.quark.cn/s/3dcd0ecc9013
-
-#### 《岛民 新海岸（Islanders New Shores）》v20251127 中文版
-
-夸克：https://pan.quark.cn/s/97141668cc4d
-
-#### 《吾王保卫战（Just King）》v1.4.0g 中文版
-
-夸克：https://pan.quark.cn/s/b75304d5a2ed
-
-迅雷：https://pan.xunlei.com/s/VNy6StxOxWaqD3hpW75KTPDXA1?pwd=2b4k#
 
 ---
 
@@ -434,10 +372,6 @@
 
 夸克：https://pan.quark.cn/s/1d8bcee97d85
 
-#### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.0 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
-
 #### 《忍者龙剑传4（NINJA GAIDEN 4）豪华版》v1.0.3.0 中文版
 
 夸克：https://pan.quark.cn/s/e47e913a8da7
@@ -453,6 +387,84 @@
 ---
 
 ## 已有游戏
+
+#### 《我的世界 故事模式 1-2季（Minecraft：Story Mode）》最新 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/696ff58454c6
+
+#### 《兵连祸结（Wartorn）》v2025.12.18 中文版
+
+夸克：https://pan.quark.cn/s/9db03069901b
+
+#### 《蜉蝣世界（Flotsam）》v1.0.0f12 中文版
+
+夸克：https://pan.quark.cn/s/9b208670cc90
+
+#### 《血薪记：罪恶园区（Blood Money Lethal Eden）》v2026.1.11 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/6e5db3829e75
+
+#### 《崛起前线（Rising Front）》v2026.1.11 中文版
+
+夸克：https://pan.quark.cn/s/d092f94321f2
+
+#### 《帕夏时代（Roots of Pacha）》v1.3.0.5 中文版
+
+夸克：https://pan.quark.cn/s/29b5e1d775e0
+
+#### 《二战重建者（WW2 Rebuilder）》v1.5.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5408e6cbaf57
+
+#### 《古农庄（Ancient Farm）》v1.0.8 中文版
+
+夸克：https://pan.quark.cn/s/55cc53a60b54
+
+#### 《失落城堡2（Lost Castle 2）》v0.9.2.4.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/f391be81e520
+
+#### 《犯罪模拟器（Crime Simulator）》v1.32 中文 联机版
+
+夸克：https://pan.quark.cn/s/98518c51a604
+
+#### 《Morsels》v0.33.4 中文版（肉鸽怪兽收集）
+
+夸克：https://pan.quark.cn/s/cf2c571019a1
+
+#### 《雪原余烬（Snow Ash）》v2026.1.11 中文版
+
+夸克：https://pan.quark.cn/s/08648b65183a
+
+#### 《寂静之歌（Songs Of Silence）》v1.6.1 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/60e04ec94244
+
+#### 《牧场物语 来吧！风之繁华集市（STORY OF SEASONS Grand Bazaar）豪华版》v1.3.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/49dd6d0d10cf
+
+#### 《奇物斋（Strange Antiquities）》v1.0.47 中文版（解密游戏 奇异古物）
+
+夸克：https://pan.quark.cn/s/3d048bd03ffb
+
+#### 《抬头只见天花板（Looking Up I See Only A Ceiling）》v2.0.0.19 中文版
+
+夸克：https://pan.quark.cn/s/7b5b908bf9eb
+
+#### 《爱氏物语（Artis Impact）》v1.14 中文版
+
+夸克：https://pan.quark.cn/s/3dcd0ecc9013
+
+#### 《岛民 新海岸（Islanders New Shores）》v20251127 中文版
+
+夸克：https://pan.quark.cn/s/97141668cc4d
+
+#### 《吾王保卫战（Just King）》v1.4.0g 中文版
+
+夸克：https://pan.quark.cn/s/b75304d5a2ed
+
+迅雷：https://pan.xunlei.com/s/VNy6StxOxWaqD3hpW75KTPDXA1?pwd=2b4k#
 
 #### 《幸运草的约定（Clover Days Plus）终结版》v1.0.0 中文版
 
