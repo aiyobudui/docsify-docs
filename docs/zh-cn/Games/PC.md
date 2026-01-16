@@ -48,9 +48,21 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《破碎怪谈 恶意取关（BrokenLore UNFOLLOW）豪华版》最新 中文版（恐怖游戏）
+#### 《Hytale》v2026.1.16 汉化 联机版
 
-夸克：https://pan.quark.cn/s/179283e88fd4
+夸克：https://pan.quark.cn/s/b686c14b7c03
+
+#### 《赌徒之桌（Gamblers Table）》Build.21470204 中文版（很上头的放置型休闲游戏）
+
+夸克：https://pan.quark.cn/s/f43c2dda7bc0
+
+#### 《破碎怪谈 恶意取关（BrokenLore UNFOLLOW）豪华版》v2026.1.16 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/01033339d945
+
+#### 《破碎怪谈 切勿直视（BrokenLore DONT WATCH）》v2025.5.17 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/01033339d945
 
 #### 《海权（Sea Power Naval Combat in the Missile Age）》Build.21510592 中文版
 
@@ -6335,7 +6347,7 @@
 
 夸克：https://pan.quark.cn/s/379f08d9a6bd
 
-#### 《破碎怪谈：雾雨村（BrokenLore LOW）》v20250319 中文版（恐怖游戏）
+#### 《破碎怪谈 雾雨村（BrokenLore LOW）》v20250319 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/01033339d945
 
