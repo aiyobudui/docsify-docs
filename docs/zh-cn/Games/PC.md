@@ -48,6 +48,18 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《破碎怪谈 恶意取关（BrokenLore UNFOLLOW）豪华版》最新 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/179283e88fd4
+
+#### 《海权（Sea Power Naval Combat in the Missile Age）》Build.21510592 中文版
+
+夸克：https://pan.quark.cn/s/af33faba8ec6
+
+#### 《Super Woden Rally Edge》v1.0.2 中文版（可多人分屏的赛车小游戏）
+
+夸克：https://pan.quark.cn/s/04db85c4078f
+
 #### 《电玩人生（Gamer Stop Simulator）》v2026.1.16 中文版
 
 夸克：https://pan.quark.cn/s/0334a55bd322
@@ -107,6 +119,10 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《颂钟长鸣（Bellwright）》v0.0.46961 中文 联机版
+
+夸克：https://pan.quark.cn/s/4bffb8ad0065
 
 #### 《hololive 滚滚山（hololive GoroGoro Mountain）》v2.0.1 全DLC 中文版
 
@@ -639,10 +655,6 @@
 夸克：https://pan.quark.cn/s/44e5d688e433
 
 迅雷：https://pan.xunlei.com/s/VO-l9gAPcA8sbZ7PP_tGZUrnA1?pwd=zkxk#
-
-#### 《颂钟长鸣（Bellwright）》v0.046807 中文 联机版
-
-夸克：https://pan.quark.cn/s/4bffb8ad0065
 
 #### 《Bodycam》Build.21150357 （2025.12.11）中文 联机版
 
