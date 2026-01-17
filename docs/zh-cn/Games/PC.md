@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《息风谷战略（WindStop Strategy）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/9b0983d838ff
+
 #### 《Hytale》v2026.1.16 汉化 联机版
 
 夸克：https://pan.quark.cn/s/b686c14b7c03
@@ -131,6 +135,10 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.16598 全DLC 中文版（完整版）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
 
 #### 《颂钟长鸣（Bellwright）》v0.0.46961 中文 联机版
 
@@ -1155,10 +1163,6 @@
 #### 《恐鬼症（Phasmophobia）》v0.15.0.0 中文 联机版
 
 夸克：https://pan.quark.cn/s/f06faddc881c
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.16409 全DLC 中文版（完整版）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
 
 #### 《超自然车旅（Pacific Drive）豪华版》v1.13.0 全DLC 中文版
 

@@ -27,6 +27,10 @@
 
 夸克：https://pan.quark.cn/s/cd6307f39ef6
 
+#### 《棒球大联盟》(2019) 1080P 内封中字 16集全
+
+夸克：https://pan.quark.cn/s/af3b0ed26ad1
+
 #### 《夏娃》（2020）1080P 中字 16集全
 
 夸克：https://pan.quark.cn/s/00ffe0221b80
