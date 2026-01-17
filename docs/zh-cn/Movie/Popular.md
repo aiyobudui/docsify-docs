@@ -28,7 +28,7 @@
 
 #### 《电锯人 蕾塞篇 剧场版》（2022-2025）4K 第一季+剧场版（附漫画）
 
-夸克：https://pan.quark.cn/s/0a3a3a90efe3
+夸克：https://pan.quark.cn/s/626dd5e39275
 
 迅雷：https://pan.xunlei.com/s/VNo62f4hi7Wtop60ZlxqRIlZA1?pwd=ejen#
 

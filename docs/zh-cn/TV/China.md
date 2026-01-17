@@ -361,7 +361,7 @@
 
 #### 《异人之下之决战！碧游村》（2023-2025）4K 60帧 1-2季全
 
-夸克：和谐
+夸克：https://pan.quark.cn/s/824940048703
 
 迅雷：https://pan.xunlei.com/s/VOL6Bx3A2DIOqh3SU7Ro1kVJA1?pwd=n44d#
 
@@ -1286,12 +1286,6 @@
 迅雷：https://pan.xunlei.com/s/VNlCGnq_ztmeaDwt5YGeDZPHA1?pwd=sfm9#
 
 阿里：<https://www.alipan.com/s/XZxJtfMcZKM>
-
-#### 《异人之下》（2023）4K 27集全 》（一人之下真人版 ）🐇动漫IP改编
-
-夸克：https://pan.quark.cn/s/22c6e81f0b49
-
-迅雷：https://pan.xunlei.com/s/VNlBpdTiwI1_7ISBwOa3U2cLA1?pwd=aqyr#
 
 #### 《父辈的荣耀》（2023）4K 去片头片尾纯享版(现实题材剧 张晚意 郭涛 刘琳）
 
