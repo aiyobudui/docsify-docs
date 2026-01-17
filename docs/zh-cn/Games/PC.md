@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《魔女妙妙屋（Witch Play House）》v2026.1.17 中文版（魔幻收集冒险）
+
+夸克：https://pan.quark.cn/s/395dc6349e50
+
 #### 《息风谷战略（WindStop Strategy）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/9b0983d838ff
@@ -131,6 +135,10 @@
 ---
 
 ## 最近更新
+
+#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.2 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/220acef4a4a1
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.1 全DLC 中文配音 联机版
 
@@ -239,10 +247,6 @@
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15c 全DLC 中文版（魂游）
 
 夸克：https://pan.quark.cn/s/f45144acd21e
-
-#### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.1 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/220acef4a4a1
 
 #### 《浪人崛起（Rise of the Ronin）》v1.09.0.5 全DLC 中文 联机版
 
