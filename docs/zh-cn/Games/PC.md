@@ -96,42 +96,6 @@
 
 夸克：https://pan.quark.cn/s/51ec3310edca
 
-#### 《团战经理（Teamfight Manager）》v1.5.2 中文版
-
-夸克：https://pan.quark.cn/s/ab47f42816f6
-
-#### 《Big Hops》v21207 中文版（勇敢小青蛙跳跃平台冒险）
-
-夸克：https://pan.quark.cn/s/9784f2887b37
-
-#### 《Log.in》v2026.1.13 中文版（恐怖解謎）
-
-夸克：https://pan.quark.cn/s/1ac7c4217cae
-
-#### 《尸姬之梦（Dream of Corpse Lady）》v2026.1.13 中文版
-
-夸克：https://pan.quark.cn/s/0020655e3565
-
-#### 《无主之地2（Borderlands 2）年度版》Build.9218157 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/75df078cc085
-
-#### 《死亡空间 重制版（Dead Space Remake）豪华版》v2025.12.31 中文版（有中文配音）
-
-夸克：https://pan.quark.cn/s/095d1c334b71
-
-#### 《鲁特里一家死了（The Roottrees are Dead）》v2025.12.19 中文版
-
-夸克：https://pan.quark.cn/s/572c3c7faf90
-
-#### 《粉红谷》最新 汉化版（电脑+手机版）
-
-夸克：https://pan.quark.cn/s/c371836cc25d
-
-#### 《孤女困魇（Silly Polly Beast）》V1.2 中文版（射击恐怖）
-
-夸克：https://pan.quark.cn/s/d41c34afa726
-
 ---
 
 ## 最近更新
@@ -180,44 +144,6 @@
 
 夸克：https://pan.quark.cn/s/656ab3363cbd
 
-#### 《潜水员戴夫（Dave the Diver）豪华版》v1.0.5.1781 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/2ed8f0fbce63
-
-迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
-
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.57.2.7s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
-
-#### 《动物收容所2（Animal Shelter 2）》v1.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1057e0a53bfd
-
-#### 《都市天际线2（Cities Skylines 2）终极版》v1.5.3f1 全DLC 中文版（城市天际线2）
-
-夸克：https://pan.quark.cn/s/e78ffec97c4e
-
-#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.5.1469.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/2971b90d1c45
-
-#### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v1013.20 中文版（GTA5增强版+纯净版+MOD整合版）
-
-夸克：https://pan.quark.cn/s/f27bd77aa030
-
-迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
-
-#### 《废品大亨（Barn Finders）》v27551 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/9576ae987e1e
-
-#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
-
-夸克：https://pan.quark.cn/s/32c452be1479
-
 ---
 
 ## 顶置游戏
@@ -231,6 +157,20 @@
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《死亡空间 重制版（Dead Space Remake）豪华版》v2025.12.31 中文版（有中文配音）
+
+夸克：https://pan.quark.cn/s/095d1c334b71
+
+#### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
+
+夸克：https://pan.quark.cn/s/32c452be1479
+
+#### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v1013.20 中文版（GTA5增强版+纯净版+MOD整合版）
+
+夸克：https://pan.quark.cn/s/f27bd77aa030
+
+迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
 
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
@@ -431,6 +371,66 @@
 ---
 
 ## 已有游戏
+
+#### 《团战经理（Teamfight Manager）》v1.5.2 中文版
+
+夸克：https://pan.quark.cn/s/ab47f42816f6
+
+#### 《Big Hops》v21207 中文版（勇敢小青蛙跳跃平台冒险）
+
+夸克：https://pan.quark.cn/s/9784f2887b37
+
+#### 《Log.in》v2026.1.13 中文版（恐怖解謎）
+
+夸克：https://pan.quark.cn/s/1ac7c4217cae
+
+#### 《尸姬之梦（Dream of Corpse Lady）》v2026.1.13 中文版
+
+夸克：https://pan.quark.cn/s/0020655e3565
+
+#### 《无主之地2（Borderlands 2）年度版》Build.9218157 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/75df078cc085
+
+#### 《鲁特里一家死了（The Roottrees are Dead）》v2025.12.19 中文版
+
+夸克：https://pan.quark.cn/s/572c3c7faf90
+
+#### 《粉红谷》最新 汉化版（电脑+手机版）
+
+夸克：https://pan.quark.cn/s/c371836cc25d
+
+#### 《孤女困魇（Silly Polly Beast）》V1.2 中文版（射击恐怖）
+
+夸克：https://pan.quark.cn/s/d41c34afa726
+
+#### 《潜水员戴夫（Dave the Diver）豪华版》v1.0.5.1781 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2ed8f0fbce63
+
+迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.57.2.7s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
+
+#### 《动物收容所2（Animal Shelter 2）》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1057e0a53bfd
+
+#### 《都市天际线2（Cities Skylines 2）终极版》v1.5.3f1 全DLC 中文版（城市天际线2）
+
+夸克：https://pan.quark.cn/s/e78ffec97c4e
+
+#### 《植物大战僵尸：重制版（Plants vs Zombies Replanted）》v1.5.1469.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/2971b90d1c45
+
+#### 《废品大亨（Barn Finders）》v27551 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/9576ae987e1e
 
 #### 《我的世界 故事模式 1-2季（Minecraft：Story Mode）》最新 全DLC 中文版
 
