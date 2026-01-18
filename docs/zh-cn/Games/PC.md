@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/395dc6349e50
 
+#### 《8号站台（Platform 8）》v1.1.1 英文版（八号站台）
+
+夸克：https://pan.quark.cn/s/a85740761418
+
 #### 《息风谷战略（WindStop Strategy）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/9b0983d838ff

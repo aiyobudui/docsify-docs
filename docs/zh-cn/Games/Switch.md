@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
+#### 《8号站台 Platform 8》v1.0.4 NS整合 汉化版（八号站台）
+
+夸克：https://pan.quark.cn/s/3d6d274461dc
+
 #### 《少女与战车 梦幻坦克大会战 DX》v1.0.4 NS整合 豪华中文版
 
 夸克：https://pan.quark.cn/s/ea41e9bc3f20
