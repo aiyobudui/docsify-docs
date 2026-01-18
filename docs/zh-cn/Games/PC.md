@@ -148,6 +148,14 @@
 
 夸克：https://pan.quark.cn/s/afd55c48d634
 
+#### 《虐杀熔炉（KIBORG）》V2021.1.15 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/d590ba9f9318
+
+#### 《费卢杰六日（Six Days in Fallujah）》v0.5.0.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/4799c1232746
+
 #### 《颂钟长鸣（Bellwright）》v0.0.46961 中文 联机版
 
 夸克：https://pan.quark.cn/s/4bffb8ad0065
@@ -201,10 +209,6 @@
 夸克：https://pan.quark.cn/s/f27bd77aa030
 
 迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
-
-#### 《虐杀熔炉（KIBORG）》V2025.12.16 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/d590ba9f9318
 
 #### 《废品大亨（Barn Finders）》v27551 全DLC 中文版
 
@@ -7314,10 +7318,6 @@
 #### 《麻布仔大冒险（Sackboy A Big Adventure）》Build.10884090 中文 联机版
 
 夸克：https://pan.quark.cn/s/ff76686c2579
-
-#### 《费卢杰六日（Six Days in Fallujah）》v0.4.1.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/4799c1232746
 
 #### 《精灵宝可梦：究极之日丨究极之月（Pokemon Ultra Sun丨Ultra Moon）》v1.2 3DS模拟器PC 中文版
 
