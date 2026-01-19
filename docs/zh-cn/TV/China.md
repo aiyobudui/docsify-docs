@@ -25,9 +25,11 @@
 
 夸克：https://pan.quark.cn/s/3383c5958f93
 
-#### 《老舅》（2025）4K 27集全
+#### 《老舅》（2025）4K 60帧 27集全
 
-夸克：https://pan.quark.cn/s/6ec7409c9d0c
+夸克：https://pan.quark.cn/s/557037ec1d12
+
+迅雷：https://pan.xunlei.com/s/VOjLKj2VoKE8Bx8NRiE7pgOPA1?pwd=t5tg#
 
 #### 《唐诡奇谭》（2025）4K 21集全（唐朝诡事录4）
 
@@ -1924,6 +1926,10 @@
 #### 《我和僵尸有个约会》（1998）1-3季全 1080P 中字 国粤配音（默认国语）
 
 夸克：https://pan.quark.cn/s/d2074032cafd
+
+#### 《滚石爱情故事》（2016）1080P 20集全（台剧）
+
+夸克：https://pan.quark.cn/s/6329bb820fd6
 
 #### 《珠帘玉幕》（2024）4K高码 40集全
 
