@@ -48,6 +48,18 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《一次性交易大师（Yarimono）》v3.08 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ddf6f09e45fe
+
+#### 《惊魂（Psycho）》v2026.1.18 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/aee12f94183d
+
+#### 《银河尽头的餐馆（The Diner at the End of the Galaxy）》v2026.1.18 中文版
+
+夸克：https://pan.quark.cn/s/38441e91f1f3
+
 #### 《魔女妙妙屋（Witch Play House）》v2026.1.17 中文版（魔幻收集冒险）
 
 夸克：https://pan.quark.cn/s/395dc6349e50
@@ -104,6 +116,10 @@
 
 ## 最近更新
 
+#### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/f98896ec6e2c
+
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.2 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/220acef4a4a1
@@ -111,6 +127,24 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
+
+#### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.26.0 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/3a5af4f32c61
+
+#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.8.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ae92fcbace04
+
+#### 《降妖散记（Yao-Guai Hunter）》v1.2.8 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8272826eda10
+
+#### 《电竞教父（Esports Godfather）》v3.1.37 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6a594eb4a168
+
+迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
 
 #### 《超英派遣中心（Dispatch）豪华版》v1.0.16598 全DLC 中文版（完整版）
 
@@ -200,10 +234,6 @@
 
 夸克：https://pan.quark.cn/s/810a70e3cf63
 
-#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终结版》v1.7.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ae92fcbace04
-
 #### 《明末：渊虚之羽（WUCHANG Fallen Feathers）豪华版》v179951 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/29e03743d12f
@@ -219,10 +249,6 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
-
-#### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.25.1 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/3a5af4f32c61
 
 #### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
 
@@ -2520,12 +2546,6 @@
 
 夸克：https://pan.quark.cn/s/22157231c180
 
-#### 《电竞教父（Esports Godfather）》v3.1.4 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6a594eb4a168
-
-迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
-
 #### 《战争机器：重装上阵（Gears of War Reloaded）》v1.0.1.3816947 中文版（经典重制）
 
 夸克：https://pan.quark.cn/s/8a83ac5f92b0
@@ -4648,10 +4668,6 @@
 
 夸克：https://pan.quark.cn/s/651502c465cc
 
-#### 《降妖散记（Yao-Guai Hunter）》v1.2.0 中文版
-
-夸克：https://pan.quark.cn/s/8272826eda10
-
 #### 《秘影曼德拉（Mandragora Whispers of the Witch Tree）》v1.6.1.2461 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/96ff3c969a78
@@ -6648,10 +6664,6 @@
 夸克：https://pan.quark.cn/s/fa77fbe75401
 
 迅雷：https://pan.xunlei.com/s/VNoGU5fJ3l9OZ6iULlKV-xugA1?pwd=edrj#
-
-#### 《纪元1800（Anno 1800）》v9.2.972600 全DLC 中文版（修复闪退和启动问题）
-
-夸克：https://pan.quark.cn/s/f98896ec6e2c
 
 #### 《全网公敌2 新世界（Cyber Manhunt 2）》v1.08 中文版
 
@@ -9507,7 +9519,7 @@
 
 夸克：https://pan.quark.cn/s/dec8c384b354
 
-#### 《我的世界：地下城》v1.17.0.0 全DLC 豪华中文版
+#### 《我的世界 地下城（Minecraft Dungeons）终结版》v1.17.0.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/049684bdf4d6
 
