@@ -17,9 +17,11 @@
 
 ## 正在更新中的...
 
-#### 《人之初》（2025）4K 18集 更新中...
+#### 《人之初》（2025）4K 18集全
 
-夸克：https://pan.quark.cn/s/da3ab7e69301
+夸克：和谐
+
+迅雷：https://pan.xunlei.com/s/VOjLZRBOdjW60hkT_zkBbuAbA1?pwd=a3nq#
 
 #### 《逍遥》（2025）4K 40集全
 
@@ -41,7 +43,7 @@
 
 #### 《长安二十四计》（2025）4K 28集全
 
-夸克：https://pan.quark.cn/s/43451cf864fd
+夸克：https://pan.quark.cn/s/d4e4c849e9dc
 
 迅雷：https://pan.xunlei.com/s/VOgMzWzS8RsAcYQbV3XAgnIeA1?pwd=7aif#
 
