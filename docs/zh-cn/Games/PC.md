@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《秘奥 秘宇奥忆（MIO Memories in Orbit）》vr21606 中文版
+
+夸克：https://pan.quark.cn/s/69bb5b7c8aa3
+
 #### 《预先号令（WARNO）黄金版》v178863 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/eee1d0f62832
@@ -139,6 +143,10 @@
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.11 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
 
@@ -833,10 +841,6 @@
 #### 《战争传说（Wartales）雇佣兵版》v1.0.45242 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/f2a711fede86
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.10 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.3.23175 中文版（附淬火MOD+地图包+秘籍）
 
