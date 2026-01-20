@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《荒野大农夫（Cattle Country）》Build.20884177 中文版
+
+夸克：https://pan.quark.cn/s/0a6172955fa2
+
 #### 《一次性交易大师（Yarimono）》v3.08 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ddf6f09e45fe
@@ -119,6 +123,10 @@
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
+
+#### 《非生物因素（Abiotic Factor）支持者版》v1.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/d7b93db8b076
 
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.2 全DLC 中文 联机版
 
@@ -4007,10 +4015,6 @@
 #### 《帝国霸业：银河生存（Empyrion Galactic Survival）》v1.13.B4795 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/707801c5f647
-
-#### 《非生物因素（Abiotic Factor）支持者版》v1.0.0.20809 中文 联机版
-
-夸克：https://pan.quark.cn/s/d7b93db8b076
 
 #### 《迷失混沌王国：永恒之骰（Lost in Random The Eternal Die）特别版》v29915 全DLC 中文版
 
