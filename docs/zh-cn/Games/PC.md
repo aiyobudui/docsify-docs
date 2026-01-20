@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《叛变 沙漠风暴（Insurgency Sandstorm）》v1.18.0.349922 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/12fd42f72383
+
 #### 《荒野大农夫（Cattle Country）》Build.20884177 中文版
 
 夸克：https://pan.quark.cn/s/0a6172955fa2
@@ -123,6 +127,10 @@
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
+
+#### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
+
+夸克：https://pan.quark.cn/s/15e312a44808
 
 #### 《非生物因素（Abiotic Factor）支持者版》v1.2 中文 联机版
 
@@ -1217,10 +1225,6 @@
 #### 《尤卡莱莉：回归（Yooka Replaylee）》v1.02 中文版（开放世界冒险）
 
 夸克：https://pan.quark.cn/s/6758e2260430
-
-#### 《火星求生：重制版（Surviving Mars Relaunched）终结版》v1.0.2.382778 全DLC 中文版（附原版）
-
-夸克：https://pan.quark.cn/s/15e312a44808
 
 #### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.04.1 中文 联机版
 

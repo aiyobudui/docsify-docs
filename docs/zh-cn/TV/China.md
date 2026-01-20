@@ -41,6 +41,12 @@
 
 ## 已完结的...
 
+#### 《罚罪2》（2025）4K 1-2季全
+
+夸克：秒和谐无法分享
+
+迅雷：https://pan.xunlei.com/s/VOjQjLUes6pMPzDcCzlitHPlA1?pwd=3c6g#
+
 #### 《长安二十四计》（2025）4K 28集全
 
 夸克：https://pan.quark.cn/s/d4e4c849e9dc
