@@ -48,9 +48,21 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《预先号令（WARNO）黄金版》v178863 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/eee1d0f62832
+
 #### 《叛变 沙漠风暴（Insurgency Sandstorm）》v1.18.0.349922 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/12fd42f72383
+
+#### 《月华辉映之刻》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/b7129e40f934
+
+#### 《机密谋杀案中案（Confidential Killings）》Build.1.01 中文版（硬核本格推理侦探游戏）
+
+夸克：https://pan.quark.cn/s/2159d0db1f39
 
 #### 《荒野大农夫（Cattle Country）》Build.20884177 中文版
 
