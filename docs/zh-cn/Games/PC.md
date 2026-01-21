@@ -144,9 +144,23 @@
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
 
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.247 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.11 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《月光石岛（Moonstone Island）》v1.7.2365 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cee0a46d1f94
+
+#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.2.7445.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6aefdf352960
+
+迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
 
 #### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
 
@@ -677,10 +691,6 @@
 #### 《线条小狗：动物温泉（Maltese's Fluffy Onsen）豪华版》v1.5b 全DLC 中文版（桌面小游戏）
 
 夸克：https://pan.quark.cn/s/dd64b7e57e0d
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.220 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
 
 #### 《逃离鸭科夫（Escape From Duckov）》v1.3.13 中文版（附一堆MOD）
 
@@ -3679,12 +3689,6 @@
 #### 《风来之国：复活吧！海鸥镇（Eastward Octopia）》v1.2.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fbcf608ebec0
-
-#### 《帝国时代4（Age of Empires IV）周年纪念版》v14.1.5602 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6aefdf352960
-
-迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
 
 #### 《Sharks and Minnows》Build.18411182 中文版（生存探索恐怖游戏）鲨鱼和鳊鱼
 
@@ -9034,10 +9038,6 @@
 #### 《点点乐园（Clickyland）》v1.0.2b 中文版 （村庄建造塔防游戏）
 
 夸克：https://pan.quark.cn/s/56d909abf3ef
-
-#### 《月光石岛（Moonstone Island）》v1.4.055.12 中文版
-
-夸克：https://pan.quark.cn/s/cee0a46d1f94
 
 #### 《TEVI》v1.20c 中文版
 

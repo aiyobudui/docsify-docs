@@ -44,13 +44,37 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
+#### 《宝可梦传说ZA》v2.0.0 全DLC NS整合 中文版（宝可梦Z-A）
+
+夸克：https://pan.quark.cn/s/dcbd1b6a2883
+
+#### 《动物森友会》v3.0.0 全DLC NS整合 中文版
+
+夸克：https://pan.quark.cn/s/83869492b208
+
+#### 《七度荒域 混沌之树 7th Domain Tree of Chaos》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/fa2d2dd7a5ab
+
+#### 《莱莎的炼金工房 秘密三部曲 DX版》最新 NS未整合 日区中文版
+
+夸克：https://pan.quark.cn/s/6bed5031e5fc
+
+#### 《扬帆起航 Sail Forth》v1.7.2 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/f08aa81d1726
+
+#### 《迷宫追逐大挑战》v1.4.10 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/a9dcb9baac33
+
 #### 《歧路旅人0》v1.0.2 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/ba323806235b
 
-#### 《宝可梦传说ZA》v2.0.0 全DLC NS整合 中文版
+#### 《英雄传说 界之轨迹 告别塞姆利亚》v1.0.5 NS整合 英文版
 
-夸克：https://pan.quark.cn/s/dcbd1b6a2883
+夸克：https://pan.quark.cn/s/49c7f10426d9
 
 #### 《星露谷物语 Stardew Valley》v1.6.15.11 NS整合 中文版
 
@@ -200,7 +224,7 @@
 
 夸克：https://pan.quark.cn/s/7f5d79337fe1
 
-#### 《月光石岛》v1.0.12 NS整合 中文版
+#### 《月光石岛 Moonstone Island》v1.0.16 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/d8327ad1ec98
 
@@ -220,13 +244,9 @@
 
 夸克：https://pan.quark.cn/s/119c00761869
 
-#### 《幻想生活ｉ 转圈圈的龙和偷取时间的少女》v1.4.0 全DLC NS整合 中文版
+#### 《幻想生活ｉ 转圈圈的龙和偷取时间的少女》v2.0.4 全DLC NS整合 中文版
 
 夸克：https://pan.quark.cn/s/601a22c5b461
-
-#### 《动物森友会》v2.0.8 全DLC NS整合 中文版
-
-夸克：https://pan.quark.cn/s/83869492b208
 
 #### 《文明7》v1.3.1 全DLC NS整合 中文版
 
