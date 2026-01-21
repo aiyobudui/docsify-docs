@@ -56,7 +56,7 @@
 
 夸克：https://pan.quark.cn/s/eee1d0f62832
 
-#### 《叛变 沙漠风暴（Insurgency Sandstorm）》v1.18.0.349922 全DLC 中文版
+#### 《叛乱 沙漠风暴（Insurgency Sandstorm）》v1.18.0.349922 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/12fd42f72383
 
