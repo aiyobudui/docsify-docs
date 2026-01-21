@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
+#### 《星露谷物语 Stardew Valley》v1.6.15.11 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/31baa2e3690a
+
 #### 《8号站台 Platform 8》v1.0.4 NS整合 汉化版（八号站台）
 
 夸克：https://pan.quark.cn/s/3d6d274461dc

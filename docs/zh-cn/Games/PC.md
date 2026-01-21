@@ -148,6 +148,10 @@
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
 
+#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
 #### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
 
 夸克：https://pan.quark.cn/s/15e312a44808
@@ -641,10 +645,6 @@
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
 #### 《人中之龙 极1（Yakuza Kiwami R）终结版》v1.12 中文版（如龙极2）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《人中之龙0 誓约的场所 导演剪辑版》v1.11 中文版（如龙0 导演剪辑版）
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
