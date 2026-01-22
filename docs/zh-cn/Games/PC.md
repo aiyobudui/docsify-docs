@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《去钓鱼了（GONE Fishing）》Build.21561886 中文 联机版（多人恐怖生存游戏）
+
+夸克：https://pan.quark.cn/s/0f348eda1492
+
+#### 《希克斯之歌（Songs of Syx）》v0.70.32 中文版
+
+夸克：https://pan.quark.cn/s/8e2dda587b27
+
 #### 《秘奥 秘宇奥忆（MIO Memories in Orbit）》vr21606 中文版
 
 夸克：https://pan.quark.cn/s/69bb5b7c8aa3
@@ -96,49 +104,13 @@
 
 夸克：https://pan.quark.cn/s/9b0983d838ff
 
-#### 《Hytale》v2026.1.16 汉化 联机版
-
-夸克：https://pan.quark.cn/s/b686c14b7c03
-
-#### 《赌徒之桌（Gamblers Table）》Build.21470204 中文版（很上头的放置型休闲游戏）
-
-夸克：https://pan.quark.cn/s/f43c2dda7bc0
-
-#### 《破碎怪谈 恶意取关（BrokenLore UNFOLLOW）豪华版》v2026.1.16 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/01033339d945
-
-#### 《破碎怪谈 切勿直视（BrokenLore DONT WATCH）》v2025.5.17 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/01033339d945
-
-#### 《海权（Sea Power Naval Combat in the Missile Age）》Build.21510592 中文版
-
-夸克：https://pan.quark.cn/s/af33faba8ec6
-
-#### 《Super Woden Rally Edge》v1.0.2 中文版（可多人分屏的赛车小游戏）
-
-夸克：https://pan.quark.cn/s/04db85c4078f
-
-#### 《电玩人生（Gamer Stop Simulator）》v2026.1.16 中文版
-
-夸克：https://pan.quark.cn/s/0334a55bd322
-
-#### 《最终幻想12：黄道年代（FINAL FANTASY XII THE ZODIAC AGE）》v1.0.4 中文版
-
-夸克：https://pan.quark.cn/s/79878124f832
-
-#### 《最终幻想：零式（HD Final Fantasy TYPE-0 HD）》v2021.6.21 中文版
-
-夸克：https://pan.quark.cn/s/79878124f832
-
-#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.1176 中文版
-
-夸克：https://pan.quark.cn/s/51ec3310edca
-
 ---
 
 ## 最近更新
+
+#### 《真三国无双 起源（Dynasty Warriors Origins）豪华版》v1.0.0.9 全DLC 中文配音版（新增梦幻四英杰DLC）
+
+夸克：https://pan.quark.cn/s/346ee452b56d
 
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
@@ -190,51 +162,9 @@
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
 
-#### 《降妖散记（Yao-Guai Hunter）》v1.2.8 全DLC 中文版
+#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.56738.0 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/8272826eda10
-
-#### 《电竞教父（Esports Godfather）》v3.1.37 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6a594eb4a168
-
-迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
-
-#### 《超英派遣中心（Dispatch）豪华版》v1.0.16598 全DLC 中文版（完整版）
-
-夸克：https://pan.quark.cn/s/afd55c48d634
-
-#### 《虐杀熔炉（KIBORG）》V2021.1.15 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/d590ba9f9318
-
-#### 《费卢杰六日（Six Days in Fallujah）》v0.5.0.0 中文 联机版
-
-夸克：https://pan.quark.cn/s/4799c1232746
-
-#### 《颂钟长鸣（Bellwright）》v0.0.46961 中文 联机版
-
-夸克：https://pan.quark.cn/s/4bffb8ad0065
-
-#### 《hololive 滚滚山（hololive GoroGoro Mountain）》v2.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/92e5ab962799
-
-#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.10.1.16733 中文版
-
-夸克：https://pan.quark.cn/s/652d7102951b
-
-#### 《云族裔（inZOI）》v0.5.3 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
-
-#### 《灵魂射手 死亡使者（Soulslinger Envoy of Death）》v1.031 中文版（射击肉鸽）
-
-夸克：https://pan.quark.cn/s/c0f971484682
-
-#### 《地狱即我们（Hell is Us）豪华版》v1.5.40.44840 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/656ab3363cbd
+夸克：https://pan.quark.cn/s/51201cccd0db
 
 ---
 
@@ -408,10 +338,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNoGSO4FQkxnHiGPS-X13LkSA1?pwd=5j2h#
 
-#### 《真三国无双 起源（Dynasty Warriors Origins）》v1.0.0.7 中文配音版
-
-夸克：https://pan.quark.cn/s/346ee452b56d
-
 #### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v2025.9.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/b433499adaec
@@ -455,6 +381,92 @@
 ---
 
 ## 已有游戏
+
+#### 《Hytale》v2026.1.16 汉化 联机版
+
+夸克：https://pan.quark.cn/s/b686c14b7c03
+
+#### 《赌徒之桌（Gamblers Table）》Build.21470204 中文版（很上头的放置型休闲游戏）
+
+夸克：https://pan.quark.cn/s/f43c2dda7bc0
+
+#### 《破碎怪谈 恶意取关（BrokenLore UNFOLLOW）豪华版》v2026.1.16 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/01033339d945
+
+#### 《破碎怪谈 切勿直视（BrokenLore DONT WATCH）》v2025.5.17 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/01033339d945
+
+#### 《海权（Sea Power Naval Combat in the Missile Age）》Build.21510592 中文版
+
+夸克：https://pan.quark.cn/s/af33faba8ec6
+
+#### 《Super Woden Rally Edge》v1.0.2 中文版（可多人分屏的赛车小游戏）
+
+夸克：https://pan.quark.cn/s/04db85c4078f
+
+#### 《电玩人生（Gamer Stop Simulator）》v2026.1.16 中文版
+
+夸克：https://pan.quark.cn/s/0334a55bd322
+
+#### 《最终幻想12：黄道年代（FINAL FANTASY XII THE ZODIAC AGE）》v1.0.4 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《最终幻想：零式（HD Final Fantasy TYPE-0 HD）》v2021.6.21 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.1176 中文版
+
+夸克：https://pan.quark.cn/s/51ec3310edca
+
+#### 《降妖散记（Yao-Guai Hunter）》v1.2.8 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8272826eda10
+
+#### 《电竞教父（Esports Godfather）》v3.1.37 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6a594eb4a168
+
+迅雷：https://pan.xunlei.com/s/VO5uldZ2Cmxt1YGZGjJuqFl0A1?pwd=fgj5#
+
+#### 《超英派遣中心（Dispatch）豪华版》v1.0.16598 全DLC 中文版（完整版）
+
+夸克：https://pan.quark.cn/s/afd55c48d634
+
+#### 《虐杀熔炉（KIBORG）》V2021.1.15 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/d590ba9f9318
+
+#### 《费卢杰六日（Six Days in Fallujah）》v0.5.0.0 中文 联机版
+
+夸克：https://pan.quark.cn/s/4799c1232746
+
+#### 《颂钟长鸣（Bellwright）》v0.0.46961 中文 联机版
+
+夸克：https://pan.quark.cn/s/4bffb8ad0065
+
+#### 《hololive 滚滚山（hololive GoroGoro Mountain）》v2.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/92e5ab962799
+
+#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.10.1.16733 中文版
+
+夸克：https://pan.quark.cn/s/652d7102951b
+
+#### 《云族裔（inZOI）》v0.5.3 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《灵魂射手 死亡使者（Soulslinger Envoy of Death）》v1.031 中文版（射击肉鸽）
+
+夸克：https://pan.quark.cn/s/c0f971484682
+
+#### 《地狱即我们（Hell is Us）豪华版》v1.5.40.44840 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/656ab3363cbd
 
 #### 《团战经理（Teamfight Manager）》v1.5.2 中文版
 
@@ -1289,10 +1301,6 @@
 #### 《沃尔森：破坏领主（Wolcen Lords of Mayhem）》v1.1.7.16.12 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0928fbd3d8a7
-
-#### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.54786.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
 
 #### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
 
