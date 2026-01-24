@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《奇怪的RPG 2（Wired RPG 2）》v2026.1.24 中文版
+
+夸克：https://pan.quark.cn/s/45e2f53794aa
+
 #### 《灾厄之石（Blightstone）》v0.8.00.1510 中文版
 
 夸克：https://pan.quark.cn/s/677c48dbb6ef
@@ -112,7 +116,11 @@
 
 ## 最近更新
 
-#### 《真三国无双 起源（Dynasty Warriors Origins）豪华版》v1.0.0.9 全DLC 中文配音版（新增梦幻四英杰DLC）
+#### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.006 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《真三国无双 起源（Dynasty Warriors Origins）豪华版》v1.0.1.0 全DLC 中文配音版（新增梦幻四英杰DLC）
 
 夸克：https://pan.quark.cn/s/346ee452b56d
 
@@ -127,6 +135,10 @@
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.11 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《黄金像凶杀案再起（The Rise of the Golden Idol）》v1.0.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b903b4d498ba
 
 #### 《月光石岛（Moonstone Island）》v1.7.2365 全DLC 中文版
 
@@ -3672,10 +3684,6 @@
 
 夸克：https://pan.quark.cn/s/79878124f832
 
-#### 《最终幻想7 重制版 Intergrade（Final Fantasy VII Remake Intergrade）》v1.005 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/79878124f832
-
 #### 《最终幻想 重制系列1-6》像素 v1.1.0 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/79878124f832
@@ -5296,10 +5304,6 @@
 #### 《咒语力量：征服埃欧大陆（SpellForce Conquest of Eo）》v01.10.31971 中文版
 
 夸克：https://pan.quark.cn/s/01305fbb118a
-
-#### 《黄金像凶杀案再起（The Rise of the Golden Idol）》v1.5.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b903b4d498ba
 
 #### 《戒指里的老爷爷（Elder Ring）》v0.1.8 中文版
 
