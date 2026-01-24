@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《超能副作用（S.E.M.I. – Side Effects May Include）》v1.0.e 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fc95fa8c5013
+
 #### 《奇怪的RPG 2（Wired RPG 2）》v2026.1.24 中文版
 
 夸克：https://pan.quark.cn/s/45e2f53794aa
