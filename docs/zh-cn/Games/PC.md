@@ -132,6 +132,10 @@
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
 
+#### 《苏丹的游戏（Sultans Game）》v1.0.17991 中文版
+
+夸克：https://pan.quark.cn/s/41c184b7bd72
+
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.5.247 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/4912658febe6
@@ -1161,10 +1165,6 @@
 #### 《浣币模拟器（Cash Cleaner Simulator）》v1.3.1.643 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7f01eae4ce9f
-
-#### 《苏丹的游戏（Sultans Game）》v1.0.17115 中文版
-
-夸克：https://pan.quark.cn/s/41c184b7bd72
 
 #### 《太空引擎 SpaceEngine Pro》v0.991 全DLC 中文版
 
