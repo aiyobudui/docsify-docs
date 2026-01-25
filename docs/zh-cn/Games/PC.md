@@ -120,6 +120,12 @@
 
 ## 最近更新
 
+#### 《恶意不息（No Rest For The Wicked）》v26737 中文版
+
+夸克：https://pan.quark.cn/s/e3c16ceb73f7
+
+迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
+
 #### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.006 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/79878124f832
@@ -131,6 +137,10 @@
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
+
+#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/aa4673559fef
 
 #### 《苏丹的游戏（Sultans Game）》v1.0.17991 中文版
 
@@ -257,10 +267,6 @@
 夸克：https://pan.quark.cn/s/23c16824e3ac
 
 迅雷：https://pan.xunlei.com/s/VNqmp1LM5ed8XNX-HRSGTE3dA1?pwd=icd2#
-
-#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/aa4673559fef
 
 #### 《死亡岛2（Dead Island 2）黄金版》v7.0.0.1243375 全DLC 联机版
 
@@ -1511,12 +1517,6 @@
 #### 《最远的边陲（Farthest Frontier）》v1.0.4 中文版
 
 夸克：https://pan.quark.cn/s/e580cf5915b4
-
-#### 《恶意不息（No Rest For The Wicked）》v24313 中文版
-
-夸克：https://pan.quark.cn/s/e3c16ceb73f7
-
-迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
 
 #### 《遗产（The Legacy）》v0.5185 中文 联机版（合作生存恐怖）
 
