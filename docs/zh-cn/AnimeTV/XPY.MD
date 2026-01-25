@@ -86,11 +86,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNyKfvYW5Nd1VtpsNq0_Z-03A1?pwd=yjsp#
 
-#### 汪汪队立大功 1-9季+特别篇+大电影 国语+英文双版本（小朋友看片推荐）
+#### 《汪汪队立大功》1-9季+特别篇+大电影 国语+英文双版本（小朋友看片推荐）
 
-夸克：https://pan.quark.cn/s/cf749d2bce8f
-
-阿里：<https://www.alipan.com/s/16wX642Ufh1>
+夸克：https://pan.quark.cn/s/3b9ca936bd98
 
 #### 小猪佩奇 4K 1-9季 + 英语课堂 中英双配音 中字
 

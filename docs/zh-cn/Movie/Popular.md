@@ -1068,18 +1068,15 @@
 
 #### 《汪汪队立大功大电影2:超能大冒险》（2023）国语中字（附第一部）
 
-夸克：https://pan.quark.cn/s/c61441c5bcdc
+夸克：https://pan.quark.cn/s/3b9ca936bd98
 
 迅雷：https://pan.xunlei.com/s/VNuKNX1XTa3V8neKa0a42LleA1?pwd=p834#
-
-阿里：<https://www.alipan.com/s/16wX642Ufh1>
 
 #### 《威尼斯惊魂夜》（2023）4K HDR 中字
 
 夸克：https://pan.quark.cn/s/69fe93403f3f
 
 迅雷：https://pan.xunlei.com/s/VNlBbFWcn9lAfITzgayUgjSyA1?pwd=dnf2#
-
 
 #### 《铃芽之旅》（2023）4K REMUX 内封简日特效字幕+国语日本双版本
 
