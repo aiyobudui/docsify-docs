@@ -100,6 +100,10 @@
 
 ## 最近更新
 
+#### 《华夏山河（Chinese Frontiers）》v2.1.1401 中文版
+
+夸克：https://pan.quark.cn/s/83372995e6f7
+
 #### 《Hytale》v2026.1.24 汉化 联机版
 
 夸克：https://pan.quark.cn/s/b686c14b7c03
@@ -4237,10 +4241,6 @@
 #### 《未来城市沙盒（Dystopika）》v1.5.5+52 中文版
 
 夸克：https://pan.quark.cn/s/dd0498e3e31c
-
-#### 《华夏山河（Chinese Frontiers）》v1.021 中文版
-
-夸克：https://pan.quark.cn/s/83372995e6f7
 
 #### 《房产达人2（House Flipper 2）》v1.9.2.0 全DLC 中文版
 
