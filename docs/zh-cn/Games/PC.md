@@ -48,6 +48,22 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《黑客中心：终极黑客模拟器（HackHub）》v2026.1.26 中文版
+
+夸克：https://pan.quark.cn/s/ee134b72fa87
+
+#### 《埃伦加德 升天（Elengard Ascension）》v1.17.7 中文版
+
+夸克：https://pan.quark.cn/s/625470449700
+
+#### 《小小的岛（Tiny Isle）》v2026.1.23 中文版
+
+夸克：https://pan.quark.cn/s/2b4c026035f1
+
+#### 《东京股神（STONKS-9800）》Build 21610374 中文版
+
+夸克：https://pan.quark.cn/s/fe3648e012c0
+
 #### 《超能副作用（S.E.M.I. – Side Effects May Include）》v1.0.e 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fc95fa8c5013
@@ -80,51 +96,27 @@
 
 夸克：https://pan.quark.cn/s/12fd42f72383
 
-#### 《月华辉映之刻》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/b7129e40f934
-
-#### 《机密谋杀案中案（Confidential Killings）》Build.1.01 中文版（硬核本格推理侦探游戏）
-
-夸克：https://pan.quark.cn/s/2159d0db1f39
-
-#### 《荒野大农夫（Cattle Country）》Build.20884177 中文版
-
-夸克：https://pan.quark.cn/s/0a6172955fa2
-
-#### 《一次性交易大师（Yarimono）》v3.08 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ddf6f09e45fe
-
-#### 《惊魂（Psycho）》v2026.1.18 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/aee12f94183d
-
-#### 《银河尽头的餐馆（The Diner at the End of the Galaxy）》v2026.1.18 中文版
-
-夸克：https://pan.quark.cn/s/38441e91f1f3
-
-#### 《魔女妙妙屋（Witch Play House）》v2026.1.17 中文版（魔幻收集冒险）
-
-夸克：https://pan.quark.cn/s/395dc6349e50
-
-#### 《8号站台（Platform 8）》v1.1.1 英文版（八号站台）
-
-夸克：https://pan.quark.cn/s/a85740761418
-
-#### 《息风谷战略（WindStop Strategy）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/9b0983d838ff
-
 ---
 
 ## 最近更新
+
+#### 《Hytale》v2026.1.24 汉化 联机版
+
+夸克：https://pan.quark.cn/s/b686c14b7c03
 
 #### 《恶意不息（No Rest For The Wicked）》v26737 中文版
 
 夸克：https://pan.quark.cn/s/e3c16ceb73f7
 
 迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
+
+#### 《人中之龙 极1（Yakuza Kiwami）终结版》v1.13 中文版（如龙极）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
+#### 《人中之龙 极2（Yakuza Kiwami 2）终结版》v1.13 中文版（如龙极2）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
 
 #### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.006 全DLC 中文版
 
@@ -142,6 +134,10 @@
 
 夸克：https://pan.quark.cn/s/aa4673559fef
 
+#### 《三国志汉末霸业（Three Kingdoms The Last Warlord）豪华版》v1.1.8.4060 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/895d2c32f89f
+
 #### 《苏丹的游戏（Sultans Game）》v1.0.17991 中文版
 
 夸克：https://pan.quark.cn/s/41c184b7bd72
@@ -150,35 +146,19 @@
 
 夸克：https://pan.quark.cn/s/4912658febe6
 
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.11 全DLC 中文 联机版
+---
 
-夸克：https://pan.quark.cn/s/4cb951396b5f
+## 顶置游戏
 
-#### 《黄金像凶杀案再起（The Rise of the Golden Idol）》v1.0.2 全DLC 中文版
+#### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
 
-夸克：https://pan.quark.cn/s/b903b4d498ba
+夸克：https://pan.quark.cn/s/550ed16aa7c9
 
-#### 《月光石岛（Moonstone Island）》v1.7.2365 全DLC 中文版
+#### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
 
-夸克：https://pan.quark.cn/s/cee0a46d1f94
+夸克：https://pan.quark.cn/s/51d73c209195
 
-#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.2.7445.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6aefdf352960
-
-迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
-
-#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
-
-夸克：https://pan.quark.cn/s/15e312a44808
-
-#### 《非生物因素（Abiotic Factor）支持者版》v1.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/d7b93db8b076
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.2 全DLC 中文 联机版
 
@@ -199,20 +179,6 @@
 #### 《神话时代：重述版（Age of Mythology Retold）高级版》v100.18.56738.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/51201cccd0db
-
----
-
-## 顶置游戏
-
-#### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
-
-夸克：https://pan.quark.cn/s/550ed16aa7c9
-
-#### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《死亡空间 重制版（Dead Space Remake）豪华版》v2025.12.31 中文版（有中文配音）
 
@@ -412,9 +378,71 @@
 
 ## 已有游戏
 
-#### 《Hytale》v2026.1.16 汉化 联机版
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.0.11 全DLC 中文 联机版
 
-夸克：https://pan.quark.cn/s/b686c14b7c03
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《黄金像凶杀案再起（The Rise of the Golden Idol）》v1.0.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b903b4d498ba
+
+#### 《月光石岛（Moonstone Island）》v1.7.2365 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cee0a46d1f94
+
+#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.2.7445.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/6aefdf352960
+
+迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
+
+#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
+
+夸克：https://pan.quark.cn/s/e64a1d3125be
+
+#### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
+
+夸克：https://pan.quark.cn/s/15e312a44808
+
+#### 《非生物因素（Abiotic Factor）支持者版》v1.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/d7b93db8b076
+
+#### 《月华辉映之刻》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/b7129e40f934
+
+#### 《机密谋杀案中案（Confidential Killings）》Build.1.01 中文版（硬核本格推理侦探游戏）
+
+夸克：https://pan.quark.cn/s/2159d0db1f39
+
+#### 《荒野大农夫（Cattle Country）》Build.20884177 中文版
+
+夸克：https://pan.quark.cn/s/0a6172955fa2
+
+#### 《一次性交易大师（Yarimono）》v3.08 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ddf6f09e45fe
+
+#### 《惊魂（Psycho）》v2026.1.18 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/aee12f94183d
+
+#### 《银河尽头的餐馆（The Diner at the End of the Galaxy）》v2026.1.18 中文版
+
+夸克：https://pan.quark.cn/s/38441e91f1f3
+
+#### 《魔女妙妙屋（Witch Play House）》v2026.1.17 中文版（魔幻收集冒险）
+
+夸克：https://pan.quark.cn/s/395dc6349e50
+
+#### 《8号站台（Platform 8）》v1.1.1 英文版（八号站台）
+
+夸克：https://pan.quark.cn/s/a85740761418
+
+#### 《息风谷战略（WindStop Strategy）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/9b0983d838ff
 
 #### 《赌徒之桌（Gamblers Table）》Build.21470204 中文版（很上头的放置型休闲游戏）
 
@@ -695,14 +723,6 @@
 #### 《Worldwide Rush》v1.2.1 中文版（交通运输模拟游戏）
 
 夸克：https://pan.quark.cn/s/2b1b93d16875
-
-#### 《人中之龙2 极2（Yakuza Kiwami 2）终结版》v1.11 中文版（如龙极2）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《人中之龙 极1（Yakuza Kiwami R）终结版》v1.12 中文版（如龙极2）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
 
 #### 《死亡回归（Returnal）》v1.0-Build.11083317 中文版
 
@@ -3933,10 +3953,6 @@
 #### 《传说酒馆（Ale&Tale Tavern）》v1.5.10 中文 联机版
 
 夸克：https://pan.quark.cn/s/4959a53d6393
-
-#### 《三国志汉末霸业（Three Kingdoms The Last Warlord）》v1.0.6.4050 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/895d2c32f89f
 
 #### 《无限机兵（AI Limit）》v1.1.001 全DLC 中文配音 豪华版
 

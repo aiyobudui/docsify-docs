@@ -135,7 +135,7 @@
 
 夸克：https://pan.quark.cn/s/587ba6452488
 
-#### 《神墓》（2025）4k 周五 更新中..
+#### 《神墓》（2025）4K 周五 更新中..
 
 夸克：https://pan.quark.cn/s/0cd7fd798afc
 
