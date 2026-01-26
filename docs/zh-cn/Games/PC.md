@@ -594,7 +594,7 @@
 
 夸克：https://pan.quark.cn/s/9db03069901b
 
-#### 《蜉蝣世界（Flotsam）》v1.0.0f12 中文版
+#### 《Flotsam》v1.0.0f12 中文版（蜉蝣世界、漂流品）
 
 夸克：https://pan.quark.cn/s/9b208670cc90
 
