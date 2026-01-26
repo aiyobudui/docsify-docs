@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《轮回保险公司（RIP Reincarnation Insurance Program）》v0.8.1.6 中文版
+
+夸克：https://pan.quark.cn/s/2df93c0d3df0
+
 #### 《黑客中心：终极黑客模拟器（HackHub）》v2026.1.26 中文版
 
 夸克：https://pan.quark.cn/s/ee134b72fa87
