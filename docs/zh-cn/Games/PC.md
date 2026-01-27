@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《前往中世纪（Going Medieval）》v0.27.22 中文版
+
+夸克：https://pan.quark.cn/s/edc955c692df
+
 #### 《轮回保险公司（RIP Reincarnation Insurance Program）》v0.8.1.6 中文版
 
 夸克：https://pan.quark.cn/s/2df93c0d3df0
@@ -55,6 +59,14 @@
 #### 《黑客中心：终极黑客模拟器（HackHub）》v2026.1.26 中文版
 
 夸克：https://pan.quark.cn/s/ee134b72fa87
+
+#### 《镜之边缘 Catalyst（Mirrors Edge Catalyst）》v1.0.3.47248 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/85b8b17b48a3
+
+#### 《镜之边缘（Mirrors Edge）》v1.0.1.0 中文版
+
+夸克：https://pan.quark.cn/s/de53cf630c37
 
 #### 《埃伦加德 升天（Elengard Ascension）》v1.17.7 中文版
 
@@ -99,6 +111,10 @@
 #### 《叛乱 沙漠风暴（Insurgency Sandstorm）》v1.18.0.349922 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/12fd42f72383
+
+#### 《像素足球杯终极版（Pixel Cup Soccer）终结版》v14511622 中文版
+
+夸克：https://pan.quark.cn/s/d6526d256c0f
 
 ---
 
