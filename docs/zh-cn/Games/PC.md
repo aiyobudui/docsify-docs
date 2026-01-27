@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《DRUDGE》v0.4.1 中文版（射击恐怖）
+
+夸克：https://pan.quark.cn/s/dcecdb5f7501
+
 #### 《前往中世纪（Going Medieval）》v0.27.22 中文版
 
 夸克：https://pan.quark.cn/s/edc955c692df
