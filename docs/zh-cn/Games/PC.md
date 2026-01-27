@@ -120,6 +120,10 @@
 
 ## 最近更新
 
+#### 《雾锁王国（Enshrouded）》v893400 中文 联机版
+
+夸克：https://pan.quark.cn/s/cb96556f07cd
+
 #### 《华夏山河（Chinese Frontiers）》v2.1.1401 中文版
 
 夸克：https://pan.quark.cn/s/83372995e6f7
@@ -128,7 +132,7 @@
 
 夸克：https://pan.quark.cn/s/b686c14b7c03
 
-#### 《恶意不息（No Rest For The Wicked）》v26737 中文版
+#### 《恶意不息（No Rest For The Wicked）》v26807 中文版
 
 夸克：https://pan.quark.cn/s/e3c16ceb73f7
 
@@ -153,22 +157,6 @@
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
-
-#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06.2 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/aa4673559fef
-
-#### 《三国志汉末霸业（Three Kingdoms The Last Warlord）豪华版》v1.1.8.4060 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/895d2c32f89f
-
-#### 《苏丹的游戏（Sultans Game）》v1.0.17991 中文版
-
-夸克：https://pan.quark.cn/s/41c184b7bd72
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.247 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
 
 ---
 
@@ -401,6 +389,22 @@
 ---
 
 ## 已有游戏
+
+#### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06.2 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/aa4673559fef
+
+#### 《三国志汉末霸业（Three Kingdoms The Last Warlord）豪华版》v1.1.8.4060 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/895d2c32f89f
+
+#### 《苏丹的游戏（Sultans Game）》v1.0.17991 中文版
+
+夸克：https://pan.quark.cn/s/41c184b7bd72
+
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.247 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
 
 #### 《欧陆风云5（Europa Universalis V）高级版》v1.0.11 全DLC 中文 联机版
 
@@ -1419,10 +1423,6 @@
 #### 《深渊之潮（Abyssus）》v1.1.53392 中文 联机版
 
 夸克：https://pan.quark.cn/s/d9e794c1e06e
-
-#### 《雾锁王国（Enshrouded）》v845905 中文 联机版
-
-夸克：https://pan.quark.cn/s/cb96556f07cd
 
 #### 《哈迪斯2（Hades II）》v1.133066 中文版（附第一部）
 
