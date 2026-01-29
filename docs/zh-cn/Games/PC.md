@@ -48,6 +48,14 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《索尼克 未知边境（Sonic Frontiers）豪华版》v1.42 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ebd5f1fb64b1
+
+#### 《丹墨三国 弈（Danmo Three Kingdoms Battle of Wits）》v2026.1.29 中文版
+
+夸克：https://pan.quark.cn/s/f21f98d61049
+
 #### 《DRUDGE》v0.4.1 中文版（射击恐怖）
 
 夸克：https://pan.quark.cn/s/dcecdb5f7501
@@ -124,9 +132,19 @@
 
 ## 最近更新
 
+#### 《三国志8 重制版 威力加强版（RTK8R Power Up Kit）豪华版》v1.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8e85211fbc49
+
 #### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.2.4 全DLC 中文版（合金装备食蛇者）
 
 夸克：https://pan.quark.cn/s/b47797155789
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.51(91) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.16.1000 全DLC 豪华中文 联机版
 
@@ -1051,12 +1069,6 @@
 #### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.60.04 中文版
 
 夸克：https://pan.quark.cn/s/4d0702c9d08c
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(89) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《维多利亚3（Victoria 3）豪华版》v1.12.0 全DLC 中文 联机版
 
@@ -6562,10 +6574,6 @@
 #### 《微观文明（Microcivilization）》v0.10.12.40480 英文版
 
 夸克：https://pan.quark.cn/s/e9c304dbd492
-
-#### 《三国志8：重制版（ROTTK8 REMAKE）》v1.0.7 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/8e85211fbc49
 
 #### 《盗贼之海（Sea Of Thieves）》v2.137.949.0 豪华中文 联机版 附升级补丁
 

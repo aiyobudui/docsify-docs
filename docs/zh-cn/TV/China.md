@@ -27,6 +27,12 @@
 
 迅雷：https://pan.xunlei.com/s/VOjLZRBOdjW60hkT_zkBbuAbA1?pwd=a3nq#
 
+#### 《反人类暴行》（2025）4K 60帧 20集全
+
+夸克：https://pan.quark.cn/s/022c8a20dd56
+
+迅雷：https://pan.xunlei.com/s/VOk8g424oXN8eO9WrcV_e0r8A1?pwd=4c2e#
+
 #### 《逍遥》（2025）4K 40集全
 
 夸克：https://pan.quark.cn/s/3383c5958f93
