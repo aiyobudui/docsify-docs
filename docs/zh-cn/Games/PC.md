@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/ebd5f1fb64b1
 
+#### 《怪奇镇生存指南（I Hate This Place）》v1.0.13_15856 中文版
+
+夸克：https://pan.quark.cn/s/988dfd5542eb
+
 #### 《回音 飞艇传说（Echoes of Elysium）》v0.16.8 中文版
 
 夸克：https://pan.quark.cn/s/00c27f17df2b
@@ -144,15 +148,15 @@
 
 夸克：https://pan.quark.cn/s/b47797155789
 
+#### 《咩咩启示录（Cult of the Lamb）》v1.5.17.1025 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/da687434881d
+
 #### 《下一站江湖2（Next Jianghu II）》v1.1.51(91) 全DLC 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/c42507f81cff
 
 迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
-
-#### 《咩咩启示录（Cult of the Lamb）》v1.5.16.1000 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/da687434881d
 
 #### 《风暴崛起（Tempest Rising）》v1.6.0.53840 全DLC 中文 联机版
 
