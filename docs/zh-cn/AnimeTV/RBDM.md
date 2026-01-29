@@ -643,10 +643,6 @@
 
 夸克：https://pan.quark.cn/s/ae0416f21a6b
 
-#### 《86 -不存在的战区-》1-2季全 1080P 中字
-
-夸克：https://pan.quark.cn/s/433b3bc41ce9
-
 #### 《哆啦A梦》系列合集 TV版+剧场版+漫画
 
 夸克：https://pan.quark.cn/s/16c502919140
