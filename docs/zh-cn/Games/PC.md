@@ -52,6 +52,10 @@
 
 夸克：https://pan.quark.cn/s/ebd5f1fb64b1
 
+#### 《回音 飞艇传说（Echoes of Elysium）》v0.16.8 中文版
+
+夸克：https://pan.quark.cn/s/00c27f17df2b
+
 #### 《丹墨三国 弈（Danmo Three Kingdoms Battle of Wits）》v2026.1.29 中文版
 
 夸克：https://pan.quark.cn/s/f21f98d61049
