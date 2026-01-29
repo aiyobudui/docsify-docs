@@ -124,6 +124,18 @@
 
 ## 最近更新
 
+#### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.2.4 全DLC 中文版（合金装备食蛇者）
+
+夸克：https://pan.quark.cn/s/b47797155789
+
+#### 《咩咩启示录（Cult of the Lamb）》v1.5.16.1000 全DLC 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/da687434881d
+
+#### 《风暴崛起（Tempest Rising）》v1.6.0.53840 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/c164538c9a59
+
 #### 《雾锁王国（Enshrouded）》v893400 中文 联机版
 
 夸克：https://pan.quark.cn/s/cb96556f07cd
@@ -275,10 +287,6 @@
 #### 《夺宝奇兵：古老之圈（Indiana Jones and the Great Circle）高级版》v1.0.9.0 全DLC 中文版（显卡需支持光追）
 
 夸克：https://pan.quark.cn/s/e037632f1250
-
-#### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.1.2 全DLC 中文版（合金装备食蛇者）
-
-夸克：https://pan.quark.cn/s/b47797155789
 
 #### 《战神5：诸神黄昏（God of War Ragnarök）豪华版》v1.0.668.5700 全DLC 中文版
 
@@ -2136,7 +2144,7 @@
 
 夸克：https://pan.quark.cn/s/0c572c4d12c1
 
-#### 《饥荒（Dont Starve Together）》v692916 全DLC 中文 LAN联机版
+#### 《饥荒（Dont Starve Together）》v696980 全DLC 中文 LAN联机版
 
 夸克：https://pan.quark.cn/s/cbadff66e8dc
 
@@ -4658,10 +4666,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNxDaTmHOGWX8jNHpeW-djk8A1?pwd=qcqy#
 
-#### 《咩咩启示录（Cult of the Lamb）》v1.4.6 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/da687434881d
-
 #### 《绿色地狱（Green Hell）》v2.9.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/2221de711731
@@ -4963,10 +4967,6 @@
 #### 《龙山英雄（Heroes Mount Dragon）》v2025.6.27 中文版
 
 夸克：https://pan.quark.cn/s/db98d984c910
-
-#### 《风暴崛起（Tempest Rising）》v1.2.0.46253 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/c164538c9a59
 
 #### 《北欧之烬：诸神黄昏幸存者（Nordic Ashes Survivors of Ragnarok）》v2.0.4 全DLC 中文版
 
