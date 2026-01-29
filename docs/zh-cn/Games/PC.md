@@ -152,6 +152,12 @@
 
 夸克：https://pan.quark.cn/s/da687434881d
 
+#### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v1013.29 中文版（GTA5增强版+纯净版+MOD版）
+
+夸克：https://pan.quark.cn/s/f27bd77aa030
+
+迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
+
 #### 《下一站江湖2（Next Jianghu II）》v1.1.51(91) 全DLC 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/c42507f81cff
@@ -241,12 +247,6 @@
 #### 《光与影：33号远征队（Clair Obscur Expedition 33）豪华版》v61711 中文版
 
 夸克：https://pan.quark.cn/s/32c452be1479
-
-#### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v1013.20 中文版（GTA5增强版+纯净版+MOD整合版）
-
-夸克：https://pan.quark.cn/s/f27bd77aa030
-
-迅雷：https://pan.xunlei.com/s/VNvhlO0bmX6RXN9eke0P_M-lA1?pwd=7avu#
 
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
