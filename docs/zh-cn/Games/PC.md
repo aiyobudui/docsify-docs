@@ -76,6 +76,12 @@
 
 ## 最近更新
 
+#### 《极限竞速 地平线5（Forza Horizon 5）顶级版》v1.688.044 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7c5fdf0323c4
+
+迅雷：https://pan.xunlei.com/s/VNy6DMCGLQnrFS8e9c2zVJFsA1?pwd=ejxs#
+
 #### 《英雄连3（Company of Heroes 3）》v2.2.5.42217 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8d7b365bee6d
@@ -91,6 +97,16 @@
 #### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.2.4 全DLC 中文版（合金装备食蛇者）
 
 夸克：https://pan.quark.cn/s/b47797155789
+
+#### 《学生时代（Student Age）》v1.78 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3ccbc2b11c68
+
+#### 《泰拉瑞亚（Terraria）》v1.4.5.3 中文 联机版 + ModLoader模组版（附安卓）
+
+夸克：https://pan.quark.cn/s/cf680d575749
+
+迅雷：https://pan.xunlei.com/s/VNtKlm0t9Cfpnuk-BzvaR45OA1?pwd=g3qz#
 
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.17.1025 全DLC 中文 联机版
 
@@ -3552,10 +3568,6 @@
 
 夸克：https://pan.quark.cn/s/e6e55d10802e
 
-#### 《学生时代（Student Age）》v1.47 中文版
-
-夸克：https://pan.quark.cn/s/3ccbc2b11c68
-
 #### 《人格解体（Depersonalization）》v2.1.12 中文版
 
 夸克：https://pan.quark.cn/s/dbc9f55f6603
@@ -5282,12 +5294,6 @@
 #### 《恐龙世界（Dinosaur World）》v2025.6.9 中文 联机版
 
 夸克：https://pan.quark.cn/s/39232b187481
-
-#### 《极限竞速：地平线5（Forza Horizon 5）高级版》v685.421 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/7c5fdf0323c4
-
-迅雷：https://pan.xunlei.com/s/VNy6DMCGLQnrFS8e9c2zVJFsA1?pwd=ejxs#
 
 #### 《我是小鱼儿（I am fish）》v1.1.13 中文版
 
@@ -7138,12 +7144,6 @@
 #### 《地下城骑士团（FINAL KNIGHT）》v2025.2.16 中文版
 
 夸克：https://pan.quark.cn/s/1b1742903569
-
-#### 《泰拉瑞亚（Terraria）》v1.4.4.9-v4 中文 联机版 + ModLoader模组版（附安卓）
-
-夸克：https://pan.quark.cn/s/cf680d575749
-
-迅雷：https://pan.xunlei.com/s/VNtKlm0t9Cfpnuk-BzvaR45OA1?pwd=g3qz#
 
 #### 《星露谷物语（Stardew Valley）》v1.6.15 中文 联机+单机版
 
