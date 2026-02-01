@@ -48,13 +48,25 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《千禧年（Millennium Dream）》v1.0.3 中文版
+#### 《千禧梦（Millennium Dream）》v1.0.3 中文版
 
 夸克：https://pan.quark.cn/s/05a098fd515c
 
 #### 《索尼克 未知边境（Sonic Frontiers）豪华版》v1.42 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ebd5f1fb64b1
+
+#### 《猎鱼达人（Fish Hunters）》v2026.2.1 中文版
+
+夸克：https://pan.quark.cn/s/a5931db1eddb
+
+#### 《灰烬圣预（Prophecy of Ashen）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/7f6416c36c03
+
+#### 《波利塔防（Poly TD）》v1.0.1.41 中文版（肉鸽塔防）
+
+夸克：https://pan.quark.cn/s/74fb6e126eb4
 
 #### 《孤山独影（cairn）》v1.0.303s 全DLC 中文版（生存攀岩游戏）
 
@@ -95,6 +107,10 @@
 #### 《蝙蝠侠 阿卡姆之城（Batman Arkham City GOTY）年度版》v1.1 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/484816a4509c
+
+#### 《三国志汉末霸业（Three Kingdoms The Last Warlord）》v1.1.10.4065 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/895d2c32f89f
 
 #### 《英雄连3（Company of Heroes 3）》v2.2.5.42217 全DLC 中文版
 
@@ -479,10 +495,6 @@
 #### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/aa4673559fef
-
-#### 《三国志汉末霸业（Three Kingdoms The Last Warlord）豪华版》v1.1.8.4060 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/895d2c32f89f
 
 #### 《苏丹的游戏（Sultans Game）》v1.0.17991 中文版
 
