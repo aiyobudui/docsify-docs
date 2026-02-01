@@ -179,13 +179,19 @@
 
 夸克：https://pan.quark.cn/s/817fe07b45ff
 
-#### 《凸变英雄X》（2025）4K 周日更新中..
+#### 《仙王的日常生活》（2020-2025）4K 第五季更新中..（附1-4季）
 
-夸克：https://pan.quark.cn/s/93e9180748d6
+夸克：https://pan.quark.cn/s/2c0d0f31a1a3
+
+迅雷：<https://pan.xunlei.com/s/VNlqUdpI7vRpuPY2FKkeEsYvA1>
 
 ----
 
 ## 暂时完结
+
+#### 《凸变英雄X》（2025）4K 24集全
+
+夸克：https://pan.quark.cn/s/93e9180748d6
 
 #### 《武动乾坤》（2019-2025）4K 1-6季全
 
@@ -476,12 +482,6 @@
 夸克：https://pan.quark.cn/s/6ba7ebe9e50d
 
 迅雷：https://pan.xunlei.com/s/VNmo3p2kWBdJ1xlvGfYykSdEA1?pwd=prpx#
-
-#### 《仙王的日常生活》 附1-4季全
-
-夸克：https://pan.quark.cn/s/2c0d0f31a1a3
-
-迅雷：<https://pan.xunlei.com/s/VNlqUdpI7vRpuPY2FKkeEsYvA1>
 
 #### 《逆天邪神》（2023）4K 30集全（附小说）
 

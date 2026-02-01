@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《千禧年（Millennium Dream）》v1.0.3 中文版
+
+夸克：https://pan.quark.cn/s/05a098fd515c
+
 #### 《索尼克 未知边境（Sonic Frontiers）豪华版》v1.42 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ebd5f1fb64b1
@@ -82,6 +86,16 @@
 
 迅雷：https://pan.xunlei.com/s/VNy6DMCGLQnrFS8e9c2zVJFsA1?pwd=ejxs#
 
+#### 《云之国（Cloudheim）》v94092 中文 联机版
+
+夸克：https://pan.quark.cn/s/c6afb4342e8a
+
+#### 《蝙蝠侠 阿卡姆骑士（Batman Arkham Knight）年度版》v1.999 全DLC 汉化版
+#### 《蝙蝠侠：阿卡姆疯人院（Batman Arkham Asylum）年度版》v1.1 全DLC 汉化版
+#### 《蝙蝠侠 阿卡姆之城（Batman Arkham City GOTY）年度版》v1.1 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/484816a4509c
+
 #### 《英雄连3（Company of Heroes 3）》v2.2.5.42217 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8d7b365bee6d
@@ -89,6 +103,12 @@
 #### 《三国志8 重制版 威力加强版（RTK8R Power Up Kit）豪华版》v1.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8e85211fbc49
+
+#### 《戴森球计划（Dyson Sphere Program）》v0.10.34.28326 中文 联机版
+
+夸克：https://pan.quark.cn/s/695816605aeb
+
+迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
 
 #### 《僵尸世界大战 劫后余生（World War Z）豪华版》v2.44 全DLC 中文版
 
@@ -327,10 +347,6 @@
 #### 《天外世界2（The Outer Worlds 2）高级版》v1.0.6.0 中文版
 
 夸克：https://pan.quark.cn/s/9baad4a27102
-
-#### 《云之国（Cloudheim）》v88959 中文 联机版
-
-夸克：https://pan.quark.cn/s/c6afb4342e8a
 
 #### 《心之眼（MindsEye）豪华版》v6073305 全DLC 中文版
 
@@ -2571,12 +2587,6 @@
 #### 《部落与弯刀（Sands of Salzaar）》v1.1.19 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f9839a89272a
-
-#### 《戴森球计划（Dyson Sphere Program）》v0.10.33.26934a 中文 联机版
-
-夸克：https://pan.quark.cn/s/695816605aeb
-
-迅雷：https://pan.xunlei.com/s/VNvhUWt3uQ49eqJ15ZAmFKWFA1?pwd=hsqk#
 
 #### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
 
@@ -9522,10 +9532,6 @@
 #### 《东方王朝：丝路保卫战》v2.6.0 中文版（酷似王国保卫战）
 
 迅雷：https://pan.xunlei.com/s/VO2s9PYrfWXOxAzBo2FT7H8KA1?pwd=xfq8#
-
-#### 《蝙蝠侠：阿卡姆骑士 年度版》v1.999 全DLC 汉化中文版 附全收集存档+修改器
-
-夸克：https://pan.quark.cn/s/484816a4509c
 
 #### 《边境猎人：艾尔莎的命运之轮(Frontier Hunter Erzas Wheel of Fortune)》v1.0.014 全DLC 中文版
 
