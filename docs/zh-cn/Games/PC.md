@@ -108,6 +108,10 @@
 
 夸克：https://pan.quark.cn/s/484816a4509c
 
+#### 《猛将三国（Three Kingdoms Mushouden）豪华版》v2.4.8 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c41c5c5e9818
+
 #### 《三国志汉末霸业（Three Kingdoms The Last Warlord）》v1.1.10.4065 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/895d2c32f89f
@@ -5154,10 +5158,6 @@
 #### 《盛世繁荣：皇冠之重（Thrive Heavy Lies The Crown）》v1.0.0203 中文 联机版
 
 夸克：https://pan.quark.cn/s/c0f47565540a
-
-#### 《猛将三国（Three Kingdoms Mushouden）》v1.2.0 中文版
-
-夸克：https://pan.quark.cn/s/c41c5c5e9818
 
 #### 《失落王国（Stolen Realm）》v1.2.7 全DLC 中文 联机版
 

@@ -1889,6 +1889,10 @@
 
 夸克：https://pan.quark.cn/s/e8154d11f2ae
 
+### 《特战荣耀》（2022）4K 45集全（杨洋）
+
+夸克：https://pan.quark.cn/s/132630138439
+
 #### 《红楼梦》(1987）4K 修复版 36集全 精校中字
 
 夸克：https://pan.quark.cn/s/4db360254d9a
