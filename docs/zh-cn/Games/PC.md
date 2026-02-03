@@ -48,6 +48,22 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《暗黑拍卖（Dark Auction）豪华版》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/25d8cdae0c50
+
+#### 《失乡骑士（Banished Knight）》v1.6.9 中文版
+
+夸克：https://pan.quark.cn/s/b7038b41d30a
+
+#### 《劫后公司（After Inc REVIVAL）》v2026.2.3 中文版（末日生存策略游戏）
+
+夸克：https://pan.quark.cn/s/9fd45fb8e46c
+
+#### 《恐惧轮回（Fear The Timeloop）》v1.0.4 中文版（循环死境 恐怖游戏）
+
+夸克：https://pan.quark.cn/s/8a2b8fae94c3
+
 #### 《千禧梦（Millennium Dream）》v1.0.3 中文版
 
 夸克：https://pan.quark.cn/s/05a098fd515c
@@ -91,6 +107,34 @@
 ---
 
 ## 最近更新
+
+#### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/da687434881d
+
+#### 《东方异域见闻（Touhou Dystopian）》v1.1.2d 中文版（动作肉鸽）
+
+夸克：https://pan.quark.cn/s/c2566c36ca07
+
+#### 《呓语小镇（Whisper of the House）》v1.1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/024586c305b7
+
+#### 《Worldwide Rush》v1.2.8 中文版（全球范围的客运和管理模拟游戏）
+
+夸克：https://pan.quark.cn/s/2b1b93d16875
+
+#### 《一起玩农场2（Farm Together 2）》v270 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/2f8ffe329c9b
+
+#### 《英灵神殿（Valheim）》v0.221.10  中文 联机版
+
+夸克：https://pan.quark.cn/s/7f11084ef53b
+
+#### 《怪物火车2（Monster Train 2）》v16171 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/638c33888d8a
 
 #### 《极限竞速 地平线5（Forza Horizon 5）顶级版》v1.688.044 全DLC 中文 联机版
 
@@ -147,10 +191,6 @@
 夸克：https://pan.quark.cn/s/cf680d575749
 
 迅雷：https://pan.xunlei.com/s/VNtKlm0t9Cfpnuk-BzvaR45OA1?pwd=g3qz#
-
-#### 《咩咩启示录（Cult of the Lamb）》v1.5.17.1025 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/da687434881d
 
 #### 《侠盗猎车手5增强版（Grand Theft Auto V Enhanced》》v1013.29 中文版（GTA5增强版+纯净版+MOD版）
 
@@ -849,10 +889,6 @@
 #### 《汽车工厂帝国（Car Factory Empire）》v0.7.67 中文版
 
 夸克：https://pan.quark.cn/s/4861ae955070
-
-#### 《Worldwide Rush》v1.2.1 中文版（交通运输模拟游戏）
-
-夸克：https://pan.quark.cn/s/2b1b93d16875
 
 #### 《死亡回归（Returnal）》v1.0-Build.11083317 中文版
 
@@ -1674,10 +1710,6 @@
 
 夸克：https://pan.quark.cn/s/2fa399824b3b
 
-#### 《怪物火车2（Monster Train 2）》v1.2.3 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/638c33888d8a
-
 #### 《肯特开拓史（Kentum）》v1.0.b114 中文版
 
 夸克：https://pan.quark.cn/s/2b9e2184ef18
@@ -2152,10 +2184,6 @@
 
 夸克：https://pan.quark.cn/s/5eedb3be2fd5
 
-#### 《东方异域见闻 （Touhou Dystopian）》v1.0.0 中文版（动作肉鸽）
-
-夸克：https://pan.quark.cn/s/c2566c36ca07
-
 #### 《挖掘者：银河宝藏（Digger Galactic Treasures）》v1.10.2 中文版
 
 夸克：https://pan.quark.cn/s/459ef9047d4c
@@ -2301,10 +2329,6 @@
 #### 《铁道公司（Railroad Corporation）完全收藏版》v1.1.13425 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e7d14ce6636e
-
-#### 《一起玩农场2（Farm Together 2）》v2025.10.15 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/2f8ffe329c9b
 
 #### 《球比伦战记（BALL x PIT）》v2025.10.16 中文版
 
@@ -3452,10 +3476,6 @@
 
 夸克：https://pan.quark.cn/s/e74977c76a51
 
-#### 《英灵神殿（Valheim）》v0.221.4 中文 联机版
-
-夸克：https://pan.quark.cn/s/7f11084ef53b
-
 #### 《灾后修复师（RoadCraft）》v2025.5.20 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f974a596610e
@@ -3741,10 +3761,6 @@
 #### 《海天岛传说（Isles of Sea and Sky）》v2.3e 中文版（2D像素风）
 
 夸克：https://pan.quark.cn/s/cae2a9ba6758
-
-#### 《呓语小镇（Whisper of the House）》v1.0.0.2 中文版
-
-夸克：https://pan.quark.cn/s/024586c305b7
 
 #### 《炼金之道（Ways of Alchemy）》v1.0.1.2782025 中文版
 
