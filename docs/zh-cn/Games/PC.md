@@ -108,6 +108,14 @@
 
 ## 最近更新
 
+#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
+#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.21521672 全DLC 中文版（D加密已移除 全DLC）
+#### 《生化危机8村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
+
+夸克：https://pan.quark.cn/s/744a500cb67e
+
+迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/da687434881d
@@ -9169,22 +9177,6 @@
 
 夸克：https://pan.quark.cn/s/d72e8b75b022
 
-#### 《生化危机3 重制版（Resident Evil 3 Deluxe Edition）》v20230925 全DLC 中文版
-
-迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
-
-#### 《生化危机4 重制版（Resident Evil 4 Remake）》Build.11025382 +25DLC 安装版
-
-夸克：https://pan.quark.cn/s/6bc163f4c1f9
-
-迅雷：https://pan.xunlei.com/s/VNusAdzCHOsD0llrc70jkFbCA1?pwd=hkj3#（200个mod整合版+绅士mod）
-
-#### 《生化危机8村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
-
-夸克：https://pan.quark.cn/s/5760c7a92766
-
-迅雷：https://pan.xunlei.com/s/VNx3NVcyhRNwmF3UM72X8rn3A1?pwd=t8sq#
-
 #### 《大家一起骰子街（MACHIKORO With Everyone）》v1.0.1 中文版
 
 夸克：https://pan.quark.cn/s/428ded5aea48
@@ -11216,6 +11208,8 @@
 #### 《生化危机 系列合集（Resident）》10部 最新 黄金版 + 重制版 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/744a500cb67e
+
+迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
 #### 《最终幻想 系列合集（FINAL FANTASY）》最新 全DLC 豪华中文版
 
