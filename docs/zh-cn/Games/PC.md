@@ -109,7 +109,7 @@
 ## 最近更新
 
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
-#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.21521672 全DLC 中文版（D加密已移除 全DLC）
+#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.21521672 全DLC 中文版
 #### 《生化危机8村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
 
 夸克：https://pan.quark.cn/s/744a500cb67e
