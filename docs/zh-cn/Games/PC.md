@@ -120,11 +120,25 @@
 
 夸克：https://pan.quark.cn/s/c5741f45562c
 
+#### 《绿色地狱（Green Hell）》v2.9.5 中文 联机版
+
+夸克：https://pan.quark.cn/s/2221de711731
+
 #### 《孤岛危机1 重制版（Crysis Remastered）》v(rc2 82938) 中文版
 #### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
 #### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
 
 夸克：https://pan.quark.cn/s/2b6ecf65e866
+
+#### 《阿尼玛 回忆之门 1+2 重制版（Anima Gate of Memories I & II Remaster）》v2025.11.22 中文版
+
+夸克：https://pan.quark.cn/s/beb820c220a6
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.3.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
 
@@ -1062,12 +1076,6 @@
 
 夸克：https://pan.quark.cn/s/e1be35435129
 
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.2.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
-
 #### 《犯罪现场清洁工（Crime Scene Cleaner）》v3.0.3.3 中文版
 
 夸克：https://pan.quark.cn/s/54fab26752d3
@@ -1687,10 +1695,6 @@
 #### 《零号使者（Emissary Zero）》v2025.9.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/70d1d1e5c30d
-
-#### 《阿尼玛：回忆之门 1+2 重制版（Anima Beyond Fantasy）》v2025.11.9 中文版
-
-夸克：https://pan.quark.cn/s/beb820c220a6
 
 #### 《我的小柯基（My Little Puppy）》v1.0.2517 中文版（关于死亡来世的温情故事游戏）
 
@@ -4765,10 +4769,6 @@
 夸克：https://pan.quark.cn/s/d7566ce329d7
 
 迅雷：https://pan.xunlei.com/s/VNxDaTmHOGWX8jNHpeW-djk8A1?pwd=qcqy#
-
-#### 《绿色地狱（Green Hell）》v2.9.3 中文 联机版
-
-夸克：https://pan.quark.cn/s/2221de711731
 
 #### 《Longvinter》v2025.3.27 中文 联机版（隆冬）
 
