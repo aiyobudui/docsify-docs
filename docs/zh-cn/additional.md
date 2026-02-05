@@ -50,10 +50,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNvpiR6Yp-_r1h9Ud5e5kYbzA1?pwd=23gt#
 
-#### 《世界杯 1930 - 2022 比赛》全部资源（1.2TB）
-
-夸克：https://pan.quark.cn/s/7b0227f713ea
-
 #### 《天涯神贴全网最全600多篇》
 
 夸克：https://pan.quark.cn/s/7bddfbb37247
