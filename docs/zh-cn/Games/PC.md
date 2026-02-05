@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《深蓝 吞噬进化（Deep Blue Devour and Evolve）》Build.19802678 中文版
+
+夸克：https://pan.quark.cn/s/9aa88cdf4bb6
+
 #### 《暗黑拍卖（Dark Auction）豪华版》v1.0.6 中文版
 
 夸克：https://pan.quark.cn/s/25d8cdae0c50
@@ -71,6 +75,10 @@
 #### 《索尼克 未知边境（Sonic Frontiers）豪华版》v1.42 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ebd5f1fb64b1
+
+#### 《移形换位（Shift Happens）》v1.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/31b2ef0bb7aa
 
 #### 《猎鱼达人（Fish Hunters）》v2026.2.1 中文版
 
@@ -148,6 +156,10 @@
 夸克：https://pan.quark.cn/s/42d400d7daa0
 
 迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
+#### 《模拟山羊3（Goat Simulator 3）》v1.2.0.4.462744 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0aa281f984e8
 
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
 
@@ -7768,10 +7780,6 @@
 #### 《乐高 地平线大冒险（LEGO Horizon Adventures）》v1.3.0.0 豪华中文版
 
 夸克：https://pan.quark.cn/s/82ec4a73833e
-
-#### 《模拟山羊3（Goat Simulator 3）》v1.1.2.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/0aa281f984e8
 
 #### 《师父（SIFU）》v1.28.6.720 全DLC 豪华中文版
 
