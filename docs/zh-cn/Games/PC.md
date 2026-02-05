@@ -116,6 +116,16 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v3.0.1 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《孤岛危机1 重制版（Crysis Remastered）》v(rc2 82938) 中文版
+#### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
+#### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
+
+夸克：https://pan.quark.cn/s/2b6ecf65e866
+
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/da687434881d
@@ -977,10 +987,6 @@
 #### 《骑马与砍杀2：霸主（Mount Blade 2 Bannerlord）豪华版》v1.3.13.105726 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/2ce76d085b7c
-
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v2.0.3 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
 
 #### 《正当防卫3（Just Cause 3）XXL版》v20251217 全DLC 豪华中文版
 
@@ -6619,10 +6625,6 @@
 
 夸克：https://pan.quark.cn/s/63eb0214a798
 
-#### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
-
-夸克：https://pan.quark.cn/s/a7e623eb4d65
-
 #### 《心跳文学部Plus（Doki Doki Literature Club Plus!）》Build.10766092 中文版（心理恐惧）
 
 夸克：https://pan.quark.cn/s/56a700c665b5
@@ -10304,10 +10306,6 @@
 #### 《阿斯托：巨碑之刃（Astor：Blade of the Monolith）》最新 中文版 30号刚上新游戏
 
 夸克：https://pan.quark.cn/s/439e72666fae
-
-#### 《孤岛危机3重制版》v7983.0.0.1 简体中文版
-
-夸克：https://pan.quark.cn/s/2b6ecf65e866
 
 #### 《绝望回声（Echoes Of Despair）》最新 英文版
 
