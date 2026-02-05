@@ -11,7 +11,7 @@
   打开夸克APP用**手机**保存资源，这样会获得1T的容量。过期可以使用新手机号  
   手机端打开链接保存获取**1T容量**：https://pan.quark.cn/s/78b837bcdd7f
 
-> [!TIP|style:callout|label:怎么搜索|iconVisibility:hidden]
+> [!TIP|style:callout|label:怎么搜索|iconvisibility:hidden]
   1、资源过多，左侧有搜索框 🔍**搜索** 能快速定位到需要的资源，可模糊搜索，别精确到标点符号  
   2、新添加的资源可能会搜索不到，可使用浏览器自带的搜索功能 **CTRL+F** 弹出查找搜索
 
