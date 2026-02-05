@@ -110,7 +110,8 @@
 
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.21521672 全DLC 中文版
-#### 《生化危机8村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
+#### 《生化危机8 村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
+#### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/744a500cb67e
 
@@ -129,6 +130,14 @@
 #### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
 
 夸克：https://pan.quark.cn/s/2b6ecf65e866
+
+#### 《狙击精英v2 重制版（Sniper Elite V2 Remastered）》v(SVN 2797 PF 85690) 中文版
+#### 《狙击精英3（Sniper Elite 3）》v1.15a 全DLC 中文 局域网联机版
+#### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/50553e18ffa3
+
+迅雷：https://pan.xunlei.com/s/VNuenkkEMO36N9TX9pNUcV45A1?pwd=sheg#
 
 #### 《阿尼玛 回忆之门 1+2 重制版（Anima Gate of Memories I & II Remaster）》v2025.11.22 中文版
 
@@ -488,11 +497,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
 
+#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
 #### 《人中之龙 极1（Yakuza Kiwami）终结版》v1.13 中文版（如龙极）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
 #### 《人中之龙 极2（Yakuza Kiwami 2）终结版》v1.13 中文版（如龙极2）
+#### 《如龙 系列8部合集》最新 全DLC 中文版（人中之龙）
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
 
@@ -597,10 +605,6 @@
 夸克：https://pan.quark.cn/s/6aefdf352960
 
 迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
-
-#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
 
 #### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
 
@@ -3497,10 +3501,6 @@
 #### 《灾后修复师（RoadCraft）》v2025.5.20 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f974a596610e
-
-#### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版（电脑版）
-
-夸克：https://pan.quark.cn/s/50553e18ffa3
 
 #### 《伊苏X -诺曼荣光-（Ys X：Proud Nordics）》v1.0.1 全DLC 中文版
 
@@ -11199,16 +11199,6 @@
 
 夸克：https://pan.quark.cn/s/8c417acf572b
 
-#### 《如龙 系列合集（Yakuza）》8部 最新 全DLC 中文版（人中之龙 ）
-
-夸克：https://pan.quark.cn/s/e64a1d3125be
-
-#### 《生化危机 系列合集（Resident）》10部 最新 黄金版 + 重制版 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/744a500cb67e
-
-迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
-
 #### 《最终幻想 系列合集（FINAL FANTASY）》最新 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/79878124f832
@@ -11326,12 +11316,6 @@
 夸克：https://pan.quark.cn/s/e0ce1f455355
 
 迅雷：https://pan.xunlei.com/s/VNpAil3kuIHDOX7GaTZlKMMOA1?pwd=9tun#
-
-#### 《狙击精英 系列合集（Sniper Elite）》4部 最新 全DLC 中文版（电脑版）
-
-夸克：https://pan.quark.cn/s/50553e18ffa3
-
-迅雷：https://pan.xunlei.com/s/VNuenkkEMO36N9TX9pNUcV45A1?pwd=sheg#
 
 #### 《神奇蜘蛛侠 系列合集（The Amazing Spider Man）》2部 最新 汉化中文版（超凡蜘蛛侠）
 

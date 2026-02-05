@@ -44,13 +44,21 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
-#### 《宝可梦传说ZA》v2.0.0 全DLC NS整合 中文版（宝可梦Z-A）
+#### 《宝可梦传说ZA》v2.0.0 NS整合 全DLC 中文版（宝可梦Z-A）
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
-#### 《动物森友会》v3.0.0 全DLC NS整合 中文版
+#### 《勇者斗恶龙7 重制版》v1.1.0 NS整合 全DLC 中文港版
+
+夸克：https://pan.quark.cn/s/414079b3b416
+
+#### 《动物森友会》v3.0.0 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/83869492b208
+
+### 《咩咩启示录》v1.5.12 NS整合 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8093958e4885
 
 #### 《七度荒域 混沌之树 7th Domain Tree of Chaos》v1.0.2 中文版
 
@@ -100,11 +108,11 @@
 
 夸克：https://pan.quark.cn/s/17697a46539a
 
-#### 《舞力全开 LEGACY Plus》v2.2 全DLC NS整合 中文版 [1370首歌］
+#### 《舞力全开 LEGACY Plus》v2.2 NS整合 全DLC 中文版 [1370首歌］
 
 夸克：https://pan.quark.cn/s/23abc7b42fc1
 
-#### 《太鼓达人 咚咚雷音祭》v3.3.1 全DLC NS整合 中文版
+#### 《太鼓达人 咚咚雷音祭》v3.3.1 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/76e4c8fcf5d4
 
@@ -160,7 +168,7 @@
 
 夸克：https://pan.quark.cn/s/a435ee7d2bea
 
-#### 《鬼灭之刃 火之神血风谭2》v1.02 全DLC NS整合 港区中文 豪华版
+#### 《鬼灭之刃 火之神血风谭2》v1.02 NS整合 全DLC 港区中文 豪华版
 
 夸克：https://pan.quark.cn/s/36c108d3dfea
 
@@ -180,7 +188,7 @@
 
 夸克：https://pan.quark.cn/s/20f0c112bf7f
 
-#### 《海贼无双4 ONE PIECE》v1.8.1 全DLC NS整合中文版
+#### 《海贼无双4 ONE PIECE》v1.8.1 NS整合 全DLC中文版
 
 夸克：https://pan.quark.cn/s/dfe80d5ed149
 
@@ -232,11 +240,11 @@
 
 夸克：https://pan.quark.cn/s/45ae02c71abb
 
-#### 《索尼克 夏特 世代重启（SONIC X SHADOW）》v1.0.1 全DLC NS整合 中文版
+#### 《索尼克 夏特 世代重启（SONIC X SHADOW）》v1.0.1 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/03db588fdebf
 
-#### 《索尼克 未知边境 Sonic Frontier》v1.4.1 全DLC NS整合 中文版
+#### 《索尼克 未知边境 Sonic Frontier》v1.4.1 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/4d5aee6e0f3d
 
@@ -244,15 +252,15 @@
 
 夸克：https://pan.quark.cn/s/119c00761869
 
-#### 《幻想生活ｉ 转圈圈的龙和偷取时间的少女》v2.0.4 全DLC NS整合 中文版
+#### 《幻想生活ｉ 转圈圈的龙和偷取时间的少女》v2.0.4 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/601a22c5b461
 
-#### 《文明7》v1.3.1 全DLC NS整合 中文版
+#### 《文明7》v1.3.2 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/dc3b513887ff
 
-#### 《喷射战士3 Splatoon 3》v10.0.1 全DLC NS整合 中文版
+#### 《喷射战士3 Splatoon 3》v10.0.1 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/10a29ab26440
 
@@ -272,7 +280,7 @@
 
 夸克：https://pan.quark.cn/s/aef5c5e84ca5
 
-#### 《符文工房 龙之天地》v1.05 全DLC NS整合中文（有PC版）
+#### 《符文工房 龙之天地》v1.05 NS整合 全DLC中文（有PC版）
 
 夸克：https://pan.quark.cn/s/b76b2375c487
 
@@ -292,7 +300,7 @@
 
 夸克：https://pan.quark.cn/s/912bacdf3a0f
 
-#### 《双点校园（Two Point Campus）》最新 全DLC NS整合 中文版
+#### 《双点校园（Two Point Campus）》最新 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0aa06f1d4b11
 
@@ -304,15 +312,20 @@
 
 夸克：https://pan.xunlei.com/s/VNtqZeazTXVAZexRrfNzy2eWA1?pwd=4he6#
 
-#### 《星之卡比 系列6部》最新 全DLC NS整合 中文版
-
+#### 《星之卡比 系列6部》最新 NS整合 全DLC 中文版
+#### 星之卡比 美食节（卡比的美食节）v1.0.0.a
+#### 星之卡比 新星同盟
+#### 星之卡比 群星战2
+#### 星之卡比 探索发现
+#### 星之卡比 重返梦幻岛
+#### 星之卡比 猎人队
 夸克：https://pan.quark.cn/s/8d31bd1bd1d4
 
 #### 《建筑模拟器2》最新 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/f8510d81fb6a
 
-#### 《波斯王子 失落的王冠》v1.0.2 豪华中文 NS整合版
+#### 《波斯王子 失落的王冠》v1.0.2 NS整合 豪华中文版
 
 夸克：https://pan.quark.cn/s/172acc40a2b9
 
@@ -342,7 +355,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNxDTm_AbBd-yNIBPexsHErvA1?pwd=kw32#
 
-#### 《真女神转生5 复仇》v1.9.0.0 全DLC NS整合 中文版 附60帧补丁
+#### 《真女神转生5 复仇》v1.9.0.0 NS整合 全DLC 中文版 附60帧补丁
 
 夸克：https://pan.quark.cn/s/168eff416b17
 
@@ -352,7 +365,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNsxcYC91YjcwerBPklllpd_A1?pwd=hgty#
 
-#### 《火焰纹章：结合（Fire Emblem Engage）》v2.0.0 全DLC NS整合 豪华中文版
+#### 《火焰纹章：结合（Fire Emblem Engage）》v2.0.0 NS整合 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/1206087aa4d8
 
@@ -360,19 +373,19 @@
 
 夸克：https://pan.quark.cn/s/368ef7612057
 
-#### 《火焰纹章 风花雪月（Fire Emblem：Three Houses）》V1.2.0 全DLC NS整合 中文版
+#### 《火焰纹章 风花雪月（Fire Emblem：Three Houses）》V1.2.0 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0ac9a6c31fd1
 
-#### 《怪物猎人物语(MONSTER HUNTER STORIES)》v1.01+DLC NS整合 中文版
+#### 《怪物猎人物语(MONSTER HUNTER STORIES)》v1.01 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/a2f52b615e6a
 
-#### 《全明星大乱斗 特别版（Super Smash Bros）》v13.0.2 全99DLC NS整合 中文版
+#### 《全明星大乱斗 特别版（Super Smash Bros）》v13.0.2 NS整合 全99DLC  中文版
 
 夸克：https://pan.quark.cn/s/9b49cf07eade
 
-#### 《路易吉洋馆3（Luigi s Mansion 3）v1.4 全DLC NS整合 中文版 附60帧补丁和修复补丁
+#### 《路易吉洋馆3（Luigi s Mansion 3）v1.4 NS整合 全DLC 中文版 附60帧补丁和修复补丁
 
 夸克：https://pan.quark.cn/s/35af675b6d40
 
@@ -414,7 +427,7 @@
 
 夸克：https://pan.quark.cn/s/abbf67fc341d
 
-#### 《被虐的诺艾尔（NOEL the Mortal Fate）》v1.0.1 中文 NS整合
+#### 《被虐的诺艾尔（NOEL the Mortal Fate）》v1.0.1 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/797b33b2102f
 
@@ -422,11 +435,11 @@
 
 夸克：https://pan.quark.cn/s/cca19db1fe67
 
-#### 《像素咖啡馆（Pixel Cafe）》v1.20 全DLC 中文 NS整合版
+#### 《像素咖啡馆（Pixel Cafe）》v1.20 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/4557266fb05f
 
-#### 《逆转裁判》1-6整合版合集 最新中文 NS版
+#### 《逆转裁判》1-6整合版合集 最新 NS 中文版
 
 夸克：https://pan.quark.cn/s/2f0b0bdea690
 
@@ -476,25 +489,21 @@
 
 夸克：https://pan.quark.cn/s/5d0e1c04b942
 
-#### 《异度之刃（Xenoblade Chronicles）决定版》v1.1.2 全DLC NS整合 中文版
+#### 《异度之刃（Xenoblade Chronicles）决定版》v1.1.2 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ad0b5ad455d5
 
-#### 《异度之刃2（Xenoblade Chronicles 2）》v2.0.2 全DLC NS整合 中文版(含黄金の国)
+#### 《异度之刃2（Xenoblade Chronicles 2）》v2.0.2 NS整合 全DLC 中文版(含黄金の国)
 
 夸克：https://pan.quark.cn/s/e2a8d7d4cd22
 
-#### 《异度之刃3（Xenoblade Chronicles 3）扩展版》v2.2.1 全DLC NS整合 中文版
+#### 《异度之刃3（Xenoblade Chronicles 3）扩展版》v2.2.1 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7f35c3efdd20
 
 #### 《异度之刃X：终极版》v1.0.1 NS整合版
 
 夸克：https://pan.quark.cn/s/eec02cf4fecd
-
-#### 《卡比的美食节（Kirbys Dream Buffet）最新 NS整合 中文版（星之卡比：美食节）
-
-夸克：https://pan.quark.cn/s/9c8a7c9527df
 
 #### 《猎天使魔女 1+2+3部》最新 NS整合 中文版
 
@@ -504,11 +513,11 @@
 
 夸克：https://pan.quark.cn/s/1873cc7e8ee5
 
-#### 《大金刚：热带寒流》v1.0.2 NS英文版（森喜刚：热带寒流）
+#### 《大金刚：热带寒流》v1.0.2 NS 英文版（森喜刚：热带寒流）
 
 夸克：https://pan.quark.cn/s/2d7d6de46e7b
 
-#### 《异界锁链（ASTRAL CHAIN）》V1.0.1 NS中文版
+#### 《异界锁链（ASTRAL CHAIN）》V1.0.1 NS 中文版
 
 夸克：https://pan.quark.cn/s/dab63a0966ec
 
@@ -516,7 +525,7 @@
 
 ## 宝可梦系列
 
-#### 《宝可梦朱紫》v3.0.1 + v4.0.0 全DLC NS整合 中文版 附金手指+60帧补丁
+#### 《宝可梦朱紫》v3.0.1 + v4.0.0 NS整合 全DLC 中文版 附金手指+60帧补丁
 
 夸克：https://pan.quark.cn/s/53a768ccc4a8
 
@@ -544,7 +553,7 @@
 
 夸克：https://pan.quark.cn/s/c23752c4c63d
 
-#### 《宝可梦铁拳锦标赛DX》v1.3.3 全DLC NS整合英文版
+#### 《宝可梦铁拳锦标赛DX》v1.3.3 NS整合 全DLC 英文版
 
 夸克：https://pan.quark.cn/s/f07bf2f22b14
 
@@ -575,7 +584,7 @@
 
 ## 塞尔达系列
 
-#### 《塞尔达传说：旷野之息》v1.6.0 + v1.8.1 + v1.8.2 全DLC NS整合 中文版
+#### 《塞尔达传说：旷野之息》v1.6.0 + v1.8.1 + v1.8.2 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/759e1d68c590
 
@@ -595,7 +604,7 @@
 
 夸克：https://pan.quark.cn/s/574c305de97d
 
-#### 《塞尔达传说：织梦岛》v1.1.0 NS中文版
+#### 《塞尔达传说：织梦岛》v1.1.0 NS 中文版
 
 夸克：https://pan.quark.cn/s/7fd3247a082c
 
@@ -603,13 +612,13 @@
 
 ## 女神异闻录系列
 
-#### 《女神异闻录5 皇家版》P5R 官方中文收藏版 1.0.2+金手指+60帧补丁 NS整合 中文版
+#### 《女神异闻录5 皇家版》v1.0.2 NS整合 中文版 附金手指+60帧补丁（P5R 现在有PC版了）
 
 夸克：https://pan.quark.cn/s/a67eb8ab15f4
 
 迅雷：https://pan.xunlei.com/s/VNtg7p0je2b7WrGcBt1aO0TWA1?pwd=e49k#
 
-#### 《女神异闻录5：战略版（Persona 5 Tactica）》P5T v1.0.3 全DLC NS整合 中文版
+#### 《女神异闻录5：战略版（Persona 5 Tactica）》v1.0.3 NS整合 全DLC 中文版（P5T）
 
 夸克：https://pan.quark.cn/s/5e7026011570
 
@@ -617,11 +626,11 @@
 
 夸克：https://pan.quark.cn/s/1ff592f9d8d6
 
-#### 《女神异闻录4:终极竞技场（无敌究极后桥背摔）》P4U2 v1.02 NS整合 中文版
+#### 《女神异闻录4:终极竞技场（无敌究极后桥背摔）》v1.02 NS整合 中文版（P4U2）
 
 夸克：https://pan.quark.cn/s/8243a2dd0d53
 
-#### 《女神异闻录3》P3 v1.0.0 NS整合 中文版
+#### 《女神异闻录3》v1.0.0 NS整合 中文版（P3）
 
 夸克：https://pan.quark.cn/s/e42c02c2df00
 
@@ -631,7 +640,7 @@
 
 ## 马里奥系列
 
-#### 《马里奥赛车8》v3.0.5 全DLC NS整合 豪华中文版
+#### 《马里奥赛车8》v3.0.5 NS整合 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/a1f5bc201413
 
@@ -639,23 +648,23 @@
 
 夸克：https://pan.quark.cn/s/0bf6716e983a
 
-#### 《超级马里奥制造2（SUPER MARIO MAKER 2）》v3.0.2 美版中文 NS整合版
+#### 《超级马里奥制造2（SUPER MARIO MAKER 2）》v3.0.2 NS整合版 美版中文
 
 夸克：https://pan.quark.cn/s/4f64eb66a210
 
-#### 《新超级马里奥兄弟U（New Super Mario Bros. U）》v1.0.0 中文 NS版
+#### 《新超级马里奥兄弟U（New Super Mario Bros. U）》v1.0.0 NS版 中文版
 
 夸克：https://pan.quark.cn/s/2cd23a0f6184
 
-#### 《超级马里奥派对 空前盛会（Super Mario Party Jamboree）》v2.1.1 NS整合 中文版
+#### 《超级马里奥派对 空前盛会（Super Mario Party Jamboree）》v2.3.0 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/b4ee076adc84
 
-#### 《超级马里奥兄弟 惊奇(Super Mario Bros Wonder)》v1.2 NS中文版
+#### 《超级马里奥兄弟 惊奇(Super Mario Bros Wonder)》v1.2 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/b679b56ce522
 
-#### 《超级马里奥 3D世界＋狂怒世界(Super Mario 3D World+Bowsers Fury)》v1.1.0 NS中文版
+#### 《超级马里奥 3D世界＋狂怒世界(Super Mario 3D World+Bowsers Fury)》v1.1.0 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/c1eb1b903f72
 
