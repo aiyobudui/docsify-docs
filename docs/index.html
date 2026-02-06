@@ -327,8 +327,16 @@
             color: #0064ff;
         }
 
+        /* 多标题 padding-top等于0.5*/
         .no-title-h4 h4 {
             padding-top: 0.5rem;
+        }
+
+        @media (max-width: 768px) {
+            .no-title-h4 h4 {
+                padding-top: 0.3rem;
+                /* 移动端更小的间距 */
+            }
         }
 
         /* 隐藏标题链接 */
