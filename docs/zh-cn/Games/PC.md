@@ -102,9 +102,9 @@
 
 ## 最近更新
 
+#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 <section class="no-title-h4">
 
-#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.21521672 全DLC 中文版（新）
 #### 《生化危机8 村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
 #### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
@@ -131,9 +131,9 @@
 
 夸克：https://pan.quark.cn/s/044dd2733019
 
+#### 《孤岛危机1 重制版（Crysis Remastered）》v(rc2 82938) 中文版
 <section class="no-title-h4">
 
-#### 《孤岛危机1 重制版（Crysis Remastered）》v(rc2 82938) 中文版
 #### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
 #### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
 
@@ -144,6 +144,8 @@
 <section class="no-title-h4">
 
 #### 《狙击精英v2 重制版（Sniper Elite V2 Remastered）》v(SVN 2797 PF 85690) 中文版
+<section class="no-title-h4">
+
 #### 《狙击精英3（Sniper Elite 3）》v1.15a 全DLC 中文 局域网联机版
 #### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版
 
