@@ -141,7 +141,7 @@
 
 夸克：https://pan.quark.cn/s/2b6ecf65e866
 
-<section class="no-title-h4">
+
 
 #### 《狙击精英v2 重制版（Sniper Elite V2 Remastered）》v(SVN 2797 PF 85690) 中文版
 <section class="no-title-h4">
@@ -479,9 +479,9 @@
 
 夸克：https://pan.quark.cn/s/c6afb4342e8a
 
+#### 《蝙蝠侠 阿卡姆骑士（Batman Arkham Knight）年度版》v1.999 全DLC 汉化版
 <section class="no-title-h4">
 
-#### 《蝙蝠侠 阿卡姆骑士（Batman Arkham Knight）年度版》v1.999 全DLC 汉化版
 #### 《蝙蝠侠：阿卡姆疯人院（Batman Arkham Asylum）年度版》v1.1 全DLC 汉化版
 #### 《蝙蝠侠 阿卡姆之城（Batman Arkham City GOTY）年度版》v1.1 全DLC 汉化版
 
@@ -553,9 +553,9 @@
 
 迅雷：https://pan.xunlei.com/s/VNw0-RA9cghaYl5s1nnp86b-A1?pwd=wg7k#
 
+#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
 <section class="no-title-h4">
 
-#### 《人中之龙0 誓约的场所 导演剪辑版》v1.15.9088 中文版（如龙0 导演剪辑版）
 #### 《人中之龙 极1（Yakuza Kiwami）终结版》v1.13 中文版（如龙极）
 #### 《人中之龙 极2（Yakuza Kiwami 2）终结版》v1.13 中文版（如龙极2）
 #### 《如龙 系列8部合集》最新 全DLC 中文版（人中之龙）
