@@ -132,7 +132,7 @@
 
 夸克：https://pan.quark.cn/s/31c75e066797
 
-#### 《小小梦魇3 Little Nightmares III》v1.0.3 NS整合 全DLC 中文版
+#### 《小小梦魇3 Little Nightmares III》v1.0.5 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/614a0eba58bc
 
@@ -148,7 +148,7 @@
 
 夸克：https://pan.quark.cn/s/1d08b12e2ce1
 
-#### 《超级马里奥银河1+2》v1.0.0整合版 + 1.2.0升级补丁 NS整合 中文版
+#### 《超级马里奥银河1+2》v1.3.1 NS未整合 中文版
 
 夸克：https://pan.quark.cn/s/b3fdb30e21f2
 
@@ -252,7 +252,7 @@
 
 夸克：https://pan.quark.cn/s/119c00761869
 
-#### 《幻想生活ｉ 转圈圈的龙和偷取时间的少女》v2.0.4 NS整合 全DLC 中文版
+#### 《幻想生活ｉ 转圈圈的龙和偷取时间的少女》v2.1.0 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/601a22c5b461
 

@@ -1043,6 +1043,19 @@
 
 夸克：https://pan.quark.cn/s/22bf66746201
 
+#### 《霹雳游侠》（1982-1985）1-4季全 720P 国英配音 内封中字（默认国配 附新霹雳游侠）
+
+夸克：https://pan.quark.cn/s/d86be4df1d0b
+
+迅雷：https://pan.xunlei.com/s/VOkpoNbTqscUuQC9n0cImf1PA1?pwd=dmjz# （蓝光1080P）
+
+#### 《千谎百计》（2009-2010）1-3季全 蓝光1080P 内封中英字幕 FRDS压制（又名 别对我撒谎）
+
+夸克：https://pan.quark.cn/s/1c9645ab5c1c
+
+迅雷：https://pan.xunlei.com/s/VOkpqgX057gOnpm2PqrJ2fgaA1?pwd=adnd#
+
+
 ---
 
 ## 漫威衍生剧..

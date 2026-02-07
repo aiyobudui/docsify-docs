@@ -53,10 +53,17 @@
 
 #### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
 #### 《仁王（Nioh）完全版》v1.24.08 中文版
-
 </section>
 
 夸克：https://pan.quark.cn/s/be850af09c63
+
+#### 《桃源村日志（Halcyon Days at Taoyuan）》v1.0.7 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5550412f7b3a
+
+#### 《黑帆赌局（Pirates Gambit）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/292eff905786
 
 #### 《焕然异星（Terraformers）》v1.6.36 全DLC 中文版
 
@@ -106,14 +113,16 @@
 <section class="no-title-h4">
 
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.21521672 全DLC 中文版（新）
-#### 《生化危机8 村庄（Resident Evil Village）》Build.11260452 全DLC 中文 黄金版
+#### 《生化危机8 村庄（Resident Evil Village）》Build.21519280 全DLC 中文配音 黄金版
 #### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
-
 </section>
-
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/e6b2b4cad601
 
 #### 《人渣（SCUM）豪华版》v1.2.0.6.104952 全DLC 中文 联机版
 
@@ -240,10 +249,6 @@
 #### 《战地风云6（Battlefield 6）》v1.1.2.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/11019cbca2fb
-
-#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/e6b2b4cad601
 
 #### 《末日的回声（Echoes of the End）增强版》v2.0.3 中文版（魂类游戏）
 
