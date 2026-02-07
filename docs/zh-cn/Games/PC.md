@@ -120,6 +120,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.9.1397 中文版
+
+夸克：https://pan.quark.cn/s/51ec3310edca
+
 #### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.4 中文 联机版
 
 夸克：https://pan.quark.cn/s/e6b2b4cad601
@@ -746,10 +750,6 @@
 #### 《最终幻想：零式（HD Final Fantasy TYPE-0 HD）》v2021.6.21 中文版
 
 夸克：https://pan.quark.cn/s/79878124f832
-
-#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.1176 中文版
-
-夸克：https://pan.quark.cn/s/51ec3310edca
 
 #### 《降妖散记（Yao-Guai Hunter）》v1.2.8 全DLC 中文版
 

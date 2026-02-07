@@ -39,7 +39,7 @@
 
 夸克：https://pan.quark.cn/s/ba5ed862cfcc
 
-#### 《斯巴达克斯：亚述家族》（2025）4K HDR 10集更新中..
+#### 《斯巴达克斯：亚述家族》（2025）1080P 10集全（附 旧版4季）
 
 夸克：https://pan.quark.cn/s/7e4ce182b0f3
 
