@@ -116,6 +116,7 @@
 #### 《生化危机8 村庄（Resident Evil Village）》Build.21519280 全DLC 中文配音 黄金版
 #### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
 </section>
+
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
@@ -131,6 +132,16 @@
 #### 《人渣（SCUM）豪华版》v1.2.0.6.104952 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e1be35435129
+
+#### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v1.3.0.0 全DLC 中文版
+<section class="no-title-h4">
+
+#### 《丧尸围城2 绝密档案 （Dead Rising 2 Off the Record）》v623585 全DLC 汉化版
+#### 《丧尸围城3 天启版 （Dead Rising 3 Apocalypse Edition）》v1.0.0.6.Up6 全DLC 中文 联机版
+#### 《丧尸围城4（Dead Rising 4）》v1.0.Up4 全DLC 中文 联机版
+</section>
+
+夸克：https://pan.quark.cn/s/8fb30667fff0
 
 #### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v3.0.1 中文版
 
@@ -149,19 +160,15 @@
 
 #### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
 #### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
-
 </section>
 
 夸克：https://pan.quark.cn/s/2b6ecf65e866
-
-
 
 #### 《狙击精英v2 重制版（Sniper Elite V2 Remastered）》v(SVN 2797 PF 85690) 中文版
 <section class="no-title-h4">
 
 #### 《狙击精英3（Sniper Elite 3）》v1.15a 全DLC 中文 局域网联机版
 #### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版
-
 </section>
 
 夸克：https://pan.quark.cn/s/50553e18ffa3
@@ -382,10 +389,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNoGSO4FQkxnHiGPS-X13LkSA1?pwd=5j2h#
 
-#### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v2025.9.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b433499adaec
-
 #### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.2 全DLC 中文版（新增修院迷踪DLC）
 
 夸克：https://pan.quark.cn/s/7c6b8f30675c
@@ -493,7 +496,6 @@
 
 #### 《蝙蝠侠：阿卡姆疯人院（Batman Arkham Asylum）年度版》v1.1 全DLC 汉化版
 #### 《蝙蝠侠 阿卡姆之城（Batman Arkham City GOTY）年度版》v1.1 全DLC 汉化版
-
 </section>
 
 夸克：https://pan.quark.cn/s/484816a4509c
@@ -568,7 +570,6 @@
 #### 《人中之龙 极1（Yakuza Kiwami）终结版》v1.13 中文版（如龙极）
 #### 《人中之龙 极2（Yakuza Kiwami 2）终结版》v1.13 中文版（如龙极2）
 #### 《如龙 系列8部合集》最新 全DLC 中文版（人中之龙）
-
 </section>
 
 夸克：https://pan.quark.cn/s/e64a1d3125be
@@ -9005,10 +9006,6 @@
 夸克：https://pan.quark.cn/s/321fd7bdada3
 
 迅雷：https://pan.xunlei.com/s/VO74u05aea0jqMrYTDIAkSV3A1?pwd=styg#
-
-#### 《丧尸围城4（Dead Rising 4）》v.Update4 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/8fb30667fff0
 
 #### 《史诗战争模拟器2（Ultimate Epic Battle Simulator 2）》v1.2 中文版（附第一部）
 
