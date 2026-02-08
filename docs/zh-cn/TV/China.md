@@ -29,6 +29,12 @@
 
 夸克：https://pan.quark.cn/s/9ddda9e6e559
 
+#### 《有罪之身》（2026）4K 14集全
+
+夸克：https://pan.quark.cn/s/47d9af9105c7
+
+迅雷：https://pan.xunlei.com/s/VOkxexWaVNhDhTsG866VqbQFA1?pwd=kcfu#
+
 #### 《人之初》（2025）4K 18集全
 
 夸克：和谐
