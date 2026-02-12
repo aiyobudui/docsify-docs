@@ -59,12 +59,24 @@
             --heading-color: var(--primary-color);
         }
 
-        @media (max-width: 768px) {
+/* 仅匹配屏幕宽度=2560px时，页面缩放到80% */
+@media screen and (width: 2560px) {
   html {
-    zoom: 80%;
-    /* 兼容更多浏览器 */
-    transform: scale(0.8);
-    transform-origin: top left;
+    /* 双缩放属性保证全浏览器兼容 */
+    zoom: 0.8; /* 兼容Chrome/Safari */
+    transform: scale(0.8); /* 兼容Firefox/Edge */
+    /* 核心：从左上角缩放，避免页面偏移 */
+    transform-origin: 0 0; /* 等同于top left，更简洁 */
+    /* 补偿宽度，防止缩放后出现横向滚动条 */
+    width: 125%; /* 100% ÷ 0.8 = 125%，抵消缩放压缩 */
+    overflow-x: hidden; /* 彻底隐藏横向滚动条 */
+    box-sizing: border-box; /* 防止宽度溢出 */
+  }
+  /* 确保body适配缩放后的html容器 */
+  body {
+    margin: 0;
+    padding: 0;
+    min-height: 100vh; /* 高度自适应屏幕 */
   }
 }
 
