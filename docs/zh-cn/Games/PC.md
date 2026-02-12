@@ -124,6 +124,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《HumanitZ》v1.0XZ 中文 联机版（丧尸生存游戏）
+
+夸克：https://pan.quark.cn/s/0fcd0ac081da
+
 #### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.9.1397 中文版
 
 夸克：https://pan.quark.cn/s/51ec3310edca
@@ -9077,10 +9081,6 @@
 #### 《伽尔兰特：我的冒险故事（Garlant My Story）》v1.0.1.8 中文版
 
 夸克：https://pan.quark.cn/s/a6a974da956d
-
-#### 《HumanitZ》v0.910 中文 联机版（丧尸生存游戏）
-
-夸克：https://pan.quark.cn/s/0fcd0ac081da
 
 #### 《白色情人节：名为学校的迷宫（White Day A Labyrinth Named School）》v1.05 中文版（恐怖游戏）
 
