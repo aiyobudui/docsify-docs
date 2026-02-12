@@ -59,26 +59,6 @@
             --heading-color: var(--primary-color);
         }
 
-/* 所有宽度≤2560px的屏幕，页面缩放到80% */
-@media screen and (max-width: 2560px) {
-  html, body {
-    margin: 0 !important;
-    padding: 0 !important;
-    overflow-x: hidden !important;
-    height: 100% !important;
-  }
-
-  body {
-    /* 双缩放属性保证全浏览器兼容 */
-    zoom: 0.8 !important; /* Chrome/Safari */
-    transform: scale(0.8) !important; /* Firefox/Edge */
-    transform-origin: 0 0 !important; /* 左上角缩放，无偏移 */
-    width: 125% !important; /* 100%/0.8=125%，补偿缩放宽度 */
-    display: block !important; /* 确保transform生效 */
-    min-height: 100vh !important; /* 高度铺满屏幕 */
-  }
-}
-
         /* 浮动猫咪元素 */
         .floating-cat {
             position: fixed;
