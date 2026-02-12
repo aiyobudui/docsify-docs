@@ -57,6 +57,9 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《星砂岛（StarSand Island）》v1.0.0.6359 中文版
+夸克：https://pan.quark.cn/s/4e45aaaed917
+
 #### 《桃源村日志（Halcyon Days at Taoyuan）》v1.0.7 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/5550412f7b3a
