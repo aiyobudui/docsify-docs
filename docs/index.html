@@ -59,24 +59,23 @@
             --heading-color: var(--primary-color);
         }
 
-/* 仅匹配屏幕宽度=2560px时，页面缩放到80% */
-@media screen and (width: 2560px) {
-  html {
-    /* 双缩放属性保证全浏览器兼容 */
-    zoom: 0.8; /* 兼容Chrome/Safari */
-    transform: scale(0.8); /* 兼容Firefox/Edge */
-    /* 核心：从左上角缩放，避免页面偏移 */
-    transform-origin: 0 0; /* 等同于top left，更简洁 */
-    /* 补偿宽度，防止缩放后出现横向滚动条 */
-    width: 125%; /* 100% ÷ 0.8 = 125%，抵消缩放压缩 */
-    overflow-x: hidden; /* 彻底隐藏横向滚动条 */
-    box-sizing: border-box; /* 防止宽度溢出 */
+/* 所有宽度≤2560px的屏幕，页面缩放到80% */
+@media screen and (max-width: 2560px) {
+  html, body {
+    margin: 0 !important;
+    padding: 0 !important;
+    overflow-x: hidden !important;
+    height: 100% !important;
   }
-  /* 确保body适配缩放后的html容器 */
+
   body {
-    margin: 0;
-    padding: 0;
-    min-height: 100vh; /* 高度自适应屏幕 */
+    /* 双缩放属性保证全浏览器兼容 */
+    zoom: 0.8 !important; /* Chrome/Safari */
+    transform: scale(0.8) !important; /* Firefox/Edge */
+    transform-origin: 0 0 !important; /* 左上角缩放，无偏移 */
+    width: 125% !important; /* 100%/0.8=125%，补偿缩放宽度 */
+    display: block !important; /* 确保transform生效 */
+    min-height: 100vh !important; /* 高度铺满屏幕 */
   }
 }
 
