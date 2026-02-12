@@ -189,6 +189,14 @@
 
 ## 暂时完结
 
+#### 《中国奇谭》（2023-2025）4K 1-2季全8
+
+夸克：https://pan.quark.cn/s/def65c5f0740
+
+迅雷：https://pan.xunlei.com/s/VNnmJMPhHNQydZn3tpfCf2gxA1?pwd=64y3#
+
+阿里：<https://www.aliyundrive.com/s/UQ6AcRPaYN4>
+
 #### 《龙魂》（2025）4K 8集全
 
 夸克：https://pan.quark.cn/s/973c2d2fe4b5
@@ -550,14 +558,6 @@
 夸克：https://pan.quark.cn/s/5de1a6f49ec1
 
 迅雷：https://pan.xunlei.com/s/VNtCjInOxQ4qEFLIT3WEb5VXA1?pwd=bx7y#
-
-#### 《中国奇谭》4K 8集全
-
-夸克：https://pan.quark.cn/s/def65c5f0740
-
-迅雷：https://pan.xunlei.com/s/VNnmJMPhHNQydZn3tpfCf2gxA1?pwd=64y3#
-
-阿里：<https://www.aliyundrive.com/s/UQ6AcRPaYN4>
 
 #### 《秦时明月系列合集》
 
