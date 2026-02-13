@@ -57,6 +57,10 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《炼魂之地：神偶剧院（Crisol Theater of Idols）》Build.21866503 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/05aa97b328b7
+
 #### 《星砂岛（StarSand Island）》v1.0.0.6359 中文版
 夸克：https://pan.quark.cn/s/4e45aaaed917
 
