@@ -202,7 +202,7 @@
 
 夸克：https://pan.quark.cn/s/550ed16aa7c9
 
-#### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
+#### 《幻兽帕鲁（Palworld）》v0.7.1.86065 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
 
