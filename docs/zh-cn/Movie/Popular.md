@@ -34,6 +34,10 @@
 
 夸克：https://pan.quark.cn/s/afc98881755e
 
+####《奇遇》（2025）4K
+
+夸克：https://pan.quark.cn/s/cbaf992d3f83
+
 #### 《电锯人 蕾塞篇 剧场版》（2022-2025）4K 第一季+剧场版（附漫画）
 
 夸克：https://pan.quark.cn/s/626dd5e39275
