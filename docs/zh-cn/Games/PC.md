@@ -7724,7 +7724,7 @@
 
 夸克：https://pan.quark.cn/s/4b905417590c
 
-#### 《雄心壮志（Big Ambitions）》v0.7-2850 中文版
+#### 《雄心壮志（Big Ambitions）》v0.9-3233 中文版
 
 夸克：https://pan.quark.cn/s/8df72438a038
 
