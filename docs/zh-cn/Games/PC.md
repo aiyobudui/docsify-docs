@@ -57,16 +57,25 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《喵喵的结合（Mewgenics）》v1.0.20645 汉化版
+
+夸克：https://pan.quark.cn/s/9754a267780a
+
 #### 《炼魂之地：神偶剧院（Crisol Theater of Idols）》Build.21866503 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/05aa97b328b7
 
 #### 《星砂岛（StarSand Island）》v1.0.0.6359 中文版
+
 夸克：https://pan.quark.cn/s/4e45aaaed917
 
 #### 《桃源村日志（Halcyon Days at Taoyuan）》v1.0.7 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/5550412f7b3a
+
+#### 《Climber Animals Together》Build.17627893 中文版
+
+夸克：https://pan.quark.cn/s/7b4d5b6c21ae
 
 #### 《黑帆赌局（Pirates Gambit）》v1.0.1 中文版
 
