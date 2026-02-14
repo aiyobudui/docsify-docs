@@ -57,6 +57,9 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《生灵重塑（REANIMAL）》v2026.2.13 中文版（恐怖游戏）
+夸克：https://pan.quark.cn/s/fcef91158dcf
+
 #### 《喵喵的结合（Mewgenics）》v1.0.20645 汉化版
 
 夸克：https://pan.quark.cn/s/9754a267780a
