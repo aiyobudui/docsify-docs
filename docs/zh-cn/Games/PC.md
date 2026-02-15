@@ -140,6 +140,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《我在地府打麻将（Demonic Mahjong）》v0.2.37 中文版
+
+夸克：https://pan.quark.cn/s/d88da55c16aa
+
 #### 《HumanitZ》v1.0XZ 中文 联机版（丧尸生存游戏）
 
 夸克：https://pan.quark.cn/s/0fcd0ac081da
@@ -2548,10 +2552,6 @@
 夸克：https://pan.quark.cn/s/791c98f684de
 
 迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
-
-#### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
-
-夸克：https://pan.quark.cn/s/d88da55c16aa
 
 #### 《敲棺盖（Knock on the Coffin Lid）》v1.3.9.0 全DLC 中文版
 
