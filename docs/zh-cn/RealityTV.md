@@ -9,9 +9,9 @@
 
 夸克：https://pan.quark.cn/s/6059868fc472
 
-#### 《现在就出发》（2025）第三季 更新中..
+#### 《现在就出发》（2025）第三季 全
 
-夸克：https://pan.quark.cn/s/1c0574049717
+夸克：https://pan.quark.cn/s/2cc6c2ebe701
 
 #### 《喜人奇妙夜2》（2024-2025）1-2季全 4K（附前几季）
 
@@ -19,7 +19,7 @@
 
 迅雷：https://pan.xunlei.com/s/VO7wj_ndEYkY4fupDFP2XPCEA1?pwd=7khq#
 
-#### 《向往的生活》（2025）第八季 更新中..
+#### 《向往的生活》（2025）第八季 全
 
 夸克：https://pan.quark.cn/s/7e597b2cbc4c
 
