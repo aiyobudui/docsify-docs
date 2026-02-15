@@ -855,7 +855,7 @@
 
 阿里：https://www.alipan.com/s/poxvPRLHiUb
 
-#### 《釜山行》1-3部 蓝光4K REMUX原盘 +1080P
+#### 《釜山行》（2016-2022）1-2部 4K HDR 国韩配音 内封中字（附首尔站）
 
 夸克：https://pan.quark.cn/s/19857dfc01bc
 
