@@ -27,11 +27,13 @@
 
 #### 《太平年》（2026）4K 48集更新中...
 
-夸克：https://pan.quark.cn/s/1ac57d97ef84
+夸克：和谐
+
+迅雷：https://pan.xunlei.com/s/VOlUiVM7A0Pv_ye6rtM-jKRpA1?pwd=5fmu#
 
 #### 《年少有为》（2026）4K 24集更新中..
 
-夸克：https://pan.quark.cn/s/9ddda9e6e559
+夸克：https://pan.quark.cn/s/09da3624455d
 
 #### 《有罪之身》（2026）4K 14集全
 
