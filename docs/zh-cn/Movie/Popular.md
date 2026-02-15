@@ -368,6 +368,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6klntzWONH4-AzNor-thkEA1?pwd=phmh#
 
+#### 《热烈》（2023）1080P 中字
+
+夸克：https://pan.quark.cn/s/df027fe13eb8
+
 #### 《正义联盟：战争世界》（2023）蓝光 1080P 中字
 
 夸克：https://pan.quark.cn/s/e55c26f8c435
