@@ -26,6 +26,10 @@
 
 夸克：https://pan.quark.cn/s/63f36987cd23
 
+#### 《爆水管》（2026）4K（彭于晏）
+
+夸克：https://pan.quark.cn/s/58a6481d3851
+
 #### 《超时空辉夜姬！》(2026）1080P 内封中字
 
 夸克：https://pan.quark.cn/s/65b49066f2ad
