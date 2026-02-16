@@ -64,6 +64,10 @@
 
 夸克：https://pan.quark.cn/s/9754a267780a
 
+#### 《环形帝国 2部（Circle Empires）》最新 中文版
+
+夸克：https://pan.quark.cn/s/0abff95600e6
+
 #### 《炼魂之地：神偶剧院（Crisol Theater of Idols）》Build.21866503 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/05aa97b328b7
