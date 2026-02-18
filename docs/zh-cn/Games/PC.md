@@ -57,6 +57,10 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《挪威 血誓（NORSE Oath of Blood）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/2bfdaf3f94b6
+
 #### 《生灵重塑（REANIMAL）》v2026.2.13 中文版（恐怖游戏）
 夸克：https://pan.quark.cn/s/fcef91158dcf
 
