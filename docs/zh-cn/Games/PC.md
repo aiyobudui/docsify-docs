@@ -62,7 +62,12 @@
 夸克：https://pan.quark.cn/s/2bfdaf3f94b6
 
 #### 《生灵重塑（REANIMAL）》v2026.2.13 中文版（恐怖游戏）
+
 夸克：https://pan.quark.cn/s/fcef91158dcf
+
+#### 《Pure Pool Pro》v1605 中文版（8K画质终极台球模拟）
+
+夸克：https://pan.quark.cn/s/599b0a66d277
 
 #### 《喵喵的结合（Mewgenics）》v1.0.20645 汉化版
 
