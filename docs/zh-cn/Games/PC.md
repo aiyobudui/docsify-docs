@@ -159,6 +159,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《喵斯快跑（Muse Dash）》v6.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/84aed71b9812
+
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.37 中文版
 
 夸克：https://pan.quark.cn/s/d88da55c16aa
@@ -1115,10 +1119,6 @@
 #### 《正当防卫3（Just Cause 3）XXL版》v20251217 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/79965ca81c2b
-
-#### 《喵斯快跑（Muse Dash）》v5.10.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/84aed71b9812
 
 #### 《金垦小镇（Dinkum）》v1.0.7 中文 联机版
 
