@@ -91,7 +91,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNyKbaIRApAF35X44D8gZI2qA1?pwd=9wgx#
 
-#### 《地狱客栈》（2024）第一季 8集全 内置字幕
+#### 《地狱客栈》（2024-2025）1-2季全 1080P 硬中字
 
 夸克：https://pan.quark.cn/s/5cd546f71a56
 
