@@ -132,6 +132,12 @@
 
 ## 最近更新
 
+#### 《幻兽帕鲁（Palworld）》v0.7.2.87654 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 <section class="no-title-h4">
 
@@ -225,12 +231,6 @@
 #### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
 
 夸克：https://pan.quark.cn/s/550ed16aa7c9
-
-#### 《幻兽帕鲁（Palworld）》v0.7.1.86065 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
