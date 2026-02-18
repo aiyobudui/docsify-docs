@@ -39,6 +39,10 @@
 
 阿里1-5季：<https://www.aliyundrive.com/s/pRctPZveBuy>
 
+#### 《环太平洋：黑色禁区》（2021-2022）1-2季全 1080P 中字 （美漫）
+
+夸克：https://pan.quark.cn/s/94691b590dde
+
 #### 《美国老爹》（2005-2025）1-21季全 1080P 中字（动漫）
 
 夸克：https://pan.quark.cn/s/790404cc4de9
