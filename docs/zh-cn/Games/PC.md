@@ -65,6 +65,10 @@
 
 夸克：https://pan.quark.cn/s/fcef91158dcf
 
+#### 《深矿防线（Hold The Mine）》v0.7.28 中文版
+
+夸克：https://pan.quark.cn/s/d8dad51dd731
+
 #### 《Pure Pool Pro》v1605 中文版（8K画质终极台球模拟）
 
 夸克：https://pan.quark.cn/s/599b0a66d277
@@ -146,6 +150,14 @@
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《冰汽时代（Frostpunk）年度版》v1.6.1 全DLC 中文版
+<section class="no-title-h4">
+  
+#### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.4 全DLC 中文配音版
+</section>
+
+夸克：https://pan.quark.cn/s/d1d00e8c72d5
 
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 <section class="no-title-h4">
@@ -302,10 +314,6 @@
 #### 《末日的回声（Echoes of the End）增强版》v2.0.3 中文版（魂类游戏）
 
 夸克：https://pan.quark.cn/s/ac1e0683f780
-
-#### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.3 全DLC 中文配音版（新增DLC：破碎理想国）
-
-夸克：https://pan.quark.cn/s/d1d00e8c72d5
 
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15c 全DLC 中文版（魂游）
 
@@ -8674,10 +8682,6 @@
 夸克：https://pan.quark.cn/s/9e3b76f2e962
 
 迅雷：https://pan.xunlei.com/s/VO9OcYC949mmyRCeUUi5-jhBA1?pwd=8q84#
-
-#### 《冰汽时代（Frostpunk）》v1.6.1 全DLC 年度 中文版
-
-夸克：https://pan.quark.cn/s/b9bda69d8aa7
 
 #### 《神州志西游（Journey to the West ）》v1.14.31b 中文版
 
