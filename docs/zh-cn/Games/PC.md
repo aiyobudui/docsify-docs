@@ -2,7 +2,7 @@
 
 <div class="game-nav">
   <a href="#/zh-cn/games/pc" class="game-nav-btn">电脑游戏</a>
-  <a href="#/zh-cn/games/switch" class="game-nav-btn">NS模拟器游戏</a>
+  <a href="#/zh-cn/games/switch" class="game-nav-btn">switch游戏</a>
   <a href="#/zh-cn/games/android" class="game-nav-btn">安卓游戏</a>
 </div>
 
@@ -144,6 +144,10 @@
 ---
 
 ## 最近更新
+
+#### 《宣誓（Avowed）高级版》v2.0.0.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bdfdcea387f0
 
 #### 《幻兽帕鲁（Palworld）》v0.7.2.87654 中文 联机版
 
@@ -342,10 +346,6 @@
 #### 《死亡岛2（Dead Island 2）黄金版》v7.0.0.1243375 全DLC 联机版
 
 夸克：https://pan.quark.cn/s/165489cfa06c
-
-#### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bdfdcea387f0
 
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
