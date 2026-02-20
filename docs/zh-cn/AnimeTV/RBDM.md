@@ -467,7 +467,7 @@
 
 阿里：<https://www.aliyundrive.com/s/BdjMgWXCPVA>
 
-#### 《石纪元》1-3季全 1080P 中字
+#### 《石纪元》（2019-2025）1-4季全 1080P 中字（附漫画）
 
 夸克：https://pan.quark.cn/s/c2b55d462e0f
 
