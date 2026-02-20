@@ -48,14 +48,17 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《仁王3（Nioh 3）豪华版》v1.02.02 全DLC 中文版（新）
-<section class="no-title-h4">
+#### 《灵视异闻 FILE38 伊势人鱼物语》v2026.2.20 中文版
 
-#### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
-#### 《仁王（Nioh）完全版》v1.24.08 中文版
-</section>
+夸克：https://pan.quark.cn/s/9c4c2e8c9432
 
-夸克：https://pan.quark.cn/s/be850af09c63
+#### 《血色郁娇游戏（Menherarium）》v20260219 中文版
+
+夸克：https://pan.quark.cn/s/7eba25bcb2c8
+
+#### 《Seclusa》v1.0.3c 中文版（野生动物摄影师模拟器）
+
+夸克：https://pan.quark.cn/s/9618b8057dbe
 
 #### 《挪威 血誓（NORSE Oath of Blood）》v1.0.0 中文版
 
@@ -85,65 +88,18 @@
 
 夸克：https://pan.quark.cn/s/05aa97b328b7
 
-#### 《星砂岛（StarSand Island）》v1.0.0.6359 中文版
-
-夸克：https://pan.quark.cn/s/4e45aaaed917
-
-#### 《桃源村日志（Halcyon Days at Taoyuan）》v1.0.7 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5550412f7b3a
-
-#### 《Climber Animals Together》Build.17627893 中文版
-
-夸克：https://pan.quark.cn/s/7b4d5b6c21ae
-
-#### 《黑帆赌局（Pirates Gambit）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/292eff905786
-
-#### 《焕然异星（Terraformers）》v1.6.36 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/4034b37223b9
-
-#### 《海绵宝宝 潮汐巨神（SpongeBob SquarePants Titans of the Tide）》v1.3.0.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/1615281c0e5f
-
-#### 《深蓝 吞噬进化（Deep Blue Devour and Evolve）》Build.19802678 中文版
-
-夸克：https://pan.quark.cn/s/9aa88cdf4bb6
-
-#### 《暗黑拍卖（Dark Auction）豪华版》v1.0.6 中文版
-
-夸克：https://pan.quark.cn/s/25d8cdae0c50
-
-#### 《失乡骑士（Banished Knight）》v1.6.9 中文版
-
-夸克：https://pan.quark.cn/s/b7038b41d30a
-
-#### 《劫后公司（After Inc REVIVAL）》v2026.2.3 中文版（末日生存策略游戏）
-
-夸克：https://pan.quark.cn/s/9fd45fb8e46c
-
-#### 《恐惧轮回（Fear The Timeloop）》v1.0.4 中文版（循环死境 恐怖游戏）
-
-夸克：https://pan.quark.cn/s/8a2b8fae94c3
-
-#### 《千禧梦（Millennium Dream）》v1.0.3 中文版
-
-夸克：https://pan.quark.cn/s/05a098fd515c
-
-#### 《索尼克 未知边境（Sonic Frontiers）豪华版》v1.42 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/ebd5f1fb64b1
-
-#### 《移形换位（Shift Happens）》v1.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/31b2ef0bb7aa
-
 ---
 
 ## 最近更新
+
+#### 《仁王3（Nioh 3）豪华版》v1.03.02 全DLC 中文 联机版版（新）
+<section class="no-title-h4">
+
+#### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
+#### 《仁王（Nioh）完全版》v1.24.08 中文版
+</section>
+
+夸克：https://pan.quark.cn/s/be850af09c63
 
 #### 《宣誓（Avowed）高级版》v2.0.0.0 全DLC 中文版
 
@@ -186,82 +142,6 @@
 #### 《我在地府打麻将（Demonic Mahjong）》v0.2.37 中文版
 
 夸克：https://pan.quark.cn/s/d88da55c16aa
-
-#### 《HumanitZ》v1.0XZ 中文 联机版（丧尸生存游戏）
-
-夸克：https://pan.quark.cn/s/0fcd0ac081da
-
-#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.9.1397 中文版
-
-夸克：https://pan.quark.cn/s/51ec3310edca
-
-#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.4 中文 联机版
-
-夸克：https://pan.quark.cn/s/e6b2b4cad601
-
-#### 《人渣（SCUM）豪华版》v1.2.0.6.104952 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e1be35435129
-
-#### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v1.3.0.0 全DLC 中文版
-<section class="no-title-h4">
-
-#### 《丧尸围城2 绝密档案 （Dead Rising 2 Off the Record）》v623585 全DLC 汉化版
-#### 《丧尸围城3 天启版 （Dead Rising 3 Apocalypse Edition）》v1.0.0.6.Up6 全DLC 中文 联机版
-#### 《丧尸围城4（Dead Rising 4）》v1.0.Up4 全DLC 中文 联机版
-</section>
-
-夸克：https://pan.quark.cn/s/8fb30667fff0
-
-#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v3.0.1 中文版
-
-夸克：https://pan.quark.cn/s/c5741f45562c
-
-#### 《绿色地狱（Green Hell）》v2.9.5 中文 联机版
-
-夸克：https://pan.quark.cn/s/2221de711731
-
-#### 《海贼无双4（ONE PIECE PIRATE WARRIORS 4）传奇版》v1.0.8.6 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/044dd2733019
-
-#### 《孤岛危机1 重制版（Crysis Remastered）》v(rc2 82938) 中文版
-<section class="no-title-h4">
-
-#### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
-#### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
-</section>
-
-夸克：https://pan.quark.cn/s/2b6ecf65e866
-
-#### 《狙击精英v2 重制版（Sniper Elite V2 Remastered）》v(SVN 2797 PF 85690) 中文版
-<section class="no-title-h4">
-
-#### 《狙击精英3（Sniper Elite 3）》v1.15a 全DLC 中文 局域网联机版
-#### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版
-</section>
-
-夸克：https://pan.quark.cn/s/50553e18ffa3
-
-迅雷：https://pan.xunlei.com/s/VNuenkkEMO36N9TX9pNUcV45A1?pwd=sheg#
-
-#### 《阿尼玛 回忆之门 1+2 重制版（Anima Gate of Memories I & II Remaster）》v2025.11.22 中文版
-
-夸克：https://pan.quark.cn/s/beb820c220a6
-
-#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.3.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
-
-#### 《模拟山羊3（Goat Simulator 3）》v1.2.0.4.462744 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/0aa281f984e8
-
-#### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/da687434881d
 
 ---
 
@@ -476,6 +356,138 @@
 ---
 
 ## 已有游戏
+
+#### 《HumanitZ》v1.0XZ 中文 联机版（丧尸生存游戏）
+
+夸克：https://pan.quark.cn/s/0fcd0ac081da
+
+#### 《星砂岛（StarSand Island）》v1.0.0.6359 中文版
+
+夸克：https://pan.quark.cn/s/4e45aaaed917
+
+#### 《桃源村日志（Halcyon Days at Taoyuan）》v1.0.7 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5550412f7b3a
+
+#### 《Climber Animals Together》Build.17627893 中文版
+
+夸克：https://pan.quark.cn/s/7b4d5b6c21ae
+
+#### 《黑帆赌局（Pirates Gambit）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/292eff905786
+
+#### 《焕然异星（Terraformers）》v1.6.36 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/4034b37223b9
+
+#### 《海绵宝宝 潮汐巨神（SpongeBob SquarePants Titans of the Tide）》v1.3.0.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/1615281c0e5f
+
+#### 《深蓝 吞噬进化（Deep Blue Devour and Evolve）》Build.19802678 中文版
+
+夸克：https://pan.quark.cn/s/9aa88cdf4bb6
+
+#### 《暗黑拍卖（Dark Auction）豪华版》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/25d8cdae0c50
+
+#### 《失乡骑士（Banished Knight）》v1.6.9 中文版
+
+夸克：https://pan.quark.cn/s/b7038b41d30a
+
+#### 《劫后公司（After Inc REVIVAL）》v2026.2.3 中文版（末日生存策略游戏）
+
+夸克：https://pan.quark.cn/s/9fd45fb8e46c
+
+#### 《恐惧轮回（Fear The Timeloop）》v1.0.4 中文版（循环死境 恐怖游戏）
+
+夸克：https://pan.quark.cn/s/8a2b8fae94c3
+
+#### 《千禧梦（Millennium Dream）》v1.0.3 中文版
+
+夸克：https://pan.quark.cn/s/05a098fd515c
+
+#### 《索尼克 未知边境（Sonic Frontiers）豪华版》v1.42 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ebd5f1fb64b1
+
+#### 《移形换位（Shift Happens）》v1.2 中文 联机版
+
+夸克：https://pan.quark.cn/s/31b2ef0bb7aa
+
+#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.9.1397 中文版
+
+夸克：https://pan.quark.cn/s/51ec3310edca
+
+#### 《幻想生活i 转圈圈的龙和偷取时间的少女（FANTASY LIFE i）豪华版》v2.0.4 中文 联机版
+
+夸克：https://pan.quark.cn/s/e6b2b4cad601
+
+#### 《人渣（SCUM）豪华版》v1.2.0.6.104952 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e1be35435129
+
+#### 《丧尸围城 豪华复刻版（Dead Rising Deluxe Remaster）》v1.3.0.0 全DLC 中文版
+<section class="no-title-h4">
+
+#### 《丧尸围城2 绝密档案 （Dead Rising 2 Off the Record）》v623585 全DLC 汉化版
+#### 《丧尸围城3 天启版 （Dead Rising 3 Apocalypse Edition）》v1.0.0.6.Up6 全DLC 中文 联机版
+#### 《丧尸围城4（Dead Rising 4）》v1.0.Up4 全DLC 中文 联机版
+</section>
+
+夸克：https://pan.quark.cn/s/8fb30667fff0
+
+#### 《闪电十一人 英雄们的胜利之路（INAZUMA ELEVEN Victory Road）豪华版》v3.0.1 中文版
+
+夸克：https://pan.quark.cn/s/c5741f45562c
+
+#### 《绿色地狱（Green Hell）》v2.9.5 中文 联机版
+
+夸克：https://pan.quark.cn/s/2221de711731
+
+#### 《海贼无双4（ONE PIECE PIRATE WARRIORS 4）传奇版》v1.0.8.6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/044dd2733019
+
+#### 《孤岛危机1 重制版（Crysis Remastered）》v(rc2 82938) 中文版
+<section class="no-title-h4">
+
+#### 《孤岛危机2 重制版（Crysis 2 Remastered）》Build.9461303 中文版
+#### 《孤岛危机3 重制版（Crysis 3 Remastered）》v7983.0.0.1 中文版
+</section>
+
+夸克：https://pan.quark.cn/s/2b6ecf65e866
+
+#### 《狙击精英v2 重制版（Sniper Elite V2 Remastered）》v(SVN 2797 PF 85690) 中文版
+<section class="no-title-h4">
+
+#### 《狙击精英3（Sniper Elite 3）》v1.15a 全DLC 中文 局域网联机版
+#### 《狙击精英4（Sniper Elite 4）》v1.5.0 全DLC 中文 联机版
+</section>
+
+夸克：https://pan.quark.cn/s/50553e18ffa3
+
+迅雷：https://pan.xunlei.com/s/VNuenkkEMO36N9TX9pNUcV45A1?pwd=sheg#
+
+#### 《阿尼玛 回忆之门 1+2 重制版（Anima Gate of Memories I & II Remaster）》v2025.11.22 中文版
+
+夸克：https://pan.quark.cn/s/beb820c220a6
+
+#### 《战锤40K：星际战士2（Warhammer 40K Space Marine 2）终极版》v11.3.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
+#### 《模拟山羊3（Goat Simulator 3）》v1.2.0.4.462744 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0aa281f984e8
+
+#### 《咩咩启示录（Cult of the Lamb）》v1.5.19.1031 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/da687434881d
 
 #### 《猎鱼达人（Fish Hunters）》v2026.2.1 中文版
 
