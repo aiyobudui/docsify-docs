@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《专业飞行模拟（X-Plane 12）》v12.4.0-r2 全DLC 中文版（xplane12）
+
+夸克：https://pan.quark.cn/s/383baacb9dc3
+
 #### 《灵视异闻 FILE38 伊势人鱼物语》v2026.2.20 中文版
 
 夸克：https://pan.quark.cn/s/9c4c2e8c9432
@@ -88,6 +92,10 @@
 
 夸克：https://pan.quark.cn/s/05aa97b328b7
 
+#### 《Fingerdance》Build.20257504 中文版（一款让你手指打结的魔性小游戏）
+
+夸克：https://pan.quark.cn/s/344d1c35e7bf
+
 ---
 
 ## 最近更新
@@ -109,6 +117,10 @@
 
 夸克：https://pan.quark.cn/s/346ee452b56d
 
+#### 《暗使 导演剪辑版（Dark Envoy）》v1.9.2.75237 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b2330660a4a8
+
 #### 《幻兽帕鲁（Palworld）》v0.7.2.87654 中文 联机版
 
 夸克：https://pan.quark.cn/s/51d73c209195
@@ -122,6 +134,17 @@
 </section>
 
 夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
+#### 《帝国时代2 决定版（Age of Empires II）》v101.103.38337.0 全DLC 中文 联机版
+<section class="no-title-h4">
+
+#### 《帝国时代3 决定版（Age of Empires III）》v100.15.59076.0 全DLC 中文版（可Radmin LAN联机）
+#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.2.7445.0 全DLC 中文版
+</section>
+
+夸克：https://pan.quark.cn/s/0c0f7a82ce32
+
+迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
 
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 <section class="no-title-h4">
@@ -734,12 +757,6 @@
 
 夸克：https://pan.quark.cn/s/cee0a46d1f94
 
-#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.2.7445.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/6aefdf352960
-
-迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
-
 #### 《火星求生 重制版（Surviving Mars Relaunched）终结版》v1.0.5.385238 全DLC 中文版（附原版非重制版）
 
 夸克：https://pan.quark.cn/s/15e312a44808
@@ -1059,10 +1076,6 @@
 #### 《死亡回归（Returnal）》v1.0-Build.11083317 中文版
 
 夸克：https://pan.quark.cn/s/39a545da9d4d
-
-#### 《帝国时代2 决定版（Age of Empires II）》v162286 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/0c0f7a82ce32
 
 #### 《汽车经销商模拟器（car dealer simulator）》v4791 中文版
 
@@ -2117,10 +2130,6 @@
 #### 《吸血鬼幸存者（Vampire Survivors）》v1.14.104 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e5f5a356a959
-
-#### 《暗使（Dark Envoy）支持者版》v1.9.0.74338 全DLC 中文版（黑暗使者）
-
-夸克：https://pan.quark.cn/s/b2330660a4a8
 
 #### 《死亡重启（Dead Reset）》v1.0.4 中文版（恐怖游戏）
 
@@ -6702,10 +6711,6 @@
 #### 《再见断刀（ZaiJianDuanDao）》v1.06 中文版
 
 夸克：https://pan.quark.cn/s/6d67c904a715
-
-#### 《帝国时代3 决定版》v100.15.59076.0 全DLC 中文版（可Radmin LAN联机）
-
-夸克：https://pan.quark.cn/s/30e9e1b6a06e
 
 #### 《浪漫沙迦 开拓者2 重制版（SaGa Frontier 2 Remastered）》Build.15158654 英文版（中文版后续添加）
 
