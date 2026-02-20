@@ -17,7 +17,7 @@
 
 > [!note|style:callout|label:用户须知|iconVisibility:hidden]
 > 1、**求资源、求更新、链接失效、打不开等问题可以进群@群主 帮你解决**  
-> 2、不会解压看你下载文件夹中的 “[**《新萌必看(解压、游戏问题解答).txt》点击查看**](/zh-cn/games/page)”  
+> 2、不会解压看你下载文件夹中的 “[**《新手必看(解压、游戏问题解答).txt》点击查看**](/zh-cn/games/page)”  
 > 3、怎么启动游戏、中文设置等，看 “**游戏启动说明（必看）.txt**”  
 > 4、游戏版本是指，包含了目前所有更新及DLC。**升级补丁是看当前版本从低到高的升级**  
 > 5、标题里带 **联机** 字样的是一定能**联机**的，出现汉化两个字的是汉化版，中文的是官方中文  
@@ -148,6 +148,10 @@
 #### 《宣誓（Avowed）高级版》v2.0.0.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bdfdcea387f0
+
+#### 《真三国无双 起源（Dynasty Warriors Origins）豪华版》v1.0.1.2 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/346ee452b56d
 
 #### 《幻兽帕鲁（Palworld）》v0.7.2.87654 中文 联机版
 
@@ -284,10 +288,6 @@
 #### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.006 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/79878124f832
-
-#### 《真三国无双 起源（Dynasty Warriors Origins）豪华版》v1.0.1.0 全DLC 中文配音版（新增梦幻四英杰DLC）
-
-夸克：https://pan.quark.cn/s/346ee452b56d
 
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.2 全DLC 中文 联机版
 
