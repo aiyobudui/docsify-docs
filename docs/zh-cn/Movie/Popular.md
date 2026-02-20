@@ -22,6 +22,14 @@
 
 **靠前的是最新添加的**
 
+#### 《疯狂动物城2》（2025）4K HDK 国英配音 内封中字
+
+夸克：https://pan.quark.cn/s/63f36987cd23
+
+#### 《爆水管》（2026）4K（彭于晏）
+
+夸克：https://pan.quark.cn/s/58a6481d3851
+
 #### 《超时空辉夜姬！》(2026）1080P 内封中字
 
 夸克：https://pan.quark.cn/s/65b49066f2ad
@@ -29,6 +37,10 @@
 #### 《刺杀小说家2》（2021-2025）1-2部 4K
 
 夸克：https://pan.quark.cn/s/afc98881755e
+
+####《奇遇》（2025）4K
+
+夸克：https://pan.quark.cn/s/cbaf992d3f83
 
 #### 《电锯人 蕾塞篇 剧场版》（2022-2025）4K 第一季+剧场版（附漫画）
 
@@ -359,6 +371,10 @@
 夸克：https://pan.quark.cn/s/bf231e3936e2
 
 迅雷：https://pan.xunlei.com/s/VO6klntzWONH4-AzNor-thkEA1?pwd=phmh#
+
+#### 《热烈》（2023）1080P 中字
+
+夸克：https://pan.quark.cn/s/df027fe13eb8
 
 #### 《正义联盟：战争世界》（2023）蓝光 1080P 中字
 

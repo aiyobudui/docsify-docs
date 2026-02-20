@@ -127,17 +127,13 @@
 
 迅雷：https://pan.xunlei.com/s/VNl7gMz6RajsUgWO5aRp45iYA1?pwd=8yf3#
 
-#### 《龙族》（2022-2025）4K 第2季 更新中..（附第1季全+小说）
-
-夸克：https://pan.quark.cn/s/9264216d4af2
-
 #### 《苍兰诀》4K 第二季  周五 更新中..（附第一季）
 
 夸克：https://pan.quark.cn/s/587ba6452488
 
 #### 《神墓》（2025）4K 周五 更新中..
 
-夸克：https://pan.quark.cn/s/0cd7fd798afc
+夸克：https://pan.quark.cn/s/e05d6823587c
 
 ---
 
@@ -188,6 +184,18 @@
 ----
 
 ## 暂时完结
+
+#### 《龙族》（2022-2025）4K 1-2季全 （附小说全集）
+
+夸克：https://pan.quark.cn/s/9264216d4af2
+
+#### 《中国奇谭》（2023-2025）4K 1-2季全8
+
+夸克：https://pan.quark.cn/s/def65c5f0740
+
+迅雷：https://pan.xunlei.com/s/VNnmJMPhHNQydZn3tpfCf2gxA1?pwd=64y3#
+
+阿里：<https://www.aliyundrive.com/s/UQ6AcRPaYN4>
 
 #### 《龙魂》（2025）4K 8集全
 
@@ -539,7 +547,7 @@
 
 #### 《镖人》4K 15集全 火到国外的去漫画改编 (附：漫画)
 
-夸克：https://pan.quark.cn/s/c39d2c9cd4ce
+夸克：https://pan.quark.cn/s/8d49546a3e44
 
 迅雷：https://pan.xunlei.com/s/VNnmEeW66ZrPX4la_Jd-xbWJA1?pwd=i6mq#
 
@@ -550,14 +558,6 @@
 夸克：https://pan.quark.cn/s/5de1a6f49ec1
 
 迅雷：https://pan.xunlei.com/s/VNtCjInOxQ4qEFLIT3WEb5VXA1?pwd=bx7y#
-
-#### 《中国奇谭》4K 8集全
-
-夸克：https://pan.quark.cn/s/def65c5f0740
-
-迅雷：https://pan.xunlei.com/s/VNnmJMPhHNQydZn3tpfCf2gxA1?pwd=64y3#
-
-阿里：<https://www.aliyundrive.com/s/UQ6AcRPaYN4>
 
 #### 《秦时明月系列合集》
 

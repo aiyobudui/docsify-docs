@@ -17,17 +17,23 @@
 
 ## 正在更新中的...
 
+#### 《唐宫奇案之青雾风鸣》（2026）4K 24集更新中..
+
+夸克：https://pan.quark.cn/s/40c766e6524a
+
 #### 《生命树》（2026）4K 40集更新中...（胡歌新剧）
 
 夸克：https://pan.quark.cn/s/a97ef3607989
 
 #### 《太平年》（2026）4K 48集更新中...
 
-夸克：https://pan.quark.cn/s/1ac57d97ef84
+夸克：和谐
+
+迅雷：https://pan.xunlei.com/s/VOlUiVM7A0Pv_ye6rtM-jKRpA1?pwd=5fmu#
 
 #### 《年少有为》（2026）4K 24集更新中..
 
-夸克：https://pan.quark.cn/s/9ddda9e6e559
+夸克：https://pan.quark.cn/s/09da3624455d
 
 #### 《有罪之身》（2026）4K 14集全
 
@@ -1942,6 +1948,10 @@
 #### 《橘子红了》（2002）20集全（周迅）
 
 夸克：https://pan.quark.cn/s/6bcde5937972
+
+#### 《胆小鬼》 (2022）4K 16集全
+
+夸克：https://pan.quark.cn/s/429f364f6d75
 
 #### 《今日宜加油》（2023）4K HDR 40集全
 

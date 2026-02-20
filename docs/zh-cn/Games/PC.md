@@ -2,7 +2,7 @@
 
 <div class="game-nav">
   <a href="#/zh-cn/games/pc" class="game-nav-btn">电脑游戏</a>
-  <a href="#/zh-cn/games/switch" class="game-nav-btn">NS模拟器游戏</a>
+  <a href="#/zh-cn/games/switch" class="game-nav-btn">switch游戏</a>
   <a href="#/zh-cn/games/android" class="game-nav-btn">安卓游戏</a>
 </div>
 
@@ -57,9 +57,45 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《挪威 血誓（NORSE Oath of Blood）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/2bfdaf3f94b6
+
+#### 《生灵重塑（REANIMAL）》v2026.2.13 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/fcef91158dcf
+
+#### 《深矿防线（Hold The Mine）》v0.7.28 中文版
+
+夸克：https://pan.quark.cn/s/d8dad51dd731
+
+#### 《Pure Pool Pro》v1605 中文版（8K画质终极台球模拟）
+
+夸克：https://pan.quark.cn/s/599b0a66d277
+
+#### 《喵喵的结合（Mewgenics）》v1.0.20645 汉化版
+
+夸克：https://pan.quark.cn/s/9754a267780a
+
+#### 《环形帝国 2部（Circle Empires）》最新 中文版
+
+夸克：https://pan.quark.cn/s/0abff95600e6
+
+#### 《炼魂之地：神偶剧院（Crisol Theater of Idols）》Build.21866503 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/05aa97b328b7
+
+#### 《星砂岛（StarSand Island）》v1.0.0.6359 中文版
+
+夸克：https://pan.quark.cn/s/4e45aaaed917
+
 #### 《桃源村日志（Halcyon Days at Taoyuan）》v1.0.7 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/5550412f7b3a
+
+#### 《Climber Animals Together》Build.17627893 中文版
+
+夸克：https://pan.quark.cn/s/7b4d5b6c21ae
 
 #### 《黑帆赌局（Pirates Gambit）》v1.0.1 中文版
 
@@ -109,6 +145,24 @@
 
 ## 最近更新
 
+#### 《宣誓（Avowed）高级版》v2.0.0.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/bdfdcea387f0
+
+#### 《幻兽帕鲁（Palworld）》v0.7.2.87654 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《冰汽时代（Frostpunk）年度版》v1.6.1 全DLC 中文版
+<section class="no-title-h4">
+
+#### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.4 全DLC 中文配音版
+</section>
+
+夸克：https://pan.quark.cn/s/d1d00e8c72d5
+
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 <section class="no-title-h4">
 
@@ -120,6 +174,18 @@
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《喵斯快跑（Muse Dash）》v6.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/84aed71b9812
+
+#### 《我在地府打麻将（Demonic Mahjong）》v0.2.37 中文版
+
+夸克：https://pan.quark.cn/s/d88da55c16aa
+
+#### 《HumanitZ》v1.0XZ 中文 联机版（丧尸生存游戏）
+
+夸克：https://pan.quark.cn/s/0fcd0ac081da
 
 #### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.9.1397 中文版
 
@@ -201,12 +267,6 @@
 
 夸克：https://pan.quark.cn/s/550ed16aa7c9
 
-#### 《幻兽帕鲁（Palworld）》v0.7.0.84578 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
-
 #### 《纪元1800（Anno 1800）最终纪念版》v18.4.1412158 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f98896ec6e2c
@@ -265,10 +325,6 @@
 
 夸克：https://pan.quark.cn/s/ac1e0683f780
 
-#### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.3 全DLC 中文配音版（新增DLC：破碎理想国）
-
-夸克：https://pan.quark.cn/s/d1d00e8c72d5
-
 #### 《污痕圣杯：阿瓦隆的陨落（Tainted Grail The Fall of Avalon）》v1.15c 全DLC 中文版（魂游）
 
 夸克：https://pan.quark.cn/s/f45144acd21e
@@ -296,10 +352,6 @@
 #### 《死亡岛2（Dead Island 2）黄金版》v7.0.0.1243375 全DLC 联机版
 
 夸克：https://pan.quark.cn/s/165489cfa06c
-
-#### 《宣誓（Avowed）高级版》v1.5.1.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bdfdcea387f0
 
 #### 《匹诺曹的谎言（Lies of P Overture）豪华版》v1.12.0.0 全DLC 中文版（魂类游戏）
 
@@ -1075,10 +1127,6 @@
 #### 《正当防卫3（Just Cause 3）XXL版》v20251217 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/79965ca81c2b
-
-#### 《喵斯快跑（Muse Dash）》v5.10.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/84aed71b9812
 
 #### 《金垦小镇（Dinkum）》v1.0.7 中文 联机版
 
@@ -2525,10 +2573,6 @@
 夸克：https://pan.quark.cn/s/791c98f684de
 
 迅雷：https://pan.xunlei.com/s/VO6lstxtRMt1AXm3MN5Yz76gA1?pwd=3cek#
-
-#### 《我在地府打麻将（Demonic Mahjong）》v0.2.27 中文版
-
-夸克：https://pan.quark.cn/s/d88da55c16aa
 
 #### 《敲棺盖（Knock on the Coffin Lid）》v1.3.9.0 全DLC 中文版
 
@@ -7717,7 +7761,7 @@
 
 夸克：https://pan.quark.cn/s/4b905417590c
 
-#### 《雄心壮志（Big Ambitions）》v0.7-2850 中文版
+#### 《雄心壮志（Big Ambitions）》v0.9-3233 中文版
 
 夸克：https://pan.quark.cn/s/8df72438a038
 
@@ -8639,10 +8683,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO9OcYC949mmyRCeUUi5-jhBA1?pwd=8q84#
 
-#### 《冰汽时代（Frostpunk）》v1.6.1 全DLC 年度 中文版
-
-夸克：https://pan.quark.cn/s/b9bda69d8aa7
-
 #### 《神州志西游（Journey to the West ）》v1.14.31b 中文版
 
 夸克：https://pan.quark.cn/s/6aa230d05560
@@ -9070,10 +9110,6 @@
 #### 《伽尔兰特：我的冒险故事（Garlant My Story）》v1.0.1.8 中文版
 
 夸克：https://pan.quark.cn/s/a6a974da956d
-
-#### 《HumanitZ》v0.910 中文 联机版（丧尸生存游戏）
-
-夸克：https://pan.quark.cn/s/0fcd0ac081da
 
 #### 《白色情人节：名为学校的迷宫（White Day A Labyrinth Named School）》v1.05 中文版（恐怖游戏）
 
