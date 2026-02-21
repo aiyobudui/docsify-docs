@@ -48,6 +48,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《高能人生2（High On Life 2）》v2026.2.20 全DLC 中文版（FPS游戏）
+
+夸克：https://pan.quark.cn/s/75206d28a97a
+
 #### 《专业飞行模拟（X-Plane 12）》v12.4.0-r2 全DLC 中文版（xplane12）
 
 夸克：https://pan.quark.cn/s/383baacb9dc3
@@ -71,30 +75,6 @@
 #### 《生灵重塑（REANIMAL）》v2026.2.13 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/fcef91158dcf
-
-#### 《深矿防线（Hold The Mine）》v0.7.28 中文版
-
-夸克：https://pan.quark.cn/s/d8dad51dd731
-
-#### 《Pure Pool Pro》v1605 中文版（8K画质终极台球模拟）
-
-夸克：https://pan.quark.cn/s/599b0a66d277
-
-#### 《喵喵的结合（Mewgenics）》v1.0.20645 汉化版
-
-夸克：https://pan.quark.cn/s/9754a267780a
-
-#### 《环形帝国 2部（Circle Empires）》最新 中文版
-
-夸克：https://pan.quark.cn/s/0abff95600e6
-
-#### 《炼魂之地：神偶剧院（Crisol Theater of Idols）》Build.21866503 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/05aa97b328b7
-
-#### 《Fingerdance》Build.20257504 中文版（一款让你手指打结的魔性小游戏）
-
-夸克：https://pan.quark.cn/s/344d1c35e7bf
 
 ---
 
@@ -379,6 +359,30 @@
 ---
 
 ## 已有游戏
+
+#### 《深矿防线（Hold The Mine）》v0.7.28 中文版
+
+夸克：https://pan.quark.cn/s/d8dad51dd731
+
+#### 《Pure Pool Pro》v1605 中文版（8K画质终极台球模拟）
+
+夸克：https://pan.quark.cn/s/599b0a66d277
+
+#### 《喵喵的结合（Mewgenics）》v1.0.20645 汉化版
+
+夸克：https://pan.quark.cn/s/9754a267780a
+
+#### 《环形帝国 2部（Circle Empires）》最新 中文版
+
+夸克：https://pan.quark.cn/s/0abff95600e6
+
+#### 《炼魂之地：神偶剧院（Crisol Theater of Idols）》Build.21866503 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/05aa97b328b7
+
+#### 《Fingerdance》Build.20257504 中文版（一款让你手指打结的魔性小游戏）
+
+夸克：https://pan.quark.cn/s/344d1c35e7bf
 
 #### 《HumanitZ》v1.0XZ 中文 联机版（丧尸生存游戏）
 
