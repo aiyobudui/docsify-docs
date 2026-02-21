@@ -109,6 +109,10 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/3a5af4f32c61
+
 #### 《宣誓（Avowed）高级版》v2.0.0.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bdfdcea387f0
@@ -199,10 +203,6 @@
 #### 《消逝的光芒：困兽（Dying Light The Beast）豪华版》v1.5.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
-#### 《消逝的光芒2：坚守人性 重装上阵版（Dying Light 2）豪华版》v1.26.0 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/3a5af4f32c61
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.8.1.1 全DLC 中文版
 
