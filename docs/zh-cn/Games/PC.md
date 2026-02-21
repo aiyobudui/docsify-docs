@@ -56,6 +56,10 @@
 
 夸克：https://pan.quark.cn/s/383baacb9dc3
 
+#### 《奥术扳机（Arcane Trigger）》v1.009 中文版
+
+夸克：https://pan.quark.cn/s/2dabcbaccbee
+
 #### 《灵视异闻 FILE38 伊势人鱼物语》v2026.2.20 中文版
 
 夸克：https://pan.quark.cn/s/9c4c2e8c9432
