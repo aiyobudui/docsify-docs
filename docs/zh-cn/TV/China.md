@@ -19,7 +19,9 @@
 
 #### 《唐宫奇案之青雾风鸣》（2026）4K 更新中..
 
-夸克：https://pan.quark.cn/s/80fe269515f6
+夸克：https://pan.quark.cn/s/5788d35ddd83
+
+迅雷：https://pan.xunlei.com/s/VOm4gv3dedmhebcQBCQijeMSA1?pwd=64qx#
 
 #### 《生命树》（2026）4K 40集更新中...（胡歌新剧）
 
