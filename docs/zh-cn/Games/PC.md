@@ -107,6 +107,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNyVSlrOau3PZlvGHrm4ODIhA1?pwd=tipt#
 
+#### 《毁灭战士 永恒（DOOM Eternal）豪华版》v2026.2.12 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5d002d83f9e0
+
 #### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/3a5af4f32c61
@@ -7761,10 +7765,6 @@
 #### 《怒之铁拳4（Streets of Rage 4）》v08-s r18163M 中文 联机版
 
 夸克：https://pan.quark.cn/s/0d74a4b7d455
-
-#### 《毁灭战士 永恒（DOOM Eternal）》v6.66 Re2.2 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/5d002d83f9e0
 
 #### 《FIFA23 终结版》v1.0.82.43747 豪华中文配音版（已修复闪退问题）
 
