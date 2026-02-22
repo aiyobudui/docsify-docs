@@ -93,6 +93,16 @@
 
 夸克：https://pan.quark.cn/s/be850af09c63
 
+#### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.007 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/79878124f832
+
+#### 《嗜血印（Bloody Spell）》Build.21842749 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/faa73e068ff5
+
+迅雷：https://pan.xunlei.com/s/VNyVSlrOau3PZlvGHrm4ODIhA1?pwd=tipt#
+
 #### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/3a5af4f32c61
@@ -175,10 +185,6 @@
 #### 《合金装备Δ：食蛇者（Metal Gear Solid Snake Eater）豪华版》v1.2.4 全DLC 中文版（合金装备食蛇者）
 
 夸克：https://pan.quark.cn/s/b47797155789
-
-#### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.006 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/79878124f832
 
 #### 《艾尔登法环 黑夜君临（Elden Ring Nightreign）豪华版》v1.0.3.2 全DLC 中文 联机版
 
@@ -4146,12 +4152,6 @@
 #### 《铁锈风云1949（Grit and Valor - 1949）》v1.4.0 全DLC 中文版（架空二战即时战略）
 
 夸克：https://pan.quark.cn/s/34b3c57db0aa
-
-#### 《嗜血印（Bloody Spell）》v2024.8.19 中文 联机版
-
-夸克：https://pan.quark.cn/s/faa73e068ff5
-
-迅雷：https://pan.xunlei.com/s/VNyVSlrOau3PZlvGHrm4ODIhA1?pwd=tipt#
 
 #### 《Foundation》v1.10.3.12 中文版（中世界建造）
 
