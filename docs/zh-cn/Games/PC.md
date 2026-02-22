@@ -72,6 +72,10 @@
 
 夸克：https://pan.quark.cn/s/9618b8057dbe
 
+#### 《翻天喜地凑大钱（This Aint Even Poker Ya Joker）》v1.0.6a 中文版
+
+夸克：https://pan.quark.cn/s/2e81336beef1
+
 #### 《挪威 血誓（NORSE Oath of Blood）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/2bfdaf3f94b6

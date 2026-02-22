@@ -26,6 +26,10 @@
 
 夸克：https://pan.quark.cn/s/63f36987cd23
 
+#### 《F1 狂飙飞车》（2025）4K HDR 中英配音 内封中字
+
+夸克：https://pan.quark.cn/s/f32cacb5d266
+
 #### 《爆水管》（2026）4K（彭于晏）
 
 夸克：https://pan.quark.cn/s/58a6481d3851
