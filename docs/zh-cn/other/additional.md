@@ -6,13 +6,13 @@
 
 夸克：https://pan.quark.cn/s/69e5b24c6e28
 
+#### 《剪映PC模板250+》
+
+夸克：https://pan.quark.cn/s/0041d9a729d3
+
 #### 《WPS电信定制版 office办公软件》无广告 干净整洁
 
 夸克：https://pan.quark.cn/s/191b33cc52a5
-
-#### 《NBA常规赛 24-25赛季 全场录像回放》NBA回放
-
-夸克：https://pan.quark.cn/s/c6f6e03b4f87
 
 #### 《几何画板》v5.06 汉化中文版（软件）
 
@@ -21,22 +21,6 @@
 #### 《4K壁纸 合集》千张之多-各种类型+动态壁纸（点进去查看有哪些）
 
 夸克：https://pan.quark.cn/s/58cb797576b1
-
-#### 《湾区升明月晚会2025 大湾区电影音乐晚会》2025.9.28
-
-夸克：https://pan.quark.cn/s/48ac1d07dea6
-
-#### 《2024-2025 各电视台+B站 跨年晚会合集》
-
-夸克：https://pan.quark.cn/s/7a4c4041665e
-
-迅雷：https://pan.xunlei.com/s/VNn3R3HkxvfPlaWGTTDzlXS9A1?pwd=eq77#
-
-#### 《2024巴黎奥运会 开幕式》国语+粤语解说
-
-夸克：https://pan.quark.cn/s/48ec634cc715
-
-迅雷：https://pan.xunlei.com/s/VO2mYICaWPydZ0gApO-37ByPA1?pwd=a9jc#
 
 #### 《Adobe全家桶》（2020-2025）Mac + win版
 
@@ -54,10 +38,6 @@
 
 夸克：https://pan.quark.cn/s/7bddfbb37247
 
-#### 《曾仕强》.国学系列合集
-
-<https://www.aliyundrive.com/s/xXbSqRhDDPB>
-
 #### 《华为手机安装谷歌服务框架教程》 (独家自制)
 
 <https://www.aliyundrive.com/s/wJfHJpjaEGL>
@@ -74,6 +54,4 @@
 
 阿里：<https://www.aliyundrive.com/s/KB7ErbbVQ3u>
 
-#### 《剪映PC模板250+》
-
-夸克：https://pan.quark.cn/s/0041d9a729d3
+---

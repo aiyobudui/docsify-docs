@@ -22,8 +22,8 @@
   - [👶 小朋友动画](/zh-cn/animetv/xpy)
 - [📽️ 纪录片](/zh-cn/documentary)
 - [🎤 综艺](/zh-cn/realitytv)
-- [📚 书籍+漫画+有声读物](/zh-cn/books)
-- [🎓 教学课件](/zh-cn/instruction)
+- [📚 书籍、漫画、有声读物](/zh-cn/books)
+- [🎓 视频教程](/zh-cn/instruction)
 - [🎵 音乐+MV](/zh-cn/music)
 - [✨ 其 他](/zh-cn/additional)
 

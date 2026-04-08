@@ -2,16 +2,6 @@
 
 ---
 
-## 更新中...
-
-#### 《大侦探》（2026）第11季 更新中..
-
-夸克：https://pan.quark.cn/s/44879aec27b9
-
----
-
-## 已完结
-
 #### 《声生不息 华流季》（2025）第五季 12期全
 
 夸克：https://pan.quark.cn/s/6059868fc472
@@ -20,12 +10,6 @@
 
 夸克：https://pan.quark.cn/s/2cc6c2ebe701
 
-#### 《喜人奇妙夜2》（2024-2025）1-2季全 4K（附前几季）
-
-夸克：https://pan.quark.cn/s/af683ab8ee2b
-
-迅雷：https://pan.xunlei.com/s/VO7wj_ndEYkY4fupDFP2XPCEA1?pwd=7khq#
-
 #### 《向往的生活》（2025）第八季 全
 
 夸克：https://pan.quark.cn/s/7e597b2cbc4c
@@ -33,10 +17,6 @@
 #### 《王牌对王牌》（2025）第9季全 4K
 
 夸克：https://pan.quark.cn/s/bff50906a20e
-
-#### 《花儿与少年·同心季》（2025）全
-
-夸克：https://pan.quark.cn/s/28dffa02ef5e
 
 #### 《地球超新鲜》（2025）10期全
 
@@ -49,10 +29,6 @@
 #### 《麻花特开心》（2022-2025）1-2季全
 
 夸克：https://pan.quark.cn/s/41427b2d0631
-
-#### 《五十公里桃花坞》（2021-2026）1-5季全
-
-夸克：https://pan.quark.cn/s/5975aab7f665
 
 #### 《喜剧之王单口季》（2024-2025）1-2季全
 
@@ -72,7 +48,7 @@
 
 夸克：https://pan.quark.cn/s/7e3d43db68b1
 
-#### 《奔跑吧2025》第九季 13期全
+#### 《奔跑吧2025》第9、10季
 
 夸克：https://pan.quark.cn/s/1fb4233358fd
 
@@ -80,24 +56,21 @@
 
 夸克：https://pan.quark.cn/s/e01abbeba556
 
-#### 《乘风破浪的姐姐》（2020-2025）1-6季全
-
-夸克：https://pan.quark.cn/s/1f9525734a76
-
 #### 《哈哈哈哈哈》（2020-2025）1-5季全（五哈）
 
 夸克：https://pan.quark.cn/s/532b1958de19
 
 #### 《周游记》（2025）第三季 12期全
+
 夸克：https://pan.quark.cn/s/e3df0defd8b1
 
 #### 《令人心动的offer》1-6季全
 
 夸克：https://pan.quark.cn/s/3a3e50f33052
 
-#### 《一年一度喜剧大赛》（2021-2023）1080P 1-2季全+大王别慌张（国内首屈一指的喜剧小品综艺）
+#### 《一年一度喜剧大赛+喜人奇妙夜+大王别慌张》（2021-2025）4季全
 
-夸克：https://pan.quark.cn/s/f2b37d02b096
+夸克：https://pan.quark.cn/s/af683ab8ee2b
 
 迅雷：https://pan.xunlei.com/s/VO6eDoAGL45t-TzlAMTbqgMNA1?pwd=49cy#
 
@@ -108,10 +81,6 @@
 夸克：https://pan.quark.cn/s/4f388326247b
 
 迅雷：https://pan.xunlei.com/s/VO4VObthUJ5GLndTbtPD7paYA1?pwd=amhb#
-
-#### 《德云社相声》（2020-2024合集）1080P
-
-夸克：https://pan.quark.cn/s/2ec6b0738daf
 
 #### 《全员加速中》（2015-2024）1-4季全
 

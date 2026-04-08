@@ -1,4 +1,4 @@
-# 教学课件
+# 视频教程
 
 ---
 
@@ -22,17 +22,9 @@
 
 夸克：https://pan.quark.cn/s/402f98c97152
 
-#### 《幼儿园儿歌舞蹈教学视频》300部大合集 家有萌娃必备
-
-夸克：https://pan.quark.cn/s/48bb4de4a706
-
 #### 《Adobe系列软件教程》
 
 夸克：https://pan.quark.cn/s/68e2f3fcc562
-
-#### 《猴子博士系列》
-
-夸克：https://pan.quark.cn/s/595cd3634457
 
 #### 《UI设计师入门指南全套课程 从入门到精通》 （视频课程+课件）
 
@@ -42,7 +34,7 @@
 
 夸克：https://pan.quark.cn/s/7cd2911683a1
 
-#### 《书法专题》 [视频教程+资料] 57.8GB
+#### 《书法专题》 视频教程+资料 57.8GB
 
 夸克：https://pan.quark.cn/s/55ab3436d705
 
@@ -81,3 +73,18 @@
 #### 《棋牌类 教程合集》有电子书 + 视频
 
 夸克：https://pan.quark.cn/s/7a69646d0697
+
+#### 《幼儿园儿歌舞蹈教学视频》300部大合集 家有萌娃必备
+
+夸克：https://pan.quark.cn/s/48bb4de4a706
+
+#### 《猴子博士系列》
+
+夸克：https://pan.quark.cn/s/595cd3634457
+
+#### 《曾仕强》国学系列合集 视频
+
+<https://www.aliyundrive.com/s/xXbSqRhDDPB>
+
+
+
