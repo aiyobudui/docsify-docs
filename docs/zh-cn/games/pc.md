@@ -87,6 +87,10 @@
 
 ## 最近更新
 
+#### 《乐高派对（LEGO Party）》v1.4.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/4121807d67f4
+
 #### 《终落之城（All Will Fall）》v1.0.9f1 中文版
 
 夸克：https://pan.quark.cn/s/9d2ee6bd80e6
@@ -3603,10 +3607,6 @@
 #### 《皇上，上朝了（Its time your majesty）》v1.0.4a 中文版（肉鸽卡牌）
 
 夸克：https://pan.quark.cn/s/9c9a108bef42
-
-#### 《乐高派对（LEGO Party）》v2025.9.30 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/4121807d67f4
 
 #### 《好莱坞动物（Hollywood Animal）》v0.8.51 中文版
 
