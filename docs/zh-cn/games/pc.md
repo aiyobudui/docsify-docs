@@ -49,7 +49,7 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《生化危机9（Resident Evil Requiem）豪华版》Build.22472737 全DLC 中文配音版（非虚拟化版本）**（新）**
+#### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.22154679 全DLC 中文版
 #### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
@@ -102,6 +102,11 @@
 
 迅雷：https://pan.xunlei.com/s/VOpfaGNHj72wcc_pbP_YjnKQA1?pwd=dc7h#
 
+#### 《密室逃脱模拟器（Escape Simulator）》v36237r 中文 联机版
+#### 《密室逃脱模拟器2（Escape Simulator 2）》v17073r 中文 联机版
+
+夸克：https://pan.quark.cn/s/7cfd55cbc9c2
+
 ---
 
 ## 最近更新
@@ -111,6 +116,12 @@
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《星空（Starfield）高级版》v1.16.236.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5758eeac553a
+
+迅雷：https://pan.xunlei.com/s/VNy6HXv_Pqnb2KGS1cQqAoxYA1?pwd=ujx3#
 
 #### 《灵魂面甲（Soulmask）》v1.0.0 全DLC 中文 联机版
 
@@ -125,6 +136,12 @@
 夸克：https://pan.quark.cn/s/eeaab7260f01
 
 迅雷：https://pan.xunlei.com/s/VNxDGZNbhRNwmF3UM72ZSVWjA1?pwd=vh32#
+
+#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.58.1.4s 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/9c1147b7ac79
+
+迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
 
 #### 《乐高派对（LEGO Party）》v1.4.3 全DLC 中文版
 
@@ -155,27 +172,6 @@
 夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 迅雷：https://pan.xunlei.com/s/VOpfA6L6tvULfjpoL9vVF8MWA1?pwd=3muq#
-
-#### 《死亡空间 重制版（Dead Space Remake）豪华版》Build.10602756 中文版（有中文配音）
-#### 《死亡空间（dead space）》v1.1-1.1 全DLC 汉化版
-#### 《死亡空间2（dead space 2）》v1.0.0.222 全DLC 汉化版
-#### 《死亡空间3（dead space 3）》v1.0.0.1 全DLC 汉化版
-
-夸克：https://pan.quark.cn/s/095d1c334b71
-
-#### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v20260209 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7814edba170c
-
-#### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.4.23556 中文版（附淬火MOD+地图包+秘籍）
-#### 《魔兽争霸2：重制版（Warcraft II Remastered）》v2025.2.26 中文版
-#### 《魔兽争霸1：重制版（Warcraft I Remastered）》v2025.2.26 中文版
-
-夸克：https://pan.quark.cn/s/cb54f62be869
-
-#### 《魔咒之地（Forspoken）豪华版》v1.23 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e52b2c3ce2d1
 
 ---
 
@@ -334,6 +330,27 @@
 ---
 
 ## 已有游戏
+
+#### 《死亡空间 重制版（Dead Space Remake）豪华版》Build.10602756 中文版（有中文配音）
+#### 《死亡空间（dead space）》v1.1-1.1 全DLC 汉化版
+#### 《死亡空间2（dead space 2）》v1.0.0.222 全DLC 汉化版
+#### 《死亡空间3（dead space 3）》v1.0.0.1 全DLC 汉化版
+
+夸克：https://pan.quark.cn/s/095d1c334b71
+
+#### 《时间旅者：重生曙光（Cronos The New Dawn）豪华版》v20260209 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7814edba170c
+
+#### 《魔兽争霸3：重制版（Warcraft III Reforged）》v2.0.4.23556 中文版（附淬火MOD+地图包+秘籍）
+#### 《魔兽争霸2：重制版（Warcraft II Remastered）》v2025.2.26 中文版
+#### 《魔兽争霸1：重制版（Warcraft I Remastered）》v2025.2.26 中文版
+
+夸克：https://pan.quark.cn/s/cb54f62be869
+
+#### 《魔咒之地（Forspoken）豪华版》v1.23 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e52b2c3ce2d1
 
 #### 《放血医师（BLOODLETTER）》v0.1.016 中文版
 
@@ -1821,12 +1838,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNqvsi0w9dh83vEbcVF4eiSEA1?pwd=rbc9#
 
-#### 《欧洲卡车模拟2（Euro Truck Simulator 2）豪华版》v1.57.2.7s 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/9c1147b7ac79
-
-迅雷：https://pan.xunlei.com/s/VNudY1SUMO36N9TX9pNUGRgXA1?pwd=28c7#
-
 #### 《动物收容所2（Animal Shelter 2）》v1.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/1057e0a53bfd
@@ -2504,10 +2515,6 @@
 #### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46891 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/208c46eae054
-
-#### 《密室逃脱模拟器2（Escape Simulator 2）》v17073r 中文 联机版
-
-夸克：https://pan.quark.cn/s/7cfd55cbc9c2
 
 #### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
 
@@ -5012,12 +5019,6 @@
 #### 《北极汽车旅馆模拟器（Arctic Motel Simulator）》v3.0.2 中文版
 
 夸克：https://pan.quark.cn/s/c3954adb4a0f
-
-#### 《星空（Starfield）高级版》v1.15.222.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5758eeac553a
-
-迅雷：https://pan.xunlei.com/s/VNy6HXv_Pqnb2KGS1cQqAoxYA1?pwd=ujx3#
 
 #### 《上古卷轴4 湮没 重制版（The Elder Scrolls 4 Oblivion Remastered）》v1.512.105.0 全DLC 豪华中文版
 
