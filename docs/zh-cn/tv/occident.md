@@ -24,15 +24,21 @@
 
 ## 正在更新中的..
 
-#### 《辐射》（2024-2025）4K HDR 1-2季全 （游戏改编）
+#### 《黑袍纠察队》（2019-2026）4K HDR 第五季更新中..（附1-4季+劣迹）
 
-夸克：https://pan.quark.cn/s/cbaee595c3ee
+夸克：https://pan.quark.cn/s/a233939dce9a
 
-迅雷：https://pan.xunlei.com/s/VNvC8Ux_zbOcgUvTEI_xp41lA1?pwd=nnyu#
+迅雷：https://pan.xunlei.com/s/VNlUWpDtVO9u4b8BblSnaltZA1?pwd=xkq9#
+
+阿里：<https://www.aliyundrive.com/s/yYcpkVP3aYw>
 
 #### 《老练律师》（2024-2025）1080P 中英字幕 1-2季全
 
 夸克：https://pan.quark.cn/s/b5ae8073db91
+
+---
+
+## 已完结的
 
 #### 《海贼王真人版》（2023-2026）4K HDR 1-2季全 英日音轨 内封中文
 
@@ -42,9 +48,11 @@
 
 阿里：<https://www.aliyundrive.com/s/FzjisaV6LfE>
 
----
+#### 《辐射》（2024-2025）4K HDR 1-2季全（游戏改编）
 
-## 已完结的
+夸克：https://pan.quark.cn/s/cbaee595c3ee
+
+迅雷：https://pan.xunlei.com/s/VNvC8Ux_zbOcgUvTEI_xp41lA1?pwd=nnyu#
 
 ##### 《吸血鬼日记》（2009-2016）1-8季全 蓝光1080P 中英字幕
 
@@ -393,14 +401,6 @@
 夸克：https://pan.quark.cn/s/995b0d5babc4
 
 迅雷：https://pan.xunlei.com/s/VO3MURCjbskMoFLKFfOM3_UYA1?pwd=vg49#
-
-#### 《黑袍纠察队》（2019-2024）4K HDR 1-4季全+劣迹 中字 8集全
-
-夸克：https://pan.quark.cn/s/a233939dce9a
-
-迅雷：https://pan.xunlei.com/s/VNlUWpDtVO9u4b8BblSnaltZA1?pwd=xkq9#
-
-阿里：<https://www.aliyundrive.com/s/yYcpkVP3aYw>
 
 #### 《反恐特警组》（2003-2024）1-7季全 1080P 中英字幕
 

@@ -17,17 +17,23 @@
 
 ## 正在更新中的...
 
+#### 《白日提灯》（2026）4K 40集更新中..
+
+夸克：https://pan.quark.cn/s/02c8be03344f
+
+迅雷：https://pan.xunlei.com/s/VOpmoBe--fMGjjr3WgK2N67lA1?pwd=7iac#
+
 #### 《月鳞绮纪》（2026）4K 29集更新中..
 
 夸克：https://pan.quark.cn/s/0675691ab11f
 
 迅雷：https://pan.xunlei.com/s/VOpCiLRf9H9R7zKE8D97rxoNA1?pwd=xeuh#
 
-#### 《你好1983》（2026）4K 36集全
+#### 《钢铁森林》（2026）4K 28集更新中..
 
-夸克：https://pan.quark.cn/s/f966bdc4059c
+夸克：https://pan.quark.cn/s/039ff8e9a442
 
-迅雷：https://pan.xunlei.com/s/VOoGKy2xj4usb2T6EYVU5uEYA1?pwd=wb62#
+迅雷：https://pan.xunlei.com/s/VOpmlFUj0IvlWDJ8gSGQ-00NA1?pwd=iyst#
 
 #### 《逐玉》（2026）4K 40集全
 
@@ -35,11 +41,37 @@
 
 迅雷：https://pan.xunlei.com/s/VOnPkzWFrwgR_qCbkCBd5wyOA1?pwd=hnnv
 
+---
+
+## 已完结的...
+
+#### 《除恶》（2026）4K 60帧 16集全
+
+夸克：秒和谐，不让分享
+
+迅雷：https://pan.xunlei.com/s/VOpmlhoPAxXVDI_iktjC28Z7A1?pwd=zbsp#
+
+#### 《生命树》（2026）4K 40集全（胡歌新剧）
+
+夸克：https://pan.quark.cn/s/a97ef3607989
+
+#### 《太平年》（2026）4K 48集全
+
+夸克：https://pan.quark.cn/s/0abcfa8cd8a8
+
+迅雷：https://pan.xunlei.com/s/VOlUiVM7A0Pv_ye6rtM-jKRpA1?pwd=5fmu#
+
 #### 《好好的时光》（2026）4K 40集全
 
 夸克：https://pan.quark.cn/s/00d2845f6eb1
 
 迅雷：https://pan.xunlei.com/s/VOoXli7bI8XO1LJ7bAItNJZfA1?pwd=ycc8#
+
+#### 《你好1983》（2026）4K 36集全
+
+夸克：https://pan.quark.cn/s/f966bdc4059c
+
+迅雷：https://pan.xunlei.com/s/VOoGKy2xj4usb2T6EYVU5uEYA1?pwd=wb62#
 
 #### 《江湖夜雨十年灯》（2026）4K 37集全
 
@@ -55,7 +87,7 @@
 
 #### 《唐宫奇案之青雾风鸣》（2026）4K 34集全
 
-夸克：https://pan.quark.cn/s/5788d35ddd83
+夸克：https://pan.quark.cn/s/4b79f6604abc
 
 迅雷：https://pan.xunlei.com/s/VOm4gv3dedmhebcQBCQijeMSA1?pwd=64qx#
 
@@ -65,28 +97,9 @@
 
 迅雷：https://pan.xunlei.com/s/VOmZyRvZi_ArXorEpBBGrybqA1?pwd=7rqd#
 
-#### 《生命树》（2026）4K 40集全（胡歌新剧）
-
-夸克：https://pan.quark.cn/s/a97ef3607989
-
-#### 《太平年》（2026）4K 48集全
-
-夸克：https://pan.quark.cn/s/0abcfa8cd8a8
-
-迅雷：https://pan.xunlei.com/s/VOlUiVM7A0Pv_ye6rtM-jKRpA1?pwd=5fmu#
-
 #### 《年少有为》（2026）4K 24集全
 
 夸克：https://pan.quark.cn/s/09da3624455d
-
-#### 《除恶》（2026）4K 60帧 16集全
-
-夸克：https://pan.quark.cn/s/7429f76f1860
-
----
-
-## 已完结的...
-
 
 #### 《有罪之身》（2026）4K 14集全
 

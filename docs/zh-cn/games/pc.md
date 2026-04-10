@@ -49,6 +49,25 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《生化危机9（Resident Evil Requiem）豪华版》Build.22472737 全DLC 中文配音版（非虚拟化版本）**（新）**
+#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
+#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.22154679 全DLC 中文版
+#### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
+#### 《生化危机8 村庄（Resident Evil Village）黄金版》v1.2.3.9 全DLC 中文配音版**（更新）**
+#### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/744a500cb67e
+
+迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《达尔文悖论（Darwins Paradox）》v1.0.1.24747 中文版
+
+夸克：https://pan.quark.cn/s/ee80663bd859
+
+#### 《三角战略（Triangle Strategy）豪华版》v1.1.0 中文版
+
+夸克：https://pan.quark.cn/s/d7b1c65f28c2
+
 #### 《卓乐新声（People of Note）》v2025.4.8 中文版
 
 夸克：https://pan.quark.cn/s/29e279c6c5a9
@@ -86,6 +105,26 @@
 ---
 
 ## 最近更新
+
+#### 《幻兽帕鲁（Palworld）》v0.7.3.90464 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《灵魂面甲（Soulmask）》v1.0.0 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/17b6423c5409
+
+#### 《地狱即我们（Hell is Us）豪华版》v1.6.47.48410 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/656ab3363cbd
+
+#### 《超时空方舟（Chrono）Ark）豪华版》v1.2.6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/eeaab7260f01
+
+迅雷：https://pan.xunlei.com/s/VNxDGZNbhRNwmF3UM72ZSVWjA1?pwd=vh32#
 
 #### 《乐高派对（LEGO Party）》v1.4.3 全DLC 中文版
 
@@ -170,12 +209,6 @@
 #### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.007 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/79878124f832
-
-#### 《幻兽帕鲁（Palworld）》v0.7.2.87654 中文 联机版
-
-夸克：https://pan.quark.cn/s/51d73c209195
-
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《女神异闻录5 皇家版（Persona 5 Royal）》v1.04 中文版（PC版非模拟器版）
 
@@ -333,16 +366,6 @@
 夸克：https://pan.quark.cn/s/41c184b7bd72
 
 迅雷：https://pan.xunlei.com/s/VOpBI7QtZ6grVZoY6gPF8HWcA1?pwd=8s6y#
-
-#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
-#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.22154679 全DLC 中文版
-#### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
-#### 《生化危机8 村庄（Resident Evil Village）黄金版》v1.2.3.9 全DLC 中文配音版**（更新）**
-#### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/744a500cb67e
-
-迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
 #### 《雨世界（Rain World）豪华版》v1.11.7 全DLC 中文版
 
@@ -701,10 +724,6 @@
 夸克：https://pan.quark.cn/s/c03100cab5c9
 
 迅雷：https://pan.xunlei.com/s/VOnbCUDzGwij2Hva-hbFv4rqA1?pwd=tsqh
-
-#### 《生化危机9》虚拟机绕过D保护游玩补丁（附单独 2DLC 豪华版DLC 和 格蕾丝服饰：天启dlc）
-
-夸克：https://pan.quark.cn/s/bd8babd4aaf1
 
 #### 《TheoTown》v1.12.47b 中文版（建设和管理你的梦想城市）
 
@@ -1764,15 +1783,11 @@
 
 夸克：https://pan.quark.cn/s/c0f971484682
 
-#### 《地狱即我们（Hell is Us）豪华版》v1.5.40.44840 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/656ab3363cbd
-
 #### 《团战经理（Teamfight Manager）》v1.5.2 中文版
 
 夸克：https://pan.quark.cn/s/ab47f42816f6
 
-#### 《Big Hops》v21207 中文版（勇敢小青蛙跳跃平台冒险）
+#### 《大跳蛙（Big Hops）》v21207 中文版（勇敢小青蛙跳跃平台冒险）
 
 夸克：https://pan.quark.cn/s/9784f2887b37
 
@@ -2633,10 +2648,6 @@
 #### 《风中行者（Windblown）》v0.7.1.9 中文 联机版
 
 夸克：https://pan.quark.cn/s/d0bc0bde2671
-
-#### 《灵魂面甲（Soulmask）》v0.5.15 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/17b6423c5409
 
 #### 《最远的边陲（Farthest Frontier）》v1.0.4 中文版
 
@@ -8914,12 +8925,6 @@
 #### 《机场：模拟地勤（Airport Sim）》v1.4.2 全DLC 豪华中文版
 
 夸克：https://pan.quark.cn/s/6eff3d188d1a
-
-#### 《超时空方舟（Chrono）Ark）》v1.1a 全DLC 豪华中文版
-
-夸克：https://pan.quark.cn/s/eeaab7260f01
-
-迅雷：https://pan.xunlei.com/s/VNxDGZNbhRNwmF3UM72ZSVWjA1?pwd=vh32#
 
 #### 《巨人杀手：赫尔大军（Jotunnslayer Hordes of Hel Playtest）》v0.0.74583 汉化中文版
 
