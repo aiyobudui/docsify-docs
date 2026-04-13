@@ -21,6 +21,9 @@
 
 **靠前的是最新添加的**
 
+#### 《追恶》 (2026）4K HDR
+夸克：https://pan.quark.cn/s/c57d33ee5ff1
+
 #### 《浴血黑帮 不朽传奇》（2026）4K 内封中字（附美剧1-6季全）
 
 夸克：https://pan.quark.cn/s/e1c8aaff9bc7

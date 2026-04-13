@@ -60,6 +60,42 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《异变金属（Morbid Metal）》v19988 中文版
+
+夸克：https://pan.quark.cn/s/c48de0ceb715
+
+#### 《破晓（Dawn Break）》v2026.4.10 中文版
+
+夸克：https://pan.quark.cn/s/f7dae3181778
+
+#### 《神经鹅（Tingus Goose）》v1.2.1 中文版
+
+夸克：https://pan.quark.cn/s/491cd95adcaf
+
+#### 《铁路调度模拟器（Rail Route）》v2.3.24 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7efb5e478314
+
+#### 《灭绝之日（Extinction Day）》v1.0.290.714 中文版
+
+夸克：https://pan.quark.cn/s/05cae89a60b5
+
+#### 《龙与地下城：无冬之夜2 增强版》v2026.3.31 汉化版
+
+夸克：https://pan.quark.cn/s/4ed4e03b2a43
+
+#### 《哥谭骑士（Gotham Knights）豪华版》v2026.2.27 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3b6d91696349
+
+#### 《灰烬之国（Cinderia）》v0.6.4 中文版
+
+夸克：https://pan.quark.cn/s/42b5d468a537
+
+#### 《格里米斯工匠（The Artisan of Glimmith）》v2026.4.5 中文版
+
+夸克：https://pan.quark.cn/s/652c377a01c3
+
 #### 《达尔文悖论（Darwins Paradox）》v1.0.1.24747 中文版
 
 夸克：https://pan.quark.cn/s/ee80663bd859
@@ -107,6 +143,16 @@
 
 夸克：https://pan.quark.cn/s/7cfd55cbc9c2
 
+#### 《实况足球2021（eFootball PES 2021）》v1.01.00 中文版
+#### 《实况足球2018（Pro Evolution Soccer 2018）》v1.01.02 中文版
+#### 《实况足球2017（Pro Evolution Soccer 2017）》v1.01.00 中文版
+
+夸克：https://pan.quark.cn/s/072c908dc3e6
+
+#### 《幽灵追踪（Ghostland Yard）》v1.2.0.9 中文版
+
+夸克：https://pan.quark.cn/s/2f08fe0ada09
+
 ---
 
 ## 最近更新
@@ -116,6 +162,29 @@
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《丧尸末世：地底全是财，挖宝造炮台（The Spotter Dig or Die）》v1.0.4.3 中文版
+
+夸克：https://pan.quark.cn/s/47353b2d2fa3
+
+#### 《无限机兵（AI Limit）豪华版》v1.2.002 全DLC 中文配音版
+
+夸克：https://pan.quark.cn/s/f00ce9fcc5b4
+
+#### 《冲就完事模拟器2（PowerWash Simulator 2）》v1.2.1.167 全DLC 中文版
+#### 《冲就完事模拟器（PowerWash Simulator）》v1.11.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3f523ff18fd5
+
+#### 《潜渊症（Barotrauma）》v1.12.6.2 全DLC 中文 联机版（潜艇模拟游戏）
+
+夸克：https://pan.quark.cn/s/33b94fd8f90d
+
+#### 《土豆兄弟（Brotato）》v1.1.14.6 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5c72c5f33cf5
+
+迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
 
 #### 《星空（Starfield）高级版》v1.16.236.0 全DLC 中文版
 
@@ -172,6 +241,10 @@
 夸克：https://pan.quark.cn/s/ebcd2a9f4907
 
 迅雷：https://pan.xunlei.com/s/VOpfA6L6tvULfjpoL9vVF8MWA1?pwd=3muq#
+
+#### 《夺宝奇兵：古老之圈（Indiana Jones and the Great Circle）高级版》v1.0.13.0 全DLC 中文版（显卡需支持光追）
+
+夸克：https://pan.quark.cn/s/e037632f1250
 
 ---
 
@@ -788,10 +861,6 @@
 #### 《浪人崛起（Rise of the Ronin）》v1.09.0.5 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/810a70e3cf63
-
-#### 《夺宝奇兵：古老之圈（Indiana Jones and the Great Circle）高级版》v1.0.9.0 全DLC 中文版（显卡需支持光追）
-
-夸克：https://pan.quark.cn/s/e037632f1250
 
 #### 《卡牌修仙传（Card Cultivation）》v2.1.0.8 中文版
 
@@ -3044,10 +3113,6 @@
 
 夸克：https://pan.quark.cn/s/e65f0083d695
 
-#### 《冲就完事模拟器2（PowerWash Simulator 2）》V1.1.0.59 中文版（附第一部 全DLC）
-
-夸克：https://pan.quark.cn/s/3f523ff18fd5
-
 #### 《核处逢生（MISERY）》v2025.10.23 中文版
 
 夸克：https://pan.quark.cn/s/91d0f14892d7
@@ -3446,12 +3511,6 @@
 
 夸克：https://pan.quark.cn/s/d089a142e65d
 
-#### 《土豆兄弟（Brotato）》v1.1.12.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5c72c5f33cf5
-
-迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
-
 #### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8a27527d8863
@@ -3705,10 +3764,6 @@
 #### 《克苏鲁信徒（Worshippers of Cthulhu）》v1.0.0.3 中文版（新增DLC）
 
 夸克：https://pan.quark.cn/s/423b6f9a51ec
-
-#### 《潜渊症（Barotrauma）》v1.10.6.0 中文 联机版（潜艇模拟游戏）
-
-夸克：https://pan.quark.cn/s/33b94fd8f90d
 
 #### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.62P 全DLC 中文版
 
@@ -4885,10 +4940,6 @@
 #### 《传说酒馆（Ale&Tale Tavern）》v1.5.10 中文 联机版
 
 夸克：https://pan.quark.cn/s/4959a53d6393
-
-#### 《无限机兵（AI Limit）》v1.1.001 全DLC 中文配音 豪华版
-
-夸克：https://pan.quark.cn/s/f00ce9fcc5b4
 
 #### 《鬼屋魔影（Alone in the Dark）豪华版》v1.05b 全DLC 中文版
 
@@ -10142,10 +10193,6 @@
 #### 《加密（Cypher ）》最新 英文版
 
 夸克：https://pan.quark.cn/s/9aca0e2b1ab2
-
-#### 《实况足球2021（eFootball PES 2021 ）》v1.01.00 中文版
-
-夸克：https://pan.quark.cn/s/072c908dc3e6
 
 #### 《百英雄传（Eiyuden Chronicle：Hundred Heroes ）》v1.0.5.p27.1 全DLC 中文版
 

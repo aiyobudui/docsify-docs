@@ -26,7 +26,7 @@
 
 #### 《黑袍纠察队》（2019-2026）4K HDR 第五季更新中..（附1-4季+劣迹）
 
-夸克：https://pan.quark.cn/s/a233939dce9a
+夸克：https://pan.quark.cn/s/b83fb81c7793
 
 迅雷：https://pan.xunlei.com/s/VNlUWpDtVO9u4b8BblSnaltZA1?pwd=xkq9#
 
@@ -906,7 +906,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNoB85TvUTvTOpT7tt7Iv8VPA1?pwd=xj24#
 
-#### 《纸钞屋》（2017-2021）1-5季全 1080P.西班牙原版+韩版.内置中英字幕+外挂字幕
+#### 《纸钞屋》（2017-2021）1-5季全+纸钞屋：柏林 1080P.西班牙原版+韩版.内置中英字幕+外挂字幕
 
 夸克：https://pan.quark.cn/s/42e4475f2a3e
 
