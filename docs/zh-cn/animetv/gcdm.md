@@ -48,7 +48,7 @@
 
 #### 《百炼成神》（2022-2026）4K 第3季 周二 更新中 （附1-2季全）
 
-夸克：https://pan.quark.cn/s/843dfbaa3338
+夸克：https://pan.quark.cn/s/752adf4f755b
 
 迅雷：https://pan.xunlei.com/s/VNyGBGY-qwfi6xY7eyt6uu69A1?pwd=nbdd#
 
@@ -165,6 +165,10 @@
 ---
 
 ## 暂时完结
+
+#### 《天相》（2026）4K 26集全
+
+夸克：https://pan.quark.cn/s/275813222298
 
 #### 《仙王的日常生活》（2020-2025）4K 1-5季全
 

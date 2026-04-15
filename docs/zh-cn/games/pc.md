@@ -126,12 +126,6 @@
 
 迅雷：https://pan.xunlei.com/s/VOpf37vS6uBokXSNjlhrjS-SA1?pwd=d8pq#
 
-#### 《哀鸿：城破十日记（The Weeping Swan Ten Days of the City's Fall）》v1.3 中文版
-
-夸克：https://pan.quark.cn/s/b0064155806f
-
-迅雷：https://pan.xunlei.com/s/VOpaHgPXzAX-ZKyhrqkFKKsgA1?pwd=x5jj#
-
 #### 《失忆症：地堡（Amnesia The Bunker）》v1.9 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/4a0e62e0b32f
@@ -153,6 +147,10 @@
 
 夸克：https://pan.quark.cn/s/2f08fe0ada09
 
+#### 《GTFO》v1.0-34853 中文 联机版
+
+夸克：https://pan.quark.cn/s/4b167f0370f4
+
 ---
 
 ## 最近更新
@@ -162,6 +160,32 @@
 夸克：https://pan.quark.cn/s/51d73c209195
 
 迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+
+#### 《哀鸿：城破十日记（The Weeping Swan Ten Days of the City's Fall）》v1.5 中文版
+
+夸克：https://pan.quark.cn/s/b0064155806f
+
+迅雷：https://pan.xunlei.com/s/VOpaHgPXzAX-ZKyhrqkFKKsgA1?pwd=x5jj#
+
+#### 《杀戮尖塔2（Slay the Spire 2）》v0.103.0 中文 联机版（附第1部+安卓版）
+
+夸克：https://pan.quark.cn/s/4a575dc211fc
+
+迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
+
+#### 《致命公司（Lethal Company）》v81-v73-v69-v56-v50-v49-v47-v45.2 汉化 联机版
+
+夸克：https://pan.quark.cn/s/6773317c1364
+
+#### 《王之凝视（The King is Watching）》v1.2.3 全DLC 中文版（塔防游戏）
+
+夸克：https://pan.quark.cn/s/b2a5af81441b
+
+#### 《边缘世界（Rimworld）》v1.6.4759a 全DLC 中文 局域网联机版（附447个MOD）环世界
+
+夸克：https://pan.quark.cn/s/1ee10b6b0177
+
+迅雷：https://pan.xunlei.com/s/VNy6VAleusHrQf20JqcESyoTA1?pwd=q3kq#
 
 #### 《丧尸末世：地底全是财，挖宝造炮台（The Spotter Dig or Die）》v1.0.4.3 中文版
 
@@ -583,12 +607,6 @@
 #### 《龙的传人 孤旅（Dragonkin The Banished）》v1.3.66.54113 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/8d2b0b6ea1be
-
-#### 《杀戮尖塔2（Slay the Spire 2）》v0.100.0b 中文 联机版（附第1部+安卓版）
-
-夸克：https://pan.quark.cn/s/4a575dc211fc
-
-迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
 
 #### 《龙胤立志传》v1.0.0F7.5 全DLC 中文版
 
@@ -1159,12 +1177,6 @@
 
 夸克：https://pan.quark.cn/s/2ce76d085b7c
 
-#### 《边缘世界（Rimworld）》v1.6.4739a 全DLC 中文 联机版（附447个MOD）环世界
-
-夸克：https://pan.quark.cn/s/1ee10b6b0177
-
-迅雷：https://pan.xunlei.com/s/VNy6VAleusHrQf20JqcESyoTA1?pwd=q3kq#
-
 #### 《零世代（Generation Zero）》v2921874 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/bf2664f019fa
@@ -1606,6 +1618,7 @@
 
 夸克：https://pan.quark.cn/s/7f11084ef53b
 
+#### 《怪物火车（Monster Train）》v12924 全DLC 中文 联机版
 #### 《怪物火车2（Monster Train 2）》v16171 全DLC 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/638c33888d8a
@@ -2793,10 +2806,6 @@
 
 夸克：https://pan.quark.cn/s/aacf3de36abb
 
-#### 《致命公司（Lethal Company）》v73-v69-v56-v50-v49-v47-v45.2 汉化 联机版
-
-夸克：https://pan.quark.cn/s/6773317c1364
-
 #### 《受折磨的灵魂2（Tormented Souls 2）豪华版》v1.3.0 全DLC 中文版（生存恐怖游戏）
 
 夸克：https://pan.quark.cn/s/9a82f315c342
@@ -3716,10 +3725,6 @@
 #### 《漂泊牧歌（The Wandering Village）》v1.1.3 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/7e5c4273f5a7
-
-#### 《王之凝视（The King is Watching）》v1.0.6 中文版（塔防游戏）
-
-夸克：https://pan.quark.cn/s/b2a5af81441b
 
 #### 《Keep Driving》v1.3.1.0с 中文版（公路旅行游戏）
 
@@ -10345,10 +10350,6 @@
 #### 《小骨：英雄杀手(Skul：The Hero Slayer)》v1.09.02.3a3 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/984f2c694aa5
-
-#### 《怪物火车（Monster Train）》v12923 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/73363aa63255
 
 #### 《挺进地牢（Enter the Gungeon）》v2.1.9 全DLC 中文版
 
