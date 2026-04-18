@@ -26,7 +26,7 @@
 
 #### 《黑袍纠察队》（2019-2026）4K HDR 第五季更新中..（附1-4季+劣迹）
 
-夸克：https://pan.quark.cn/s/b83fb81c7793
+夸克：https://pan.quark.cn/s/e6b8ea1fe73c
 
 迅雷：https://pan.xunlei.com/s/VNlUWpDtVO9u4b8BblSnaltZA1?pwd=xkq9#
 
@@ -39,6 +39,12 @@
 ---
 
 ## 已完结的
+
+#### 《七王国的骑士》（2026）第一季 4K 6集全（权力的游戏衍生剧）
+
+夸克：https://pan.quark.cn/s/34e9182307fa
+
+迅雷：https://pan.xunlei.com/s/VOqVSWKycGSO2F3rFlvSD3uQA1?pwd=wi2z#
 
 #### 《海贼王真人版》（2023-2026）4K HDR 1-2季全 英日音轨 内封中文
 
@@ -568,7 +574,7 @@
 
 #### 《万物生灵》（2020-2023）1080P 1-4集全 中英字幕（豆瓣9.5高分英剧）
 
-夸克：https://pan.quark.cn/s/81f7ecdeeef3
+夸克：https://pan.quark.cn/s/67dd84191192
 
 迅雷：https://pan.xunlei.com/s/VNlljoMtUPNDWOHestSyg_GGA1?pwd=pgwj#
 

@@ -19,13 +19,13 @@
 
 #### 《白日提灯》（2026）4K 40集更新中..
 
-夸克：https://pan.quark.cn/s/02c8be03344f
+夸克：https://pan.quark.cn/s/00f38d75f2bb
 
 迅雷：https://pan.xunlei.com/s/VOpmoBe--fMGjjr3WgK2N67lA1?pwd=7iac#
 
 #### 《月鳞绮纪》（2026）4K 29集更新中..
 
-夸克：https://pan.quark.cn/s/0675691ab11f
+夸克：https://pan.quark.cn/s/e152ddbb962a
 
 迅雷：https://pan.xunlei.com/s/VOpCiLRf9H9R7zKE8D97rxoNA1?pwd=xeuh#
 
