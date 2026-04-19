@@ -26,6 +26,10 @@
 
 夸克：https://pan.quark.cn/s/0af821691ae9
 
+#### 《红色火箭》（2021）1080P 中字（赤色大箭男）
+
+夸克：https://pan.quark.cn/s/69312044e4ad
+
 #### 《故事的故事》（2015）蓝光1080P 内封中英字幕
 
 夸克：https://pan.quark.cn/s/9725fbacea66
