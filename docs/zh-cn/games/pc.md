@@ -76,9 +76,9 @@
 
 夸克：https://pan.quark.cn/s/a2d329cf739d
 
-#### 《神探杰克鼠（MOUSE P.I. For Hire）》v1.0.1.8044 全DLC 中文版
+#### 《恐龙牧场（Paleo Pines）》v1.5.22 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/8b87767ebd52
+夸克：https://pan.quark.cn/s/a85787ea9599
 
 #### 《颈椎病（Stiff Neck）》v2026.4.3 中文版
 
@@ -122,6 +122,16 @@
 夸克：https://pan.quark.cn/s/f618becc1c8f
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
+
+#### 《杀戮尖塔2（Slay the Spire 2）》v0.103.2 中文 联机版（附第1部+安卓版）
+
+夸克：https://pan.quark.cn/s/4a575dc211fc
+
+迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
+
+#### 《神探杰克鼠（MOUSE P.I. For Hire）》v1.0.4.8161 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8b87767ebd52
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
 
@@ -359,12 +369,6 @@
 夸克：https://pan.quark.cn/s/b0064155806f
 
 迅雷：https://pan.xunlei.com/s/VOpaHgPXzAX-ZKyhrqkFKKsgA1?pwd=x5jj#
-
-#### 《杀戮尖塔2（Slay the Spire 2）》v0.103.0 中文 联机版（附第1部+安卓版）
-
-夸克：https://pan.quark.cn/s/4a575dc211fc
-
-迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
 
 #### 《人类纪元（Humanica）》v0.8.17 中文版
 
