@@ -80,38 +80,6 @@
 
 夸克：https://pan.quark.cn/s/a85787ea9599
 
-#### 《颈椎病（Stiff Neck）》v2026.4.3 中文版
-
-夸克：https://pan.quark.cn/s/536121530ef0
-
-#### 《重建你的岛屿（Restore Your Island）》v2026.4.14 中文版
-
-夸克：https://pan.quark.cn/s/a9262df2aa76
-
-#### 《香缇小镇（ShantyTown）》v1.0.03 中文版
-
-夸克：https://pan.quark.cn/s/01bdff6dbf07
-
-#### 《缮写室 ：羊皮卷大师（Scriptorium）》v1.0.0 中文版
-
-夸克：https://pan.quark.cn/s/e63787d3a8fc
-
-#### 《归零地（Ground Zero）》v2026.4.16 中文版（复古FPS恐怖游戏）
-
-夸克：https://pan.quark.cn/s/29c7e8a9f6b4
-
-#### 《壁虎之神（Gecko Gods）》v2175 中文版
-
-夸克：https://pan.quark.cn/s/30063de4bfc9
-
-#### 《清洁大作战！（Cleaning Up!）》v2026.4.17 中文版
-
-夸克：https://pan.quark.cn/s/3b505e45a114
-
-#### 《诡岛灵探（The Occultist）豪华版》v1.0.1.2 全DLC 中文版（恐怖动作冒险）
-
-夸克：https://pan.quark.cn/s/09ff15cb5f18
-
 ---
 
 ## 最近更新
@@ -123,6 +91,12 @@
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
+#### 《鬼谷八荒（Tale of Immortal）豪华版》v1.2.113.259 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/67e615bccda6
+
+迅雷：https://pan.xunlei.com/s/VNquonrMNI_pwCcqomUujexGA1?pwd=h7ny#
+
 #### 《杀戮尖塔2（Slay the Spire 2）》v0.103.2 中文 联机版（附第1部+安卓版）
 
 夸克：https://pan.quark.cn/s/4a575dc211fc
@@ -133,59 +107,37 @@
 
 夸克：https://pan.quark.cn/s/8b87767ebd52
 
-#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
+#### 《紫色晶石（Stoneshard）》v0.9.4.18 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/ae92fcbace04
+夸克：https://pan.quark.cn/s/0f05f1804fbb
 
-#### 《幻兽帕鲁（Palworld）》v0.7.3.90464 中文 联机版
+#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.40087 离线中文版
 
-夸克：https://pan.quark.cn/s/51d73c209195
+夸克：https://pan.quark.cn/s/ec9392c8a6d4
 
-迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
+迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
 
-#### 《帝国时代2 决定版（Age of Empires II）》v101.103.39862.0 全DLC 中文 联机版（更新）
-#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.4.8719 全DLC 中文版
-#### 《帝国时代3 决定版（Age of Empires III）》v100.15.59076.0 全DLC 中文版（可Radmin LAN联机）
+#### 《泰拉瑞亚（Terraria）》v1.4.5.6 中文 联机版 + ModLoader模组版（附安卓）
 
-夸克：https://pan.quark.cn/s/0c0f7a82ce32
+夸克：https://pan.quark.cn/s/cf680d575749
 
-迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
+迅雷：https://pan.xunlei.com/s/VNtKlm0t9Cfpnuk-BzvaR45OA1?pwd=g3qz#
 
-#### 《丧尸末世：地底全是财，挖宝造炮台（The Spotter Dig or Die）》v1.0.4.4 中文版
+#### 《暗黑破坏神2 重制版（Diablo II Resurrected）地狱版》v3.0.92198 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/47353b2d2fa3
+夸克：https://pan.quark.cn/s/379c96e02b6c
 
-#### 《幻灵降世录 ：女巫的面纱（Lost Eidolons Veil of the Witch）》v1.3.16 全DLC 中文版
+#### 《黑道圣徒3 重制版（Saints Row The Third Remastered）》v9 汉化版+联机版
+#### 《黑道圣徒：逃出地狱（Saints Row Gat out of Hell》v1.0u2 汉化版（支持联机）
+#### 《黑道圣徒 重启版（Saints Row 2022）黄金版》v1.6.1.4735700 中文 联机版(Radmin LAN联机)
+#### 《黑道圣徒4 改选（Saints Row IV Re-Elected）》Build.10105076 全DLC 汉化版
+#### 《黑道圣徒2（Saints Row 2）》v3.5.372.6 汉化版
 
-夸克：https://pan.quark.cn/s/e12bc6f40d9b
+夸克：https://pan.quark.cn/s/83fd9dc44f8c
 
-#### 《宗门起源（Eastern Era）》v1.0.28 中文版
+#### 《宣誓（Avowed）高级版》v2.1.0.0 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/6d75f2fd231d
-
-#### 《筑城记：中世纪（City Tales Medieval Era）》v1.2.0.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/448eca526561
-
-迅雷：https://pan.xunlei.com/s/VOmO3GVi1CzJGJEzkQQmMcqFA1?pwd=fnad#
-
-#### 《波与月夜之青莲（Bo Path of the Teal Lotus）》v1.2.7 中文版
-
-夸克：https://pan.quark.cn/s/7ca603ab41b1
-
-#### 《帕夏时代（Roots of Pacha）》v1.3.1 中文版
-
-夸克：https://pan.quark.cn/s/29b5e1d775e0
-
-#### 《哈迪斯2（Hades II）》v1.137536 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/74b6e4cc96f7
-
-迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《最后纪元（Last Epoch）豪华版》v1.4.3 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
+夸克：https://pan.quark.cn/s/bdfdcea387f0
 
 ---
 
@@ -196,6 +148,16 @@
 #### 《仁王（Nioh）完全版》v1.24.08 中文版
 
 夸克：https://pan.quark.cn/s/be850af09c63
+
+#### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ae92fcbace04
+
+#### 《幻兽帕鲁（Palworld）》v0.7.3.90464 中文 联机版
+
+夸克：https://pan.quark.cn/s/51d73c209195
+
+迅雷：https://pan.xunlei.com/s/VNp0SUCCr5eTX9mGHVk9_BxsA1?pwd=3amh#
 
 #### 《博德之门3（Baldur's Gate 3）豪华版》v4.1.1.7209685 全DLC 中文 联机版
 
@@ -224,10 +186,6 @@
 #### 《真三国无双 起源（Dynasty Warriors Origins）豪华版》v1.0.1.2 全DLC 中文配音版
 
 夸克：https://pan.quark.cn/s/346ee452b56d
-
-#### 《宣誓（Avowed）高级版》v2.0.0.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/bdfdcea387f0
 
 #### 《冰汽时代（Frostpunk）年度版》v1.6.1 全DLC 中文版
 #### 《冰汽时代2（Frostpunk 2）豪华版》v1.5.4 全DLC 中文配音版
@@ -333,6 +291,86 @@
 ---
 
 ## 已有游戏
+
+#### 《颈椎病（Stiff Neck）》v2026.4.3 中文版
+
+夸克：https://pan.quark.cn/s/536121530ef0
+
+#### 《重建你的岛屿（Restore Your Island）》v2026.4.14 中文版
+
+夸克：https://pan.quark.cn/s/a9262df2aa76
+
+#### 《香缇小镇（ShantyTown）》v1.0.03 中文版
+
+夸克：https://pan.quark.cn/s/01bdff6dbf07
+
+#### 《缮写室 ：羊皮卷大师（Scriptorium）》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/e63787d3a8fc
+
+#### 《归零地（Ground Zero）》v2026.4.16 中文版（复古FPS恐怖游戏）
+
+夸克：https://pan.quark.cn/s/29c7e8a9f6b4
+
+#### 《壁虎之神（Gecko Gods）》v2175 中文版
+
+夸克：https://pan.quark.cn/s/30063de4bfc9
+
+#### 《清洁大作战！（Cleaning Up!）》v2026.4.17 中文版
+
+夸克：https://pan.quark.cn/s/3b505e45a114
+
+#### 《诡岛灵探（The Occultist）豪华版》v1.0.1.2 全DLC 中文版（恐怖动作冒险）
+
+夸克：https://pan.quark.cn/s/09ff15cb5f18
+
+#### 《猎杀：恶魔熔炉（Hunted The Demon's Forge）》v1.0 汉化版
+
+夸克：https://pan.quark.cn/s/b03bba94b088
+
+#### 《帝国时代2 决定版（Age of Empires II）》v101.103.39862.0 全DLC 中文 联机版（更新）
+#### 《帝国时代4（Age of Empires IV）周年纪念版》v15.4.8719 全DLC 中文版
+#### 《帝国时代3 决定版（Age of Empires III）》v100.15.59076.0 全DLC 中文版（可Radmin LAN联机）
+
+夸克：https://pan.quark.cn/s/0c0f7a82ce32
+
+迅雷：https://pan.xunlei.com/s/VNvkevNF72FLBsU58F3MKddHA1?pwd=yzp4#
+
+#### 《丧尸末世：地底全是财，挖宝造炮台（The Spotter Dig or Die）》v1.0.4.4 中文版
+
+夸克：https://pan.quark.cn/s/47353b2d2fa3
+
+#### 《幻灵降世录 ：女巫的面纱（Lost Eidolons Veil of the Witch）》v1.3.16 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e12bc6f40d9b
+
+#### 《宗门起源（Eastern Era）》v1.0.28 中文版
+
+夸克：https://pan.quark.cn/s/6d75f2fd231d
+
+#### 《筑城记：中世纪（City Tales Medieval Era）》v1.2.0.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/448eca526561
+
+迅雷：https://pan.xunlei.com/s/VOmO3GVi1CzJGJEzkQQmMcqFA1?pwd=fnad#
+
+#### 《波与月夜之青莲（Bo Path of the Teal Lotus）》v1.2.7 中文版
+
+夸克：https://pan.quark.cn/s/7ca603ab41b1
+
+#### 《帕夏时代（Roots of Pacha）》v1.3.1 中文版
+
+夸克：https://pan.quark.cn/s/29b5e1d775e0
+
+#### 《哈迪斯2（Hades II）》v1.137536 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/74b6e4cc96f7
+
+迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
+
+#### 《最后纪元（Last Epoch）豪华版》v1.4.3 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
 
 #### 《焕然异星（Terraformers）》v1.7.76 全DLC 中文版
 
@@ -912,10 +950,6 @@
 #### 《珊瑚岛（Cora Island）豪华版》v1.2.1246 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/f8e8a22deace
-
-#### 《暗黑破坏神2 重制版（Diablo II Resurrected）地狱版》v3.0.91923 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/379c96e02b6c
 
 #### 《Easy Red 2》v2.0.4 全DLC 中文版（浅红2、简红2、轻松挂彩2、易红2）
 
@@ -1792,12 +1826,6 @@
 #### 《学生时代（Student Age）》v1.78 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/3ccbc2b11c68
-
-#### 《泰拉瑞亚（Terraria）》v1.4.5.3 中文 联机版 + ModLoader模组版（附安卓）
-
-夸克：https://pan.quark.cn/s/cf680d575749
-
-迅雷：https://pan.xunlei.com/s/VNtKlm0t9Cfpnuk-BzvaR45OA1?pwd=g3qz#
 
 #### 《雾锁王国（Enshrouded）》v893400 中文 联机版
 
@@ -3284,12 +3312,6 @@
 
 夸克：https://pan.quark.cn/s/faa672a22730
 
-#### 《逃离塔科夫（Escape from Tarkov）》v0.16.9.0.40087 离线中文 稳定版
-
-夸克：https://pan.quark.cn/s/ec9392c8a6d4
-
-迅雷：https://pan.xunlei.com/s/VO-qGE01k6b9MXolZWZd-hWgA1?pwd=5mgw#
-
 #### 《传说与战术自走棋（Tales Tactics）》v1.13 中文版
 
 夸克：https://pan.quark.cn/s/81ddc85d0603
@@ -4005,10 +4027,6 @@
 #### 《崩溃大陆2（Crashlands 2）》v1.3.0.RC.2 中文版（附第1部）
 
 夸克：https://pan.quark.cn/s/8db39b6946d6
-
-#### 《紫色晶石（Stoneshard）》v0.9.3.9 中文版
-
-夸克：https://pan.quark.cn/s/0f05f1804fbb
 
 #### 《都市天际线（Cities Skylines）豪华版》v1.20.1.f1 全DLC 中文版 新增DLC（城市天际线）
 
@@ -6042,12 +6060,6 @@
 #### 《午夜漫步（The Midnight Walk）》v2025.6.13 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/36bed67f6a99
-
-#### 《鬼谷八荒（Tale of Immortal）》v1.2.111.259 全DLC 电脑版
-
-夸克：https://pan.quark.cn/s/67e615bccda6
-
-迅雷：https://pan.xunlei.com/s/VNquonrMNI_pwCcqomUujexGA1?pwd=h7ny#
 
 #### 《冰与火之舞（A Dance of Fire and Ice）》v2.9.5 全DLC 中文版
 
@@ -11811,10 +11823,6 @@
 #### 《正当防卫 系列合集（Just Cause）豪华版》3部 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/79965ca81c2b
-
-#### 《黑道圣徒 系列合集（Saints Row）》5部 最新 全DLC 汉化 联机版
-
-夸克：https://pan.quark.cn/s/83fd9dc44f8c
 
 #### 《层层恐惧 系列合集（Layers of Fear）》3部 最新 全DLC 中文版（恐怖解密）
 

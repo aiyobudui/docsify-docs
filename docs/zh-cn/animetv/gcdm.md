@@ -22,7 +22,7 @@
 
 #### 《仙逆》（2024）4K 更新中..（附剧场版）（修仙鼻祖小说改编）
 
-夸克：https://pan.quark.cn/s/a93a1dc84cb1
+夸克：https://pan.quark.cn/s/7ad55dc50812
 
 迅雷：https://pan.xunlei.com/s/VNlTlPDAKMncq9ndG-_FPnjQA1?pwd=zq4h#
 
@@ -42,7 +42,7 @@
 
 #### 《吞噬星空》（2024）4K 周二 更新中..（附剧场版）
 
-夸克：https://pan.quark.cn/s/6b431609527c
+夸克：https://pan.quark.cn/s/3aae83354a02
 
 迅雷：https://pan.xunlei.com/s/VNlbtym7EZ_QMc4gjpiw4ijKA1?pwd=i5sw#
 
@@ -84,7 +84,7 @@
 
 #### 《神印王座》（2024）4K 周四 更新中..
 
-夸克：https://pan.quark.cn/s/8541712543e1
+夸克：https://pan.quark.cn/s/ef4af367ac22
 
 迅雷：https://pan.xunlei.com/s/VNlbicNs9EhvsHCYfFNUcxonA1?pwd=kpcj#
 
