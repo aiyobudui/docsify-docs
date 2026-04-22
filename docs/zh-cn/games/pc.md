@@ -60,6 +60,22 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《明日潮汐（Tides of Tomorrow）》v2026.4.22 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0c31f3231b0e
+
+#### 《女吊（Scarlet Idol）》v1.0.11638.79 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/88f79e643c58
+
+#### 《科洛蒙（Coromon）》v2026.4.22 全DLC 中文版（电脑版）
+
+夸克：https://pan.quark.cn/s/b48dcd57c777
+
+#### 《吸血鬼爬行者：屠戮地牢的吸血鬼幸存者》v1.4.0 20260415.1827 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2f28dc3374ef
+
 #### 《Screamer 豪华版》v1757854 全DLC 中文版（高能动作和动漫美学 赛车游戏）
 
 夸克：https://pan.quark.cn/s/f3ead5d115be
@@ -69,6 +85,12 @@
 夸克：https://pan.quark.cn/s/02db260f211c
 
 迅雷：https://pan.xunlei.com/s/VOqoZ8VJLzINXYhK-TKCIPMeA1?pwd=yg36#
+
+#### 《贪婪之冠（Crown Of Greed）》v1.1.0f7 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2147434e67ca
+
+迅雷：https://pan.xunlei.com/s/VOqog9m9C-ogcqfzvlZiJX7tA1?pwd=ah2y#
 
 #### 《风启之旅（Windrose）》v0.10.0.1.6 中文 联机版
 
@@ -81,10 +103,6 @@
 #### 《空中帝国（Airborne Empire）》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/eb3956114e31
-
-#### 《克苏鲁：宇宙深渊（Cthulhu The Cosmic Abyss）》v2026.4.17 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a2d329cf739d
 
 #### 《恐龙牧场（Paleo Pines）》v1.5.22 全DLC 中文版
 
@@ -107,11 +125,29 @@
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
+#### 《克苏鲁：宇宙深渊（Cthulhu The Cosmic Abyss）》v2026.4.22 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a2d329cf739d
+
 #### 《鬼谷八荒（Tale of Immortal）豪华版》v1.2.113.259 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/67e615bccda6
 
 迅雷：https://pan.xunlei.com/s/VNquonrMNI_pwCcqomUujexGA1?pwd=h7ny#
+
+#### 《雾锁王国（Enshrouded）》v999467 中文 联机版
+
+夸克：https://pan.quark.cn/s/cb96556f07cd
+
+#### 《检疫区：最后一站（Quarantine Zone The Last Check）》v1.1.13.1645 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51ec3310edca
+
+#### 《消逝的光芒：困兽（Dying Light The Beast）失地复苏版》v1.6.2 全DLC 中文配音 联机版
+#### 《消逝的光芒：增强版（Dying Light）》v1.54 全DLC 中文 联机版
+#### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《杀戮尖塔2（Slay the Spire 2）》v0.103.2 中文 联机版（附第1部+安卓版）
 
@@ -180,12 +216,6 @@
 夸克：https://pan.quark.cn/s/9df1078ca763
 
 迅雷：https://pan.xunlei.com/s/VNobhPdbNDU7zYgxPhLuSRtRA1?pwd=398t#
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）失地复苏版》v1.6.0c 全DLC 中文配音 联机版(新增DLC)
-#### 《消逝的光芒：增强版（Dying Light）》v1.54 全DLC 中文 联机版
-#### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《最终幻想7 重制版Intergrade（Final Fantasy VII Remake Intergrade）》v1.007 全DLC 中文版
 
@@ -1699,10 +1729,6 @@
 
 夸克：https://pan.quark.cn/s/31b2ef0bb7aa
 
-#### 《检疫区 最后一站（Quarantine Zone The Last Check）》v1.0.9.1397 中文版
-
-夸克：https://pan.quark.cn/s/51ec3310edca
-
 #### 《人渣（SCUM）豪华版》v1.2.0.6.104952 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e1be35435129
@@ -1842,10 +1868,6 @@
 #### 《学生时代（Student Age）》v1.78 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/3ccbc2b11c68
-
-#### 《雾锁王国（Enshrouded）》v893400 中文 联机版
-
-夸克：https://pan.quark.cn/s/cb96556f07cd
 
 #### 《华夏山河（Chinese Frontiers）》v2.1.1401 中文版
 
