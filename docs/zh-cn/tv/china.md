@@ -17,15 +17,21 @@
 
 ## 正在更新中的...
 
+#### 《重案解密》（2026）4K 国粤双版本 12集更新中..
+
+夸克：https://pan.quark.cn/s/deda8a029f18
+
+迅雷：https://pan.xunlei.com/s/VOqoc-6r6NDRTnYcd9mK4pPSA1?pwd=i8w3#
+
 #### 《白日提灯》（2026）4K 40集更新中..
 
 夸克：https://pan.quark.cn/s/00f38d75f2bb
 
 迅雷：https://pan.xunlei.com/s/VOpmoBe--fMGjjr3WgK2N67lA1?pwd=7iac#
 
-#### 《月鳞绮纪》（2026）4K 29集更新中..
+#### 《月鳞绮纪》（2026）4K 29集全
 
-夸克：https://pan.quark.cn/s/e152ddbb962a
+夸克：https://pan.quark.cn/s/6d6cc209b2f6
 
 迅雷：https://pan.xunlei.com/s/VOpCiLRf9H9R7zKE8D97rxoNA1?pwd=xeuh#
 
@@ -1627,7 +1633,7 @@
 
 #### 《人民的名义》（2017）4K 55集全
 
-夸克：https://pan.quark.cn/s/146015d18eba
+夸克：https://pan.quark.cn/s/88b906860dd3
 
 迅雷：https://pan.xunlei.com/s/VNqcIo0VYl6eVaEOFx8_I5lfA1?pwd=22uu#
 

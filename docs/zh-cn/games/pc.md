@@ -60,6 +60,16 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《Screamer 豪华版》v1757854 全DLC 中文版（高能动作和动漫美学 赛车游戏）
+
+夸克：https://pan.quark.cn/s/f3ead5d115be
+
+#### 《罪托邦（Sintopia）》v1.0.3.523 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/02db260f211c
+
+迅雷：https://pan.xunlei.com/s/VOqoZ8VJLzINXYhK-TKCIPMeA1?pwd=yg36#
+
 #### 《风启之旅（Windrose）》v0.10.0.1.6 中文 联机版
 
 夸克：https://pan.quark.cn/s/152def0f9d37
@@ -79,6 +89,12 @@
 #### 《恐龙牧场（Paleo Pines）》v1.5.22 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/a85787ea9599
+
+#### 《异域镇魂曲 增强版（Planescape Torment - Enhanced Edition）》v3.1.4.0 汉化版
+
+夸克：https://pan.quark.cn/s/ac0aa0e8fd4c
+
+迅雷：https://pan.xunlei.com/s/VOqoTj31yS9C9ShD9o-fGCySA1?pwd=xnkz#
 
 ---
 
