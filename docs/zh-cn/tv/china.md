@@ -17,9 +17,15 @@
 
 ## 正在更新中的...
 
+#### 《蜜语纪》（2026）4K 40集 更新中..
+
+夸克：https://pan.quark.cn/s/8f91acfaa770
+
+迅雷：https://pan.xunlei.com/s/VOquTmFa3097Y-2vKy99AJFAA1?pwd=9bbu#
+
 #### 《重案解密》（2026）4K 国粤双版本 12集更新中..
 
-夸克：https://pan.quark.cn/s/deda8a029f18
+夸克：https://pan.quark.cn/s/c92aec5c9653
 
 迅雷：https://pan.xunlei.com/s/VOqoc-6r6NDRTnYcd9mK4pPSA1?pwd=i8w3#
 
