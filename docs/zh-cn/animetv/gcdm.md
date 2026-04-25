@@ -150,7 +150,7 @@
 
 #### 《斗破苍穹》年番 4K 周日 更新中..（附1-4季+特别篇+三年之约+缘起）
 
-夸克：https://pan.quark.cn/s/fc01318e0f07
+夸克：https://pan.quark.cn/s/b0ddaca0e12e
 
 迅雷：https://pan.xunlei.com/s/VNlSTz25VO9u4b8BblSn2NWeA1?pwd=7xrz#
 

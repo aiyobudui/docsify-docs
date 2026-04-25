@@ -56,7 +56,7 @@
 
 夸克：https://pan.quark.cn/s/83869492b208
 
-#### 《咩咩启示录》v1.5.12 NS整合 全DLC 中文版
+#### 《咩咩启示录》v1.5.25 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8093958e4885
 
