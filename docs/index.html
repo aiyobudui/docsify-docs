@@ -1869,8 +1869,8 @@
 
         // Waline初始化函数
         function initWaline() {
-            var currentPath = window.location.pathname;
-            var isBbsPage = currentPath.includes('/zh-cn/bbs') || currentPath.includes('/bbs') || currentPath === '/bbs.html';
+            var currentPath = window.location.pathname + window.location.hash;
+            var isBbsPage = currentPath.includes('/zh-cn/bbs') || currentPath.includes('/bbs') || currentPath === '/bbs.html' || currentPath.includes('#/bbs');
 
             if (!isBbsPage) {
                 return;
