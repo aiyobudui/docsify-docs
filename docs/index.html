@@ -1898,11 +1898,15 @@
             }
 
             try {
+                var currentPath = window.location.pathname + window.location.hash;
+                var commentPath = currentPath.includes('#') ? currentPath.split('#')[1] || '/zh-cn/bbs' : currentPath;
+                if (!commentPath.startsWith('/')) commentPath = '/' + commentPath;
+                
                 Waline.init({
                     el: '#waline',
                     serverURL: 'https://waline.haozy.top',
                     lang: 'zh-CN',
-                    path: location.pathname,
+                    path: commentPath,
                     meta: ['nick', 'mail'],
                     requiredMeta: ['nick'],
                     avatar: 'none',
