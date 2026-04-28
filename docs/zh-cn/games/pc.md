@@ -256,38 +256,6 @@
 
 夸克：https://pan.quark.cn/s/7660a8757ab1
 
-#### 《战争传说（Wartales）雇佣兵版》v1.0.46851 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/f2a711fede86
-
-#### 《毁灭协议（Moros Protocol）》v1.0.14 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3d71587b5d72
-
-#### 《东方冰之勇者记（Touhou Hero of Ice Fairy）》v2026.4.24 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a9f44c669cda
-
-#### 《生灵重塑（REANIMAL）》v360676 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/fcef91158dcf
-
-#### 《PEAK》v1.61.b 中文 联机版（多人联机爬山）
-
-夸克：https://pan.quark.cn/s/f56bd5be8765
-
-#### 《塔楼统治（Tower Dominion）》v1.66 全DLC 中文版（塔防游戏）
-
-夸克：https://pan.quark.cn/s/b473194cc9b1
-
-#### 《灵魂石幸存者（Soulstone Survivors）支持者特别版》v1.5c 全DCL 中文版
-
-夸克：https://pan.quark.cn/s/a0a9296627a3
-
-#### 《克苏鲁：宇宙深渊（Cthulhu The Cosmic Abyss）》v2026.4.22 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/a2d329cf739d
-
 #### 《狙击手：幽灵战士契约2（Sniper Ghost Warrior Contracts 2）豪华版》Build.05092024 全DLC 中文版
 #### 《狙击手：幽灵战士契约（Sniper Ghost Warrior Contracts）豪华版》v16167732 全DLC 中文版
 #### 《狙击手：幽灵战士3（Sniper Ghost Warrior 3）黄金版》v3.8.6 全DLC 中文版
@@ -440,6 +408,38 @@
 ---
 
 ## 已有游戏
+
+#### 《战争传说（Wartales）雇佣兵版》v1.0.46851 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/f2a711fede86
+
+#### 《毁灭协议（Moros Protocol）》v1.0.14 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3d71587b5d72
+
+#### 《东方冰之勇者记（Touhou Hero of Ice Fairy）》v2026.4.24 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a9f44c669cda
+
+#### 《生灵重塑（REANIMAL）》v360676 中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/fcef91158dcf
+
+#### 《PEAK》v1.61.b 中文 联机版（多人联机爬山）
+
+夸克：https://pan.quark.cn/s/f56bd5be8765
+
+#### 《塔楼统治（Tower Dominion）》v1.66 全DLC 中文版（塔防游戏）
+
+夸克：https://pan.quark.cn/s/b473194cc9b1
+
+#### 《灵魂石幸存者（Soulstone Survivors）支持者特别版》v1.5c 全DCL 中文版
+
+夸克：https://pan.quark.cn/s/a0a9296627a3
+
+#### 《克苏鲁：宇宙深渊（Cthulhu The Cosmic Abyss）》v2026.4.22 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a2d329cf739d
 
 #### 《末日的回声（Echoes of the End）增强版》v2.0.3 中文版（魂类游戏）
 
