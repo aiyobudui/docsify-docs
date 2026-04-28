@@ -49,6 +49,10 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《黑神话：悟空（Black Myth Wukong）豪华版》v1.0.21.23831 中文版
+
+夸克：https://pan.quark.cn/s/9aa9720dd675
+
 #### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.22154679 全DLC 中文版
@@ -59,6 +63,18 @@
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《迷失于声音中（Lost in Voice）》v2026.4.27 全DLC 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/abbbd375ea68
+
+#### 《这是我的宝藏！（Treasures Mine）》v0.3.26 中文版
+
+夸克：https://pan.quark.cn/s/93deef043a6f
+
+#### 《Toads Soul Hopper》v1.1.0 中文版（灵魂跳跃者）
+
+夸克：https://pan.quark.cn/s/39d87bd95666
 
 #### 《咔砰！玩具乱斗屋（Toy Smash Kaboom! ）》最新 全DLC 中文版（咔砰玩具乱斗屋）
 
@@ -135,6 +151,10 @@
 ---
 
 ## 最近更新
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v51713 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
 
 #### 《七龙珠 电光炸裂 ZERO（Dragon Ball Sparking Zero）终结版》v2019.018.003.011.012 全DLC 中文 联机版
 
@@ -2926,10 +2946,6 @@
 #### 《428：被封锁的涩谷（428：Shibuya Scramble）》v1.5 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/0ec3b235f7db
-
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v46891 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
 
 #### 《伊藤润二狂热：无止的囹圄（Junji Ito Maniac An Infinite Gaol）》v1.0.0 中文版（悬疑恐怖游戏）
 
@@ -12153,10 +12169,6 @@
 #### 《ReWASD》（xbox手柄映射键盘软件）v7.2.0 中文版
 
 夸克：https://pan.quark.cn/s/56b41a301dfb
-
-#### 《黑神话·悟空》42项修改器（只有修改器）
-
-夸克：https://pan.quark.cn/s/9aa9720dd675
 
 #### 《逃生试炼》没有可联机的学习版，全程联网，不要在问了
 
