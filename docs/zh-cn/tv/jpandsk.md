@@ -26,6 +26,24 @@
 
 ## 已完结的...
 
+#### 《求婚大作战》（2012）1080P高码 内封中字 10集全
+
+夸克：https://pan.quark.cn/s/210139b27811
+
+迅雷：https://pan.xunlei.com/s/VOrJeLxpp1DR8hiuFcdI_hC0A1?pwd=2tj9#
+
+#### 《野猪大改造》（2025）1080P高码 内封中字 10集全
+
+夸克：https://pan.quark.cn/s/8ee90e69a56c
+
+迅雷：https://pan.xunlei.com/s/VOrJcPS_Pd50VrB26CHnQcQrA1?pwd=533e#
+
+#### 《14岁的母亲》（2006）11集全（十四岁的母亲）
+
+夸克：https://pan.quark.cn/s/e162ad7ea71d
+
+迅雷：https://pan.xunlei.com/s/VOrJanViA2J1DPPVQ1oQ_SvMA1?pwd=e7s9#
+
 #### 《苦尽柑来遇见你》（2025）4K 内封中字 16集全（网飞版）
 
 夸克：https://pan.quark.cn/s/9fe4ea4071f2

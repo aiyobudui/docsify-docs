@@ -49,7 +49,7 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《黑神话：悟空（Black Myth Wukong）豪华版》v1.0.21.23831 中文版
+#### 《黑神话：悟空（Black Myth Wukong）豪华版》v1.0.21.23831 中文版（非虚拟化版本）
 
 夸克：https://pan.quark.cn/s/9aa9720dd675
 
@@ -67,6 +67,10 @@
 #### 《迷失于声音中（Lost in Voice）》v2026.4.27 全DLC 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/abbbd375ea68
+
+#### 《DrainSim》v0.20.02 中文版（排水模拟器）
+
+夸克：https://pan.quark.cn/s/8df72ce7336a
 
 #### 《这是我的宝藏！（Treasures Mine）》v0.3.26 中文版
 
