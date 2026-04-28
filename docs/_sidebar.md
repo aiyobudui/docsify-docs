@@ -18,12 +18,12 @@
   - [🌸  日本动漫](/zh-cn/animetv/rbdm)
   - [🦅  欧美动漫](/zh-cn/animetv/omdm)
   - [👶  小朋友动画](/zh-cn/animetv/xpy)
+- [📽️  纪录片](/zh-cn/documentary)
+- [🎤  综艺](/zh-cn/realitytv)
+- [📚  书籍、漫画、有声读物](/zh-cn/books)
+- [🎓  视频教程](/zh-cn/instruction)
+- [🎵  音乐MV](/zh-cn/music)
 - [📦  其他](/zh-cn/additional)
-  - [📽️  纪录片](/zh-cn/documentary)
-  - [🎤  综艺](/zh-cn/realitytv)
-  - [📚  书籍、漫画、有声读物](/zh-cn/books)
-  - [🎓  视频教程](/zh-cn/instruction)
-  - [🎵  音乐MV](/zh-cn/music)
 
 ---
 - [🗨️  留言板](/zh-cn/bbs)
