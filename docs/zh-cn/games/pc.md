@@ -64,9 +64,25 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《Aphelion》v1.03.1628077 中文版（第三人称动作冒险）
+
+夸克：https://pan.quark.cn/s/520849133a20
+
 #### 《迷失于声音中（Lost in Voice）》v2026.4.27 全DLC 中文版（心理恐怖游戏）
 
 夸克：https://pan.quark.cn/s/abbbd375ea68
+
+#### 《梦幻魔法公主（Magical Princess）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/a05663731a19
+
+#### 《最后的加油站（The Last Gas Station）》v1.0.0.304 中文版
+
+夸克：https://pan.quark.cn/s/25fa4bbb3c9c
+
+#### 《MEMOLITH Forsaken by Light》v1.0.0 中文版
+
+夸克：https://pan.quark.cn/s/737bf240c099
 
 #### 《DrainSim》v0.20.02 中文版（排水模拟器）
 
@@ -155,6 +171,10 @@
 ---
 
 ## 最近更新
+
+#### 《维多利亚3（Victoria 3）豪华版》v1.13.0 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/5b0145311ea9
 
 #### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v51713 全DLC 中文版
 
@@ -2646,10 +2666,6 @@
 #### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.60.04 中文版
 
 夸克：https://pan.quark.cn/s/4d0702c9d08c
-
-#### 《维多利亚3（Victoria 3）豪华版》v1.12.0 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/5b0145311ea9
 
 #### 《帕格尼物语（Pioneers of Pagonia）》v1.0.0 中文版
 
