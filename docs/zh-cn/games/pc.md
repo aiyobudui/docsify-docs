@@ -80,6 +80,10 @@
 
 夸克：https://pan.quark.cn/s/25fa4bbb3c9c
 
+#### 《妖谈2：九尾异闻（Yokai Art 2 Tales of the Nine-Tails）》v1.0.068 中文版
+
+夸克：https://pan.quark.cn/s/b6467a84909e
+
 #### 《MEMOLITH Forsaken by Light》v1.0.0 中文版
 
 夸克：https://pan.quark.cn/s/737bf240c099
@@ -195,6 +199,10 @@
 #### 《泰坦之旅2（Titan Quest II）》v20260424 中文 联机版
 
 夸克：https://pan.quark.cn/s/93ad3c9932d1
+
+#### 《气球塔防6（Bloons TD 6）》v54.2.10673 全DLC 中文 联机版（附气球塔防5）
+
+夸克：https://pan.quark.cn/s/c07fb4e51a76
 
 #### 《咩咩启示录（Cult of the Lamb）》v1.5.25.1049 全DLC 中文 联机版
 
@@ -6066,10 +6074,6 @@
 #### 《推币勇者（Coin Push RPG）》v0.1.5.084 中文版
 
 夸克：https://pan.quark.cn/s/9ad5f8f4803d
-
-#### 《气球塔防6（Bloons TD 6）》v49.0.9315 全DLC 中文 联机版（附 气球塔防5）
-
-夸克：https://pan.quark.cn/s/c07fb4e51a76
 
 #### 《幻恋夜宴：恋恋的幻觉夜宴（Halluci Sabbat of Koishi）》v1.2.3 全DLC 中文版
 
