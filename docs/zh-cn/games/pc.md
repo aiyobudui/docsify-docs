@@ -176,13 +176,25 @@
 
 ## 最近更新
 
+#### 《贪婪之秋2 垂死世界（GreedFall The Dying World）》v1.2 中文版（附第1部）
+
+夸克：https://pan.quark.cn/s/3fbb5a637da1
+
 #### 《维多利亚3（Victoria 3）豪华版》v1.13.0 全DLC 中文 联机版（新增DLC）
 
 夸克：https://pan.quark.cn/s/5b0145311ea9
 
+#### 《咒语旅团（The Spell Brigade）》v1.0.1.16434 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/b969236a3e3c
+
 #### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v51713 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《神话时代 重述版（Age of Mythology Retold）高级版》v100.19.10938.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/51201cccd0db
 
 #### 《七龙珠 电光炸裂 ZERO（Dragon Ball Sparking Zero）终结版》v2019.018.003.011.012 全DLC 中文 联机版
 
@@ -1192,10 +1204,6 @@
 
 迅雷：https://pan.xunlei.com/s/VOoApaGzV8ybkrbWNI-bZL3nA1?pwd=cw69#
 
-#### 《贪婪之秋2 垂死世界（GreedFall II The Dying World）》Build.21902359 中文版（附第1部）
-
-夸克：https://pan.quark.cn/s/3fbb5a637da1
-
 #### 《严阵以待（Ready or Not）豪华版》v112610 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/296a2d4242e8
@@ -1203,10 +1211,6 @@
 #### 《僵尸世界大战 劫后余生（World War Z）豪华版》v2026.3.10 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/bb9aa80fd6eb
-
-#### 《神话时代 重述版（Age of Mythology Retold）高级版》v100.19.3090.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/51201cccd0db
 
 #### 《空洞骑士：丝之歌（Hollow Knight Silksong）》v1.0.29909 全DLC 中文 联机版
 
@@ -6533,10 +6537,6 @@
 夸克：https://pan.quark.cn/s/b54a6a084f2c
 
 迅雷：https://pan.xunlei.com/s/VNrRda-X6E_vieOh5a9BU3WnA1?pwd=y6km#
-
-#### 《咒语旅团（The Spell Brigade）》v0.10.2.4044 中文 联机版
-
-夸克：https://pan.quark.cn/s/b969236a3e3c
 
 #### 《架空地图模拟器（Fantasy Map Simulator）》v2025.5.20 中文版
 
