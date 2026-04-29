@@ -17,6 +17,12 @@
 
 ## 正在更新中的...
 
+#### 《黑夜告白》（2026）4K 28集 更新中..
+
+夸克：https://pan.quark.cn/s/6c76215507bc
+
+迅雷：https://pan.xunlei.com/s/VOrOSbh0oRbXWaTjsFcFY3nKA1?pwd=ci45#
+
 #### 《蜜语纪》（2026）4K 40集 更新中..
 
 夸克：https://pan.quark.cn/s/8f91acfaa770
