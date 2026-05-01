@@ -64,6 +64,28 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/85cd64770b41
+
+#### 《心之岛（Island of Hearts）》Build.22634882 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/b35015e315d3
+
+#### 《泰拉科技魇团（TerraTech Legion）》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/fbcb69410f2f
+
+#### 《一家小店，故事多多（inKONBINI One Store. Many Stories）》v1.0.204.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c598f911dd70
+
+#### 《可爱冒险记（Adorable Adventures）》v1.0.3.8312 中文版
+
+夸克：https://pan.quark.cn/s/226e2590239c
+
+迅雷：https://pan.xunlei.com/s/VOrUlUOUF25q0GOeQT15nTU9A1?pwd=uybm#
+
 #### 《华夏史诗：战国（Huaxia Warring States）》v0.261.044.2917 中文版
 
 夸克：https://pan.quark.cn/s/2ac3f1e03cad
@@ -140,9 +162,19 @@
 
 ## 最近更新
 
+#### 《消逝的光芒：困兽（Dying Light The Beast）失地复苏版》v1.6.4 全DLC 中文配音 联机版（更新）
+#### 《消逝的光芒：增强版（Dying Light）》v1.54 全DLC 中文 联机版
+#### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
+
+夸克：https://pan.quark.cn/s/7cd3766e113d
+
 #### 《贪婪之秋2 垂死世界（GreedFall The Dying World）》v1.2 中文版（附第1部）
 
 夸克：https://pan.quark.cn/s/3fbb5a637da1
+
+#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.20.1.0 161674 中文 联机版（法外狂徒）
+
+夸克：https://pan.quark.cn/s/54c0aaad57e2
 
 #### 《维多利亚3（Victoria 3）豪华版》v1.13.0 全DLC 中文 联机版（新增DLC）
 
@@ -168,6 +200,10 @@
 
 夸克：https://pan.quark.cn/s/2e24bee55712
 
+#### 《护核纪元（core keeper）》v1.2.0.7 中文 联机版（地心护核者）
+
+夸克：https://pan.quark.cn/s/e76feced60bb
+
 #### 《巨人杀手：暗黑之潮（Jotunnslayer Hordes of Hel）》v1.2.2.94322 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/58b4bb5b676d
@@ -175,6 +211,10 @@
 #### 《泰坦之旅2（Titan Quest II）》v20260424 中文 联机版
 
 夸克：https://pan.quark.cn/s/93ad3c9932d1
+
+#### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.63.02 中文版
+
+夸克：https://pan.quark.cn/s/4d0702c9d08c
 
 #### 《气球塔防6（Bloons TD 6）》v54.2.10673 全DLC 中文 联机版（附气球塔防5）
 
@@ -249,12 +289,6 @@
 #### 《仁王（Nioh）完全版》v1.24.08 中文版
 
 夸克：https://pan.quark.cn/s/be850af09c63
-
-#### 《消逝的光芒：困兽（Dying Light The Beast）失地复苏版》v1.6.2 全DLC 中文配音 联机版
-#### 《消逝的光芒：增强版（Dying Light）》v1.54 全DLC 中文 联机版
-#### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
-
-夸克：https://pan.quark.cn/s/7cd3766e113d
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
 
@@ -2527,10 +2561,6 @@
 
 夸克：https://pan.quark.cn/s/9c5a315866f7
 
-#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.19.1.0 中文 联机版（法外狂徒）
-
-夸克：https://pan.quark.cn/s/54c0aaad57e2
-
 #### 《庄园领主（Manor Lords）》v0.8.050 中文版
 
 夸克：https://pan.quark.cn/s/5a5272a9a4ba
@@ -2714,10 +2744,6 @@
 #### 《茂林源记（Root：The Marauder Expansion）收藏家版》v2.1.1 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/fdb300c860c5
-
-#### 《英雄立志传：三国志（Legend of Heroes Three Kingdoms）》v0.60.04 中文版
-
-夸克：https://pan.quark.cn/s/4d0702c9d08c
 
 #### 《帕格尼物语（Pioneers of Pagonia）》v1.0.0 中文版
 
@@ -6104,10 +6130,6 @@
 #### 《造作海岛（Tinkerlands）》v45822.45 中文 联机版
 
 夸克：https://pan.quark.cn/s/73e4fa411d14
-
-#### 《地心护核者（core keeper）》v1.1.2.2 中文 联机版（护核纪元）
-
-夸克：https://pan.quark.cn/s/e76feced60bb
 
 #### 《恐怖黎明（Grim Dawn）》v1.2.1.6 全DLC 豪华中文 联机版
 
