@@ -80,7 +80,7 @@
 
 夸克：https://pan.quark.cn/s/a9dcb9baac33
 
-#### 《歧路旅人0》v1.0.2 NS整合 中文版
+#### 《歧路旅人0》v1.0.5 NS整合 全DLC 中文 豪华版
 
 夸克：https://pan.quark.cn/s/ba323806235b
 

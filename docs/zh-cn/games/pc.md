@@ -55,7 +55,7 @@
 
 #### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
-#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》Build.22154679 全DLC 中文版
+#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》v1.5.9.0 全DLC 中文版
 #### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
 #### 《生化危机8 村庄（Resident Evil Village）黄金版》v1.2.3.9 全DLC 中文配音版**（更新）**
 #### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
@@ -63,6 +63,14 @@
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《深红誓言（Crimson Oath）》v2026.4.30 中文版
+
+夸克：https://pan.quark.cn/s/3968c3e7ebd2
+
+#### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
+
+夸克：https://pan.quark.cn/s/48bc1c7473b5
 
 #### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.1 全DLC 中文版
 
