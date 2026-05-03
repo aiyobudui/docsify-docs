@@ -26,6 +26,18 @@
 
 ## 已完结的...
 
+#### 《请回答1994、请回答1997、请回答1988》（2013-2015）1080P高码 内封中字（三部合集）
+
+夸克：https://pan.quark.cn/s/91650c31c9bd
+
+迅雷：https://pan.xunlei.com/s/VOrhJDEf2nIWmoxBHhs3ik6eA1?pwd=nman#
+
+#### 《夺命许愿》（2026）1080P 中字 8集全
+
+夸克：https://pan.quark.cn/s/dfcf4f71fc93
+
+迅雷：https://pan.xunlei.com/s/VOrhDtfvYL2iRW3dXJkuzHSEA1?pwd=kdsx#
+
 #### 《求婚大作战》（2012）1080P高码 内封中字 10集全
 
 夸克：https://pan.quark.cn/s/210139b27811

@@ -1076,6 +1076,8 @@
 
 夸克：https://pan.quark.cn/s/22bf66746201
 
+迅雷：https://pan.xunlei.com/s/VOrhKM_Q9SkWxKnqUmHJUq8CA1?pwd=kcwd#
+
 #### 《霹雳游侠》（1982-1985）1-4季全 720P 国英配音 内封中字（默认国配 附新霹雳游侠）
 
 夸克：https://pan.quark.cn/s/d86be4df1d0b

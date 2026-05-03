@@ -2082,3 +2082,11 @@
 夸克：https://pan.quark.cn/s/2181cfce5d6c
 
 迅雷：https://pan.xunlei.com/s/VOiUL1kUp_l03wptst0E10spA1?pwd=r3qk#
+
+#### 《大明风华》（2019）1080P 62集全
+
+夸克：https://pan.quark.cn/s/ffd040ad8ab2
+
+#### 《神话 电视剧》（2010）1080P 无台标水印 50集全（胡歌 白冰 任泉）
+
+夸克：https://pan.quark.cn/s/175b6a4ccca2

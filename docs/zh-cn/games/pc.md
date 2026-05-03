@@ -64,9 +64,21 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《遥遥西土（Far Far West）》v594 中文 联机版
+
+夸克：https://pan.quark.cn/s/f14aacfee7dd
+
+迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
+
 #### 《深红誓言（Crimson Oath）》v2026.4.30 中文版
 
 夸克：https://pan.quark.cn/s/3968c3e7ebd2
+
+#### 《哥布林维克：窃贼大亨（Goblin Vyke The Thief Tycoon）》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/611eab786474
+
+迅雷：https://pan.xunlei.com/s/VOrhOx7bOYiY56eikUqHU81aA1?pwd=xjnw#
 
 #### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
 
@@ -166,9 +178,24 @@
 
 夸克：https://pan.quark.cn/s/93deef043a6f
 
+#### 《不思议的皇冠（Crown Trick）》v1.2.1.15 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/4525e3048705
+
 ---
 
 ## 最近更新
+
+#### 《仁王3（Nioh 3）豪华版》v1.05 全DLC 中文 联机版（新）
+#### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
+#### 《仁王（Nioh）完全版》v1.24.08 中文版
+
+夸克：https://pan.quark.cn/s/be850af09c63
+
+#### 《天外世界：太空人之选（The Outer Worlds Spacer's Choice）》v2.5.7.0 中文版（天外世界1 重制版）
+#### 《天外世界2（The Outer Worlds 2）高级版》v1.1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/9baad4a27102
 
 #### 《消逝的光芒：困兽（Dying Light The Beast）失地复苏版》v1.6.4 全DLC 中文配音 联机版（更新）
 #### 《消逝的光芒：增强版（Dying Light）》v1.54 全DLC 中文 联机版
@@ -249,10 +276,6 @@
 
 夸克：https://pan.quark.cn/s/32c452be1479
 
-#### 《天外世界2（The Outer Worlds 2）高级版》v1.1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/9baad4a27102
-
 #### 《风启之旅（Windrose）》v0.10.0.3.104.256f9653 中文 联机版
 
 夸克：https://pan.quark.cn/s/152def0f9d37
@@ -291,12 +314,6 @@
 夸克：https://pan.quark.cn/s/f618becc1c8f
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
-
-#### 《仁王3（Nioh 3）豪华版》v1.04.01 全DLC 中文 联机版（新）
-#### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
-#### 《仁王（Nioh）完全版》v1.24.08 中文版
-
-夸克：https://pan.quark.cn/s/be850af09c63
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
 
@@ -7398,10 +7415,6 @@
 
 夸克：https://pan.quark.cn/s/1e6549341218
 
-#### 《天外世界（The Outer Worlds SCE）次世代版》v1.6411.19706.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c0d11664d013
-
 #### 《Amerzone：探险家的记忆传承（Amerzone The Explorers Legacy）》v2025.4.25 中文版
 
 夸克：https://pan.quark.cn/s/85a02ccbc132
@@ -11833,10 +11846,6 @@
 #### 《嘘 美女拍摄中（Heroines Through My Lens）》v2025.12.27 中文版（真人互动影游）
 
 夸克：https://pan.quark.cn/s/9cb85dd9db6b
-
-#### 《北望江山（Mandate Of Heaven）》v1.15 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/93497f6dd846
 
 #### 《阿西 美女室友竟然2（Five Hearts Under One Roof）》v2025.11.21 中文版（附第一部 韩国真人互动影游）
 
