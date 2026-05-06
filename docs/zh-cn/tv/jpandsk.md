@@ -26,6 +26,12 @@
 
 ## 已完结的...
 
+#### 《鬼客》 (2018）1080P高码 中字
+
+夸克：https://pan.quark.cn/s/5d2daf720a2b
+
+迅雷：https://pan.xunlei.com/s/VOrsNLLAQ-Zo27E1tHcA9_kSA1?pwd=2mhr#
+
 #### 《请回答1994、请回答1997、请回答1988》（2013-2015）1080P高码 内封中字（三部合集）
 
 夸克：https://pan.quark.cn/s/91650c31c9bd

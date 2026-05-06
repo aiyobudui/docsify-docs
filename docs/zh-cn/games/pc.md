@@ -64,6 +64,14 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《恶魔牌（Apokerlypse）》v1.3.2094 中文版
+
+夸克：https://pan.quark.cn/s/5f4fa3ad5e80
+
+#### 《双箭头豪华版（Twin Shot Deluxe）》Build.22798524 中文版（本地4人联机）
+
+夸克：https://pan.quark.cn/s/9e9c8071ee98
+
 #### 《遥遥西土（Far Far West）》v594 中文 联机版
 
 夸克：https://pan.quark.cn/s/f14aacfee7dd
