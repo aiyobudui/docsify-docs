@@ -15,12 +15,19 @@
 
 ---
 
-> [!info|style:callout|label:信息|iconVisibility:hidden] **禁用虚拟化安全组件对会对 电脑安全 造成哪些影响**
-[**点击链接进入安全提示文档**](https://docs.qq.com/aio/DY2FqUFRrWXpxaUJY?opennew=1&p=vWsLTEndG7nIs6PXVeDyKT&client_hint=0)
+?> **禁用虚拟化安全组件对会对 电脑安全 造成哪些影响**
+[**👉点击链接进入安全提示文档👈**](https://docs.qq.com/aio/DY2FqUFRrWXpxaUJY?opennew=1&p=vWsLTEndG7nIs6PXVeDyKT&client_hint=0)
+
+> 可 ”一键禁用“ 和 ”一键还原“ 认真阅读游戏中的说明
 
 ---
 
-## 最新添加
+## 已有游戏
+
+#### 《红色沙漠（Crimson Desert）豪华版》v1.04.02 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8f8e4c92e22e
 
 #### 《PRAGMATA  豪华版》Build.22357085 全DLC 中文版
+
 夸克：https://pan.quark.cn/s/e259cd42aebf
