@@ -24,7 +24,8 @@
 
 > [!note|style:callout|label:提示] 模拟器存放文件夹不能有中文，游戏文件名也不能有中文，否则添加密钥闪退，即使添加成功玩游戏也会出现随时闪退等情况  
 其他问题请查看你下载的模拟器文件夹中的 **模拟器相关图文教程.doc**
-> [!note|style:callout|label:提示|iconVisibility:hidden]游戏支持电脑和手机模拟器游玩，当然你的学习版主机也能游玩
+
+> [!note|style:callout|label:提示|iconVisibility:hidden]游戏支持电脑和手机模拟器游玩，当然你的学习版主机也能游玩  
 
 ---
 
