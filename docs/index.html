@@ -1692,7 +1692,7 @@
             externalLinkTarget: '_blank',
             themeColor: '#18256d',
             routerMode: 'hash',
-            relativePath: true,
+            relativePath: false,
 
             requestHeaders: { 'Cache-Control': 'public, max-age=86400' },
             noCompileLinks: [
@@ -1703,9 +1703,9 @@
             ],
 
             alias: {
-                '/zh-cn/_sidebar.md': './_sidebar.md',
-                '/.*/_sidebar.md': './_sidebar.md',
-                '/.*/_navbar.md': './_navbar.md'
+                '/zh-cn/_sidebar.md': '/docs/zh-cn/_sidebar.md',
+                '/.*/_sidebar.md': '/docs/_sidebar.md',
+                '/.*/_navbar.md': '/docs/_navbar.md'
             },
 
             toc: {
