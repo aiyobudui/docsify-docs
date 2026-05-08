@@ -2,6 +2,7 @@
 - [🏠  首 页](home)
 - [🎮  游 戏](/zh-cn/games/page)
   - [💻  电脑游戏](/zh-cn/games/pc)
+  - [🎯  虚拟化游戏](/zh-cn/games/HVgame)
   - [🎮  switch游戏](/zh-cn/games/switch)
   - [📱  安卓游戏](/zh-cn/games/android)
 - [🎬  电 影](/zh-cn/movie/page)

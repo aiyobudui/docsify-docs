@@ -2,6 +2,7 @@
 
 <div class="game-nav">
   <a href="#/zh-cn/games/pc" class="game-nav-btn">电脑游戏</a>
+  <a href="#/zh-cn/games/HVgame" class="game-nav-btn">虚拟化游戏</a>
   <a href="#/zh-cn/games/switch" class="game-nav-btn">switch游戏</a>
   <a href="#/zh-cn/games/android" class="game-nav-btn">安卓游戏</a>
 </div>
@@ -63,6 +64,18 @@
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《恶意（Dread Neighbor）》v2026.5.8 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/f8064ff9174a
+
+#### 《万物皆可蟹：动物进化 Roguelite（Everything is Crab）》v1.0.0.8074 中文版
+
+夸克：https://pan.quark.cn/s/aae6009c89af
+
+#### 《皓白初晓（Alabaster Dawn）》v0.1.0 中文版
+
+夸克：https://pan.quark.cn/s/78e15e1db895
 
 #### 《混音青春（Mixtape）》v1.1 中文版
 
@@ -144,6 +157,7 @@
 
 夸克：https://pan.quark.cn/s/b35015e315d3
 
+#### 《杀出重围：人类分裂（Deus Ex Mankind Divided）》v1.19 全DLC 汉化版
 #### 《杀出重围3：人类革命（Deus Ex Human Revolution）导演剪辑版》Build.2.0.0.0 全DLC 汉化版
 #### 《杀出重围：陨落（Deus Ex The Fall）》v2026.5.7 汉化版
 
@@ -152,6 +166,10 @@
 ---
 
 ## 最近更新
+
+#### 《猎人：荒野的召唤（theHunter Call of the Wild）完全版》Build.24022026 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/b5566d4550ab
 
 #### 《寂静之歌（Songs Of Silence）》v1.9.0 全DLC 中文 联机版（新增DLC）
 
@@ -5150,10 +5168,6 @@
 #### 《赛菲莉娅（Sephiria）》v0.8.3 中文 联机版
 
 夸克：https://pan.quark.cn/s/c2d1f77aaf7f
-
-#### 《猎人：荒野的召唤（theHunter Call of the Wild）》v3054373 全DLC 豪华 中文 联机版
-
-夸克：https://pan.quark.cn/s/b5566d4550ab
 
 #### 《恐怖奶奶 重制版（Granny Remake）》v3.6.3 中文版（恐怖游戏）
 

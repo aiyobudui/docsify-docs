@@ -8,7 +8,9 @@
 
 #### 《大侦探》（2026）第11季 更新中..(明星大侦探)
 
-夸克：https://pan.quark.cn/s/a5c54e6bbed1
+夸克：https://pan.quark.cn/s/ae3ea5cb3563
+
+迅雷：https://pan.xunlei.com/s/VOqVuYayReGuSkF5DEqCCAuZA1?pwd=3d6j#
 
 #### 《声生不息 华流季》（2025）第五季 12期全
 

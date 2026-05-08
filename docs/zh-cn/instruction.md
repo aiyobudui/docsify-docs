@@ -14,14 +14,6 @@
 
 夸克：https://pan.quark.cn/s/a0782a3641f8
 
-#### 《2024考研数学真题及答案》
-
-夸克：https://pan.quark.cn/s/47c2b218e3f2
-
-#### 《2025年 英语考研 刘晓燕全程班》
-
-夸克：https://pan.quark.cn/s/402f98c97152
-
 #### 《Adobe系列软件教程》
 
 夸克：https://pan.quark.cn/s/68e2f3fcc562
