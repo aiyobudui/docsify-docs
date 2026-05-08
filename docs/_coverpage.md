@@ -1,11 +1,5 @@
 <div class="cover-content">
   <h1 class="h1-style">对酒当歌分享<small>每日更新</small></h1>
-  <div class="video-container">
-    <video autoplay muted loop playsinline preload="metadata">
-      <source src="./assets/img/1.mp4" type="video/mp4">
-    </video>
-  </div>
-
   <div class="resource-style">一个专业的纯资源分享文档</div>
 </div>
 
@@ -38,31 +32,10 @@ small {
     vertical-align: middle; /* 垂直居中 */
 }
 
-/* 视频容器样式 */
-.video-container {
-    width: 100%;
-    max-width: 640px;
-    margin: 20px 0; /* 电脑端左对齐，去掉auto */
-    border-radius: 8px;
-    overflow: hidden;
-    box-shadow: 0 4px 12px rgba(0,0,0,0.15);
-    background-color: #000;
-}
-
-/* 视频元素样式 */
-.video-container video {
-    width: 100%;
-    height: auto;
-    display: block;
-}
-
 /* 平板设备 (768px 及以下) */
 @media (max-width: 768px) {
     .cover-content {
       text-align: center; /* 移动端恢复居中 */
-    }
-    .video-container {
-      margin: 20px auto; /* 移动端视频居中 */
     }
     .h1-style {
       font-size: 2.5em;
@@ -87,10 +60,6 @@ small {
       font-size: 1.6em;
       padding: 0 10px;
     }
-    .video-container {
-        border-radius: 0;
-        margin: 10px auto;
-    }
 }
 
 /* 超小屏手机 (360px 及以下) */
@@ -110,5 +79,6 @@ small {
 [进  入](home)
 [留言板](/zh-cn/bbs)
 [电脑游戏](/zh-cn/games/pc)
+[虚拟化游戏](/zh-cn/games/HVgame)
 [QQ群①](https://qm.qq.com/q/7XUsPNUXPq)
 [打  赏](/zh-cn/dashang)

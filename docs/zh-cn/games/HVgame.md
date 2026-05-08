@@ -15,8 +15,8 @@
 
 ---
 
-> **禁用虚拟化安全组件对会对 电脑安全 造成哪些影响**
-  [点击链接进入安全提示文档](https://docs.qq.com/aio/DY2FqUFRrWXpxaUJY?opennew=1&p=vWsLTEndG7nIs6PXVeDyKT&client_hint=0)
+> [!info|style:callout|label:信息|iconVisibility:hidden] **禁用虚拟化安全组件对会对 电脑安全 造成哪些影响**
+[**点击链接进入安全提示文档**](https://docs.qq.com/aio/DY2FqUFRrWXpxaUJY?opennew=1&p=vWsLTEndG7nIs6PXVeDyKT&client_hint=0)
 
 ---
 
