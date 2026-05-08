@@ -9,6 +9,10 @@
 
 ---
 
+#### 《雅克迪 yakka dee》1-7季+特别版 (音频+视频)（BBC幼儿英语启蒙动画）
+
+夸克：https://pan.quark.cn/s/6dff62973c76
+
 #### 《土豆逗严肃科普》系列全集
 
 夸克：https://pan.quark.cn/s/5af2d6e0ee3e

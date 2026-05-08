@@ -21,7 +21,18 @@
 
 **靠前的是最新添加的**
 
+#### 《伪钞重案》（2026）4K
+
+夸克：https://pan.quark.cn/s/1de58923b792
+
+#### 《飞驰人生3》（2019-2024）3部合集 4K
+
+夸克：<https://pan.quark.cn/s/7bef2d2be27e>
+
+迅雷：<https://pan.xunlei.com/s/VNwdDv--C_wSBafAlokFbAusA1?pwd=uqvu#>
+
 #### 《追恶》 (2026）4K HDR
+
 夸克：https://pan.quark.cn/s/c57d33ee5ff1
 
 #### 《浴血黑帮 不朽传奇》（2026）4K 内封中字（附美剧1-6季全）
@@ -563,12 +574,6 @@
 夸克：<https://pan.quark.cn/s/00b6170e36d4>
 
 迅雷：<https://pan.xunlei.com/s/VNwn_qipO9mUA9ZLNcjKQk4fA1?pwd=g5gp#>
-
-#### 《飞驰人生》（2019-2024）2部合集 4K
-
-夸克：<https://pan.quark.cn/s/7bef2d2be27e>
-
-迅雷：<https://pan.xunlei.com/s/VNwdDv--C_wSBafAlokFbAusA1?pwd=uqvu#>
 
 #### 《破墓》（2024）1080P 韩语 中字
 
