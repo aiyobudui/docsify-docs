@@ -58,6 +58,8 @@
 
 夸克：https://pan.quark.cn/s/245d4d2967f0
 
+迅雷：https://pan.xunlei.com/s/VOsCsuXI1qHQuK8w9K4CWMWNA1?pwd=xbkk#
+
 #### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》v1.5.9.0 全DLC 中文版
@@ -100,6 +102,13 @@
 ---
 
 ## 最近更新
+
+#### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.7.76.0 全DLC 中文配音版（更新）
+#### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
+
+夸克：https://pan.quark.cn/s/f618becc1c8f
+
+迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
 #### 《猎人：荒野的召唤（theHunter Call of the Wild）完全版》Build.24022026 全DLC 中文 联机版
 
@@ -200,13 +209,6 @@
 #### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
-#### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.4.65.0 全DLC 中文配音版（更新）
-#### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
-
-夸克：https://pan.quark.cn/s/f618becc1c8f
-
-迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
 
