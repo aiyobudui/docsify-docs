@@ -54,6 +54,10 @@
 
 夸克：https://pan.quark.cn/s/9aa9720dd675
 
+#### 《剑星（Stellar Blade）完全版》v1.4.1 全DLC 中文配音版（非虚拟化版本）
+
+夸克：https://pan.quark.cn/s/245d4d2967f0
+
 #### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》v1.5.9.0 全DLC 中文版
@@ -64,6 +68,10 @@
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《蛙穿雪境（Froggy Hates Snow）》v1.02 中文版
+
+夸克：https://pan.quark.cn/s/b3bff10ee4a7
 
 #### 《恶意（Dread Neighbor）》v2026.5.8 中文版（心理恐怖游戏）
 
@@ -88,80 +96,6 @@
 #### 《汪!巫!录!（DOG WITCH）》v1.3 中文版（汪巫录）
 
 夸克：https://pan.quark.cn/s/1bac4b9aa6c5
-
-#### 《狼人：内在野兽（Werewolf The Inner Beast）》v2026.5.7 中文版（生存恐怖游戏）
-
-夸克：https://pan.quark.cn/s/0f8a1a8c01ce
-
-#### 《星际空间站（Outworld Station）》v1.0.0.1 中文版
-
-夸克：https://pan.quark.cn/s/223497fac977
-
-#### 《觉醒者：战斗之潮（The Awakener Battle Tendency）》v1.0 中文版
-
-夸克：https://pan.quark.cn/s/4c5511ab4ea0
-
-#### 《星河战队：终焉虫潮（Starship Troopers Ultimate Bug War）》v2026.5.4 中文版
-
-夸克：https://pan.quark.cn/s/a13956b65f98
-
-#### 《INDUSTRIA 2》v1.1.0 中文版（科幻恐怖FPS游戏）
-
-夸克：https://pan.quark.cn/s/894c342af446
-
-#### 《姆明：暖心冬日（Moomintroll Winters Warmth）》v0.1.1294 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/0e4fa3e966ff
-
-#### 《脱逃者：行尸走肉（The Escapists The Walking Dead）》v1.0 中文版（逃狱：行尸走肉）
-
-夸克：https://pan.quark.cn/s/bf1f98f214cb
-
-#### 《重力音轨（Metro Gravity）》v1.1.5 中文版
-
-夸克：https://pan.quark.cn/s/245892359310
-
-#### 《恶魔牌（Apokerlypse）》v1.3.2094 中文版
-
-夸克：https://pan.quark.cn/s/5f4fa3ad5e80
-
-#### 《双箭头豪华版（Twin Shot Deluxe）》Build.22798524 中文版（本地4人联机）
-
-夸克：https://pan.quark.cn/s/9e9c8071ee98
-
-#### 《遥遥西土（Far Far West）》v594 中文 联机版
-
-夸克：https://pan.quark.cn/s/f14aacfee7dd
-
-迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
-
-#### 《深红誓言（Crimson Oath）》v2026.4.30 中文版
-
-夸克：https://pan.quark.cn/s/3968c3e7ebd2
-
-#### 《哥布林维克：窃贼大亨（Goblin Vyke The Thief Tycoon）》v1.0.6 中文版
-
-夸克：https://pan.quark.cn/s/611eab786474
-
-迅雷：https://pan.xunlei.com/s/VOrhOx7bOYiY56eikUqHU81aA1?pwd=xjnw#
-
-#### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
-
-夸克：https://pan.quark.cn/s/48bc1c7473b5
-
-#### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/85cd64770b41
-
-#### 《心之岛（Island of Hearts）》Build.22634882 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/b35015e315d3
-
-#### 《杀出重围：人类分裂（Deus Ex Mankind Divided）》v1.19 全DLC 汉化版
-#### 《杀出重围3：人类革命（Deus Ex Human Revolution）导演剪辑版》Build.2.0.0.0 全DLC 汉化版
-#### 《杀出重围：陨落（Deus Ex The Fall）》v2026.5.7 汉化版
-
-夸克：https://pan.quark.cn/s/d1ae9afff783
 
 ---
 
@@ -246,6 +180,10 @@
 
 夸克：https://pan.quark.cn/s/652d7102951b
 
+---
+
+## 顶置游戏
+
 #### 《仁王3（Nioh 3）豪华版》v1.05 全DLC 中文 联机版（新）
 #### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
 #### 《仁王（Nioh）完全版》v1.24.08 中文版
@@ -262,32 +200,6 @@
 #### 《消逝的光芒2 装上阵版（Dying Light 2）豪华版》v1.27.1 全DLC 中文配音 联机版
 
 夸克：https://pan.quark.cn/s/7cd3766e113d
-
-#### 《安迪和莱莉的棺材（The Coffin of Andy and Leyley）》v3.0.13 汉化版
-
-夸克：https://pan.quark.cn/s/4acb37911c13
-
-迅雷：https://pan.xunlei.com/s/VOrnXe43F25q0GOeQT1FUEclA1?pwd=hcvd#
-
-#### 《贪婪之秋2 垂死世界（GreedFall The Dying World）》v1.2 中文版（附第1部）
-
-夸克：https://pan.quark.cn/s/3fbb5a637da1
-
-#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.20.1.0 161674 中文 联机版（法外狂徒）
-
-夸克：https://pan.quark.cn/s/54c0aaad57e2
-
-#### 《维多利亚3（Victoria 3）豪华版》v1.13.0 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/5b0145311ea9
-
-#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v51713 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/208c46eae054
-
----
-
-## 顶置游戏
 
 #### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.4.65.0 全DLC 中文配音版（更新）
 #### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
@@ -424,6 +336,102 @@
 ---
 
 ## 已有游戏
+
+#### 《安迪和莱莉的棺材（The Coffin of Andy and Leyley）》v3.0.13 汉化版
+
+夸克：https://pan.quark.cn/s/4acb37911c13
+
+迅雷：https://pan.xunlei.com/s/VOrnXe43F25q0GOeQT1FUEclA1?pwd=hcvd#
+
+#### 《贪婪之秋2 垂死世界（GreedFall The Dying World）》v1.2 中文版（附第1部）
+
+夸克：https://pan.quark.cn/s/3fbb5a637da1
+
+#### 《法外枭雄：滚石城（Crime Boss Rockay City）》v1.20.1.0 161674 中文 联机版（法外狂徒）
+
+夸克：https://pan.quark.cn/s/54c0aaad57e2
+
+#### 《维多利亚3（Victoria 3）豪华版》v1.13.0 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/5b0145311ea9
+
+#### 《吸血鬼：避世血族2（Vampire The Masquerade Bloodlines 2）高级版》v51713 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/208c46eae054
+
+#### 《狼人：内在野兽（Werewolf The Inner Beast）》v2026.5.7 中文版（生存恐怖游戏）
+
+夸克：https://pan.quark.cn/s/0f8a1a8c01ce
+
+#### 《星际空间站（Outworld Station）》v1.0.0.1 中文版
+
+夸克：https://pan.quark.cn/s/223497fac977
+
+#### 《觉醒者：战斗之潮（The Awakener Battle Tendency）》v1.0 中文版
+
+夸克：https://pan.quark.cn/s/4c5511ab4ea0
+
+#### 《星河战队：终焉虫潮（Starship Troopers Ultimate Bug War）》v2026.5.4 中文版
+
+夸克：https://pan.quark.cn/s/a13956b65f98
+
+#### 《INDUSTRIA 2》v1.1.0 中文版（科幻恐怖FPS游戏）
+
+夸克：https://pan.quark.cn/s/894c342af446
+
+#### 《姆明：暖心冬日（Moomintroll Winters Warmth）》v0.1.1294 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0e4fa3e966ff
+
+#### 《脱逃者：行尸走肉（The Escapists The Walking Dead）》v1.0 中文版（逃狱：行尸走肉）
+
+夸克：https://pan.quark.cn/s/bf1f98f214cb
+
+#### 《重力音轨（Metro Gravity）》v1.1.5 中文版
+
+夸克：https://pan.quark.cn/s/245892359310
+
+#### 《恶魔牌（Apokerlypse）》v1.3.2094 中文版
+
+夸克：https://pan.quark.cn/s/5f4fa3ad5e80
+
+#### 《双箭头豪华版（Twin Shot Deluxe）》Build.22798524 中文版（本地4人联机）
+
+夸克：https://pan.quark.cn/s/9e9c8071ee98
+
+#### 《遥遥西土（Far Far West）》v594 中文 联机版
+
+夸克：https://pan.quark.cn/s/f14aacfee7dd
+
+迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
+
+#### 《深红誓言（Crimson Oath）》v2026.4.30 中文版
+
+夸克：https://pan.quark.cn/s/3968c3e7ebd2
+
+#### 《哥布林维克：窃贼大亨（Goblin Vyke The Thief Tycoon）》v1.0.6 中文版
+
+夸克：https://pan.quark.cn/s/611eab786474
+
+迅雷：https://pan.xunlei.com/s/VOrhOx7bOYiY56eikUqHU81aA1?pwd=xjnw#
+
+#### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
+
+夸克：https://pan.quark.cn/s/48bc1c7473b5
+
+#### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/85cd64770b41
+
+#### 《心之岛（Island of Hearts）》Build.22634882 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/b35015e315d3
+
+#### 《杀出重围：人类分裂（Deus Ex Mankind Divided）》v1.19 全DLC 汉化版
+#### 《杀出重围3：人类革命（Deus Ex Human Revolution）导演剪辑版》Build.2.0.0.0 全DLC 汉化版
+#### 《杀出重围：陨落（Deus Ex The Fall）》v2026.5.7 汉化版
+
+夸克：https://pan.quark.cn/s/d1ae9afff783
 
 #### 《泰拉科技魇团（TerraTech Legion）》v1.0.2 中文版
 
