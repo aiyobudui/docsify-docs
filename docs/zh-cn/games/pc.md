@@ -171,6 +171,12 @@
 
 夸克：https://pan.quark.cn/s/b5566d4550ab
 
+#### 《龙胤立志传（LongYinLiZhiZhuan）豪华版》v1.0.1f3 中文版
+
+夸克：https://pan.quark.cn/s/c9dc20755576
+
+迅雷：https://pan.xunlei.com/s/VOnlgk6ummic-a4D4UsYNfMVA1?pwd=yvac
+
 #### 《寂静之歌（Songs Of Silence）》v1.9.0 全DLC 中文 联机版（新增DLC）
 
 夸克：https://pan.quark.cn/s/60e04ec94244
@@ -1323,12 +1329,6 @@
 #### 《龙的传人 孤旅（Dragonkin The Banished）》v1.3.66.54113 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/8d2b0b6ea1be
-
-#### 《龙胤立志传》v1.0.0F7.5 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c9dc20755576
-
-迅雷：https://pan.xunlei.com/s/VOnlgk6ummic-a4D4UsYNfMVA1?pwd=yvac
 
 #### 《太吾绘卷（The Scroll Of Taiwu）》v0.0.76.43 全DLC 中文版
 
