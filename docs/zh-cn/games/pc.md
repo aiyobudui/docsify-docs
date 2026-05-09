@@ -71,6 +71,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《神来之笔：心之奇旅（The Perfect Pencil）》v2026.3.9 中文版
+
+夸克：https://pan.quark.cn/s/1fc3b3009e60
+
 #### 《蛙穿雪境（Froggy Hates Snow）》v1.02 中文版
 
 夸克：https://pan.quark.cn/s/b3bff10ee4a7
@@ -103,7 +107,7 @@
 
 ## 最近更新
 
-#### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.7.76.0 全DLC 中文配音版（更新）
+#### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.7.76.0 全DLC 中文配音版
 #### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
 
 夸克：https://pan.quark.cn/s/f618becc1c8f
