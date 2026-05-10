@@ -110,6 +110,14 @@
 
 夸克：https://pan.quark.cn/s/9e1348e469e6
 
+#### 《大主宰》（2023-2026）年番2 4K 更新中.. （附第一季）
+
+夸克：https://pan.quark.cn/s/ee63e9c958fb
+
+迅雷：https://pan.xunlei.com/s/VNlgAJgAlubxCYfVx5DT7V8XA1?pwd=62aw#
+
+阿里：https://www.aliyundrive.com/s/XSVH831rM8F
+
 ---
 
 ## 周六
@@ -136,9 +144,13 @@
 
 夸克：https://pan.quark.cn/s/40c180924fe3
 
-#### 《永生》（2022-2026）4K 第5季 周六更新中..（附1-4季）
+迅雷：https://pan.xunlei.com/s/VOsIIrKKJj-8EUh4KI3Ih8HWA1?pwd=cs4v#
+
+#### 《永生》（2022-2026）4K 第5季 更新中..（附1-4季）
 
 夸克：https://pan.quark.cn/s/5001f1390a28
+
+迅雷：https://pan.xunlei.com/s/VOsIJzizx7f-TtMJQn6YUaQ9A1?pwd=gwd3#
 
 ---
 
@@ -157,6 +169,12 @@
 #### 《光阴之外》（2026）4K 周日 更新中..
 
 夸克：https://pan.quark.cn/s/04be3106ee7b
+
+#### 《成何体统》（2024-2026）4K 24更新中..（附第一季）
+
+夸克：https://pan.quark.cn/s/659a9c61e3ae
+
+迅雷：https://pan.xunlei.com/s/VO7cP8eIK-fj0_1nfeYEs5VFA1?pwd=w8fz#
 
 ---
 
@@ -356,20 +374,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNz8IVTDQ-MpJASXv8g5pEbjA1?pwd=43qp#
 
-#### 《大主宰》（2023）4K 52集全
-
-夸克：https://pan.quark.cn/s/ee63e9c958fb
-
-迅雷：https://pan.xunlei.com/s/VNlgAJgAlubxCYfVx5DT7V8XA1?pwd=62aw#
-
-阿里：https://www.aliyundrive.com/s/XSVH831rM8F
-
-#### 《成何体统》（2024）4K 24集全
-
-夸克：https://pan.quark.cn/s/a1c2c59687ef
-
-迅雷：https://pan.xunlei.com/s/VO7cP8eIK-fj0_1nfeYEs5VFA1?pwd=w8fz#
-
 #### 《赘婿 动漫版》（2023-2024）4K 1-2季全
 
 夸克：https://pan.quark.cn/s/544e5a67af00
@@ -470,7 +474,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNn7fd0eaNfg7FTjT3QWj3siA1?pwd=7jwp#
 
-#### 《你的人生是我来迟了》（2023）16集全
+#### 《你的人生是我来迟了》（2023）4K 16集全
 
 夸克：https://pan.quark.cn/s/7741e1241440
 
@@ -502,7 +506,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNlbxhrRHvieZZhnS2LglC5PA1?pwd=q4vv#
 
-#### 《魁拔之殊途》（2014-2023全）（附电影+魁拔妖侠传）
+#### 《魁拔之殊途》（2014-2023全）2021+2023（附电影+魁拔妖侠传）
 
 夸克：https://pan.quark.cn/s/6ba7ebe9e50d
 

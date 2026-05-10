@@ -17,6 +17,12 @@
 
 ## 正在更新中的...
 
+#### 《低智商犯罪》（2026）4K 24集 更新中..
+
+夸克：https://pan.quark.cn/s/7d172ee6e881
+
+迅雷：https://pan.xunlei.com/s/VOsHVhXzCfizJ0oKE8ceK79SA1?pwd=a2gi#
+
 #### 《黑夜告白》（2026）4K 28集 更新中..
 
 夸克：https://pan.quark.cn/s/6c76215507bc

@@ -103,6 +103,10 @@
 
 夸克：https://pan.quark.cn/s/1bac4b9aa6c5
 
+#### 《恶魔狩猎（Devil's Hunt）》v1.05 中文版（win11无法游玩）
+
+夸克：https://pan.quark.cn/s/c8043a93b083
+
 ---
 
 ## 最近更新
@@ -113,6 +117,26 @@
 夸克：https://pan.quark.cn/s/f618becc1c8f
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
+
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.394 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.64(54) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
+
+#### 《杀戮尖塔2（Slay the Spire 2）》v0.105.0b 中文 联机版（附第1部+安卓版）
+
+夸克：https://pan.quark.cn/s/4a575dc211fc
+
+迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
+
+#### 《最后纪元（Last Epoch）豪华版》v1.4.6 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
 
 #### 《猎人：荒野的召唤（theHunter Call of the Wild）完全版》Build.24022026 全DLC 中文 联机版
 
@@ -135,63 +159,6 @@
 #### 《饥荒（Dont Starve Together）》v726875 全DLC 中文 联机版（软件联机）
 
 夸克：https://pan.quark.cn/s/cbadff66e8dc
-
-#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.4 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/8a27527d8863
-
-#### 《黄金矿主模拟器：阿拉斯加淘金热（Alaska Gold Fever）》v2026.05.05.01 中文版
-
-夸克：https://pan.quark.cn/s/2e24bee55712
-
-#### 《流放者柯南 增强版（Conan Exiles Enhanced）》v1.0.1 全DLC 中文版（附旧版 联机版）
-
-夸克：https://pan.quark.cn/s/90d4ea9116da
-
-#### 《太阳帝国的原罪2（Sins of a Solar Empire II）》v1.60.2 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/8a31f937489c
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.0 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
-
-#### 《咒语旅团（The Spell Brigade）》v1.0.2.16727 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/b969236a3e3c
-
-#### 《人工智能的选择（Heart of the Machine）》v1.018 中文版
-
-夸克：https://pan.quark.cn/s/f56bb8afdf88
-
-迅雷：https://pan.xunlei.com/s/VOnHnr6mW8J627XW_gZPgLuIA1?pwd=djxw
-
-#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.5 全DLC 中文版
-#### 《天国拯救（Kingdom Come Deliverance）HD皇家版》v1.9.8 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/7c6b8f30675c
-
-迅雷：https://pan.xunlei.com/s/VO37CRQu2t8RQECID1fHoDG9A1?pwd=ane4#
-
-#### 《机器意识（Machine Mind）》v1.1.0 中文版（废土生存与实时战略）
-
-夸克：https://pan.quark.cn/s/2f98b9a047a2
-
-迅雷：https://pan.xunlei.com/s/VOnHcwu3EeyaFESWurf3Iq96A1?pwd=g67e
-
-#### 《卡牌修仙传（Card Cultivation）》v2.1.0.51 中文版
-
-夸克：https://pan.quark.cn/s/cb91eda9d166
-
-迅雷：https://pan.xunlei.com/s/VOnHb7UJp7pepL7c2qUJfp13A1?pwd=8nr4
-
-#### 《魔饮心语（Tavern Talk）》v20260306 全DLC 中文版（视觉小说）
-
-夸克：https://pan.quark.cn/s/7f8d80a23b0e
-
-#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.13.18884 中文版
-
-夸克：https://pan.quark.cn/s/652d7102951b
 
 ---
 
@@ -217,6 +184,13 @@
 #### 《潜行者2：切尔诺贝利之心（S.T.A.L.K.E.R.2 Heart of Chornobyl）终极版》v1.9 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/ae92fcbace04
+
+#### 《天国拯救2（Kingdom Come Deliverance II）黄金版》v1.5.5 全DLC 中文版
+#### 《天国拯救（Kingdom Come Deliverance）HD皇家版》v1.9.8 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7c6b8f30675c
+
+迅雷：https://pan.xunlei.com/s/VO37CRQu2t8RQECID1fHoDG9A1?pwd=ane4#
 
 #### 《幻兽帕鲁（Palworld）》v0.7.3.90464 中文 联机版
 
@@ -342,6 +316,56 @@
 ---
 
 ## 已有游戏
+
+#### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.4 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8a27527d8863
+
+#### 《黄金矿主模拟器：阿拉斯加淘金热（Alaska Gold Fever）》v2026.05.05.01 中文版
+
+夸克：https://pan.quark.cn/s/2e24bee55712
+
+#### 《流放者柯南 增强版（Conan Exiles Enhanced）》v1.0.1 全DLC 中文版（附旧版 联机版）
+
+夸克：https://pan.quark.cn/s/90d4ea9116da
+
+#### 《太阳帝国的原罪2（Sins of a Solar Empire II）》v1.60.2 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/8a31f937489c
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.0 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《咒语旅团（The Spell Brigade）》v1.0.2.16727 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/b969236a3e3c
+
+#### 《人工智能的选择（Heart of the Machine）》v1.018 中文版
+
+夸克：https://pan.quark.cn/s/f56bb8afdf88
+
+迅雷：https://pan.xunlei.com/s/VOnHnr6mW8J627XW_gZPgLuIA1?pwd=djxw
+
+#### 《机器意识（Machine Mind）》v1.1.0 中文版（废土生存与实时战略）
+
+夸克：https://pan.quark.cn/s/2f98b9a047a2
+
+迅雷：https://pan.xunlei.com/s/VOnHcwu3EeyaFESWurf3Iq96A1?pwd=g67e
+
+#### 《卡牌修仙传（Card Cultivation）》v2.1.0.51 中文版
+
+夸克：https://pan.quark.cn/s/cb91eda9d166
+
+迅雷：https://pan.xunlei.com/s/VOnHb7UJp7pepL7c2qUJfp13A1?pwd=8nr4
+
+#### 《魔饮心语（Tavern Talk）》v20260306 全DLC 中文版（视觉小说）
+
+夸克：https://pan.quark.cn/s/7f8d80a23b0e
+
+#### 《勇闯死人谷：暗黑之日（Into the Dead Our Darkest Days）》v0.13.18884 中文版
+
+夸克：https://pan.quark.cn/s/652d7102951b
 
 #### 《安迪和莱莉的棺材（The Coffin of Andy and Leyley）》v3.0.13 汉化版
 
@@ -830,12 +854,6 @@
 
 夸克：https://pan.quark.cn/s/51ec3310edca
 
-#### 《杀戮尖塔2（Slay the Spire 2）》v0.103.2 中文 联机版（附第1部+安卓版）
-
-夸克：https://pan.quark.cn/s/4a575dc211fc
-
-迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
-
 #### 《紫色晶石（Stoneshard）》v0.9.4.18 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/0f05f1804fbb
@@ -931,10 +949,6 @@
 夸克：https://pan.quark.cn/s/74b6e4cc96f7
 
 迅雷：https://pan.xunlei.com/s/VNxldN2kg09qEUhCXyYTtZfbA1?pwd=xify#
-
-#### 《最后纪元（Last Epoch）豪华版》v1.4.3 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
 
 #### 《焕然异星（Terraformers）》v1.7.76 全DLC 中文版
 
@@ -1623,12 +1637,6 @@
 #### 《夏日口袋 流光蓝（Summer Pockets REFLECTION BLUE）》v1.4.2.1 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/c2b1316245c1
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.51(92) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
 
 #### 《逸剑风云决（Wandering Sword）》v1.24.32 全DLC 中文版
 
@@ -2390,10 +2398,6 @@
 #### 《空之轨迹 the 1st（Sora no Kiseki the 1st）重制版》v1.06.2 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/aa4673559fef
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.247 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
 
 #### 《黄金像凶杀案再起（The Rise of the Golden Idol）》v1.0.2 全DLC 中文版
 
