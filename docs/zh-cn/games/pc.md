@@ -74,6 +74,44 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《8020号指令（Directive 8020）》Build.22697142 中文版
+
+夸克：https://pan.quark.cn/s/c14855858fd5
+
+#### 《拾光旅人（Outbound）》v1.0.40.0 全DLC 中文版（温馨的移动之家）
+
+夸克：https://pan.quark.cn/s/296b18d27b28
+
+迅雷：https://pan.xunlei.com/s/VOsNQklLxoD6eO7JRJDExL7XA1?pwd=netp#
+
+#### 《剑湾奇旅（SWORDHAVEN）》v1.1 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/043be3a034fe
+
+#### 《魔法门之英雄无敌：上古纪元（Heroes of Might and Magic Olden Era）》v0.80.13 中文版
+
+夸克：https://pan.quark.cn/s/2a0393a03afc
+
+#### 《德米欧 X 龙与地下城：战痕（Demeo x Dungeons and Dragons Battlemarked）》v4.1.31695 中文版
+
+夸克：https://pan.quark.cn/s/1b27a07d55e0
+
+#### 《失落国度：死境求生（Stolen Realm Survivors）支持者版》v1.1 中文版
+
+夸克：https://pan.quark.cn/s/cadeec47f741
+
+迅雷：https://pan.xunlei.com/s/VOsN-y5fCHW7FQ0tEsAsJ6YrA1?pwd=kqrs#
+
+#### 《铣削机模拟器（Milling machine 3D）》v1.67 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/96681876001c
+
+迅雷：https://pan.xunlei.com/s/VOsN7YtqxeaeMV65z_Hn8k7rA1?pwd=7qfq#
+
+#### 《可怕的游戏2：疯狂的牧羊人（Scary Game 2 The Mad Shepherd）》v2026.5.11 中文版
+
+夸克：https://pan.quark.cn/s/ea9ae698d231
+
 #### 《神来之笔：心之奇旅（The Perfect Pencil）》v2026.3.9 中文版
 
 夸克：https://pan.quark.cn/s/1fc3b3009e60
@@ -120,6 +158,47 @@
 夸克：https://pan.quark.cn/s/f618becc1c8f
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
+
+#### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.5 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/85cd64770b41
+
+迅雷：https://pan.xunlei.com/s/VOsNDPTvRZswxSsGjHM1MqEfA1?pwd=9dg9#
+
+#### 《深红誓言（Crimson Oath）》v1.4.1 中文版
+
+夸克：https://pan.quark.cn/s/3968c3e7ebd2
+
+#### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.27 中文版（鸭子侦探）
+#### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）》v2.3.7 中文版（鸭子侦探）
+
+夸克：https://pan.quark.cn/s/efec6df22bb0
+
+#### 《哥布林维克：窃贼大亨（Goblin Vyke The Thief Tycoon）》v1.0.18 中文版
+
+夸克：https://pan.quark.cn/s/611eab786474
+
+迅雷：https://pan.xunlei.com/s/VOrhOx7bOYiY56eikUqHU81aA1?pwd=xjnw#
+
+#### 《林间暖巢（Winter Burrow）》v1.2.0 中文版（手绘风温馨冒险）
+
+夸克：https://pan.quark.cn/s/c93eb5af08b8
+
+迅雷：https://pan.xunlei.com/s/VOsNElOBne3_kI89XWUTYhh0A1?pwd=6cnz#
+
+#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.250P 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cada1bfb9fd0
+
+迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
+
+#### 《萨妮羊研究室（Sani Yang's Laboratory）》v20260508 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fd2f2389fa35
+
+#### 《异星工厂（Factorio）》v2.0.76 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/abf35a685935
 
 #### 《堕落之主（Lords of the Fallen）豪华版》v2.5.394 全DLC 中文 联机版
 
@@ -454,23 +533,9 @@
 
 迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
 
-#### 《深红誓言（Crimson Oath）》v2026.4.30 中文版
-
-夸克：https://pan.quark.cn/s/3968c3e7ebd2
-
-#### 《哥布林维克：窃贼大亨（Goblin Vyke The Thief Tycoon）》v1.0.6 中文版
-
-夸克：https://pan.quark.cn/s/611eab786474
-
-迅雷：https://pan.xunlei.com/s/VOrhOx7bOYiY56eikUqHU81aA1?pwd=xjnw#
-
 #### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
 
 夸克：https://pan.quark.cn/s/48bc1c7473b5
-
-#### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/85cd64770b41
 
 #### 《心之岛（Island of Hearts）》Build.22634882 中文版（真人互动影游）
 
@@ -3064,10 +3129,6 @@
 
 夸克：https://pan.quark.cn/s/7f1285f4bf79
 
-#### 《萨妮羊研究室（Sani Yang's Laboratory）》v2025.11.10 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fd2f2389fa35
-
 #### 《灵动世界（Vivid World）》v1.0.6 中文版
 
 夸克：https://pan.quark.cn/s/bd0d2a5d8aac
@@ -3203,10 +3264,6 @@
 #### 《盐2：黄金海岸（Salt 2 Shores Of Gold）》Build.20670004 中文 联机版
 
 夸克：https://pan.quark.cn/s/34d1edb630c6
-
-#### 《林间暖巢（Winter Burrow）》v2025.11.13 中文版（手绘风温馨冒险）
-
-夸克：https://pan.quark.cn/s/c93eb5af08b8
 
 #### 《悠哉钓鱼（Fish to Dish Idle Sushi）》v2.1.41 中文版（桌面游戏）
 
@@ -3523,10 +3580,6 @@
 夸克：https://pan.quark.cn/s/601e230dca7c
 
 迅雷：https://pan.xunlei.com/s/VNxmA-19BxrvkoJ4erC5p2lcA1?pwd=fr7n#
-
-#### 《异星工厂（Factorio）》v2.0.72 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/abf35a685935
 
 #### 《沙丘：帝国（Dune：Imperium）》v3.3.1 全DLC 中文 联机版（桌游）
 
@@ -4308,12 +4361,6 @@
 
 夸克：https://pan.quark.cn/s/423b6f9a51ec
 
-#### 《深岩银河：幸存者（Deep Rock Galactic Survivor）黄金版》v1.0.62P 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/cada1bfb9fd0
-
-迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
-
 #### 《小猫咪大城市（Little Kitty, Big City）》v1.25.9.26.5517 中文版
 
 夸克：https://pan.quark.cn/s/0189050bdcc8
@@ -4451,14 +4498,6 @@
 夸克：https://pan.quark.cn/s/1a4fa103227f
 
 迅雷：https://pan.xunlei.com/s/VO0IhA8LA2R6D1dn8o2sLjcoA1?pwd=d7si#
-
-#### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.8 中文版（鸭子侦探）
-
-夸克：https://pan.quark.cn/s/efec6df22bb0
-
-#### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）》v2.3.7 中文版（鸭子侦探）
-
-夸克：https://pan.quark.cn/s/efec6df22bb0
 
 #### 《古墓丽影 1-3 复刻版（Tomb Raider I-III Remastered）》v2025.8.14 中文版
 
