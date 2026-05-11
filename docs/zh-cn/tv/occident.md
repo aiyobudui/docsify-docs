@@ -768,7 +768,7 @@
 
 #### 《星期三》（2022-2025）1-2季全 1080P 官中（这是类似经典ip亚当斯一家价值观的作品）
 
-夸克：https://pan.quark.cn/s/50df4e050533
+夸克：https://pan.quark.cn/s/ac5243c143da
 
 迅雷：https://pan.xunlei.com/s/VNlUJx7oGuZ2HxxGaFBCoglpA1?pwd=qgzi#
 

@@ -27,6 +27,14 @@
 
 夸克：https://pan.quark.cn/s/8f8e4c92e22e
 
-#### 《PRAGMATA  豪华版》Build.22357085 全DLC 中文版
+#### 《识质存在（PRAGMATA）豪华版》Build.22357085 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/e259cd42aebf
+
+#### 《女神异闻录3 Reload（Persona 3 Reload）豪华版》v1.11 全DLC 中文版（P3R）
+
+夸克：https://pan.quark.cn/s/e07e7b793ab8
+
+#### 《席德·梅尔的文明VII（Civilization VII）豪华版》v1.3.2 全DLC 中文版（文明7）
+
+夸克：https://pan.quark.cn/s/2d3110be13e4

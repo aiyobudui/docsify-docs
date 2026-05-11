@@ -50,6 +50,9 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
+#### 《极限竞速：地平线6（Forza Horizon 6）高级版》v353.145 全DLC 中文版
+不建议安装泄露版，游戏就没有使用D加密，游戏需登陆Microsoft账户，因为有被硬件封禁的风险，现在游戏还未发售，现在登陆的会被官方一键封禁你的电脑硬件机器码，不要挑战官方底线
+
 #### 《黑神话：悟空（Black Myth Wukong）豪华版》v1.0.21.23831 中文版（非虚拟化版本）
 
 夸克：https://pan.quark.cn/s/9aa9720dd675
@@ -159,6 +162,22 @@
 #### 《饥荒（Dont Starve Together）》v726875 全DLC 中文 联机版（软件联机）
 
 夸克：https://pan.quark.cn/s/cbadff66e8dc
+
+#### 《战锤40K 星际战士2（Warhammer 40000 Space Marine 2）超级版》v12.3.0.1 全DLC 中文版
+#### 《战锤40K 星际战士 大师锻造版》v1.0.156.0 全DLC 汉化版
+#### 《战锤40K 星际战士（Warhammer 40000 Space Marine）周年版》v1.0.156.0 全DLC 中文 联机版
+#### 《战锤40K 战区（Warhammer 40000 Battlesector）豪华版》v1.6.001 全DLC 中文版
+#### 《战锤40K 行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.5.0.293 全DLC 中文版
+#### 《战锤40K 战争黎明 终极版（Warhammer 40000 Dawn of War）终极版》v2025.8.15 中文版
+#### 《战锤40K 角斗士之战争圣器（Warhammer 40000 Gladius Relics of War）》v1.16.2 全DLC 中文版
+#### 《战锤40K 暗潮（Warhammer 40000 Darktide）》v1.6.3427.0 中文 联机版
+#### 《战锤40K 爆矢枪（Warhammer 40000 Boltgun）》v1.22.68871.3 全DLC 豪华中文版
+#### 《战锤40K 格雷迪厄斯（Warhammer 40000 Gladius Relics of War）》v1.14.0 全DLC 豪华中文版
+#### 《战锤 末世鼠疫2（Warhammer Vermintide 2）》v5.5.7 全DLC 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 ---
 
@@ -1367,22 +1386,6 @@
 #### 《云之国（Cloudheim）》v98877 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/c6afb4342e8a
-
-#### 《战锤40K 星际战士2（Warhammer 40000 Space Marine 2）超级版》v12.2.0.1 全DLC 中文版
-#### 《战锤40K 星际战士 大师锻造版》v1.0.156.0 全DLC 汉化版
-#### 《战锤40K 星际战士（Warhammer 40000 Space Marine）周年版》v1.0.156.0 全DLC 中文 联机版
-#### 《战锤40K 战区（Warhammer 40000 Battlesector）豪华版》v1.6.001 全DLC 中文版
-#### 《战锤40K 行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.5.0.293 全DLC 中文版
-#### 《战锤40K 战争黎明 终极版（Warhammer 40000 Dawn of War）终极版》v2025.8.15 中文版
-#### 《战锤40K 角斗士之战争圣器（Warhammer 40000 Gladius Relics of War）》v1.16.2 全DLC 中文版
-#### 《战锤40K 暗潮（Warhammer 40000 Darktide）》v1.6.3427.0 中文 联机版
-#### 《战锤40K 爆矢枪（Warhammer 40000 Boltgun）》v1.22.68871.3 全DLC 豪华中文版
-#### 《战锤40K 格雷迪厄斯（Warhammer 40000 Gladius Relics of War）》v1.14.0 全DLC 豪华中文版
-#### 《战锤 末世鼠疫2（Warhammer Vermintide 2）》v5.5.7 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 #### 《拳皇97 全球对决》v1.0 中文版
 #### 《拳皇98 终极对决 最终版》Build.8170224 中文版
