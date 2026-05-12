@@ -88,6 +88,10 @@
 
 夸克：https://pan.quark.cn/s/043be3a034fe
 
+#### 《异能重组（Powers Reconfiguration）》v1.0.4 中文版
+
+夸克：https://pan.quark.cn/s/cc25af19b34d
+
 #### 《魔法门之英雄无敌：上古纪元（Heroes of Might and Magic Olden Era）》v0.80.13 中文版
 
 夸克：https://pan.quark.cn/s/2a0393a03afc
@@ -168,6 +172,10 @@
 #### 《深红誓言（Crimson Oath）》v1.4.1 中文版
 
 夸克：https://pan.quark.cn/s/3968c3e7ebd2
+
+#### 《生灵重塑（REANIMAL）豪华版》v361299 中文 联机版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/fcef91158dcf
 
 #### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.27 中文版（鸭子侦探）
 #### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）》v2.3.7 中文版（鸭子侦探）
@@ -853,10 +861,6 @@
 #### 《东方冰之勇者记（Touhou Hero of Ice Fairy）》v2026.4.24 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/a9f44c669cda
-
-#### 《生灵重塑（REANIMAL）》v360676 中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/fcef91158dcf
 
 #### 《PEAK》v1.61.b 中文 联机版（多人联机爬山）
 
@@ -12374,9 +12378,11 @@
 
 夸克：https://pan.quark.cn/s/6063a1a6cdb9
 
-#### 《街机游戏合集》月光宝盒千机变版
+#### 《经典街机游戏合集 1429款》月光宝盒千机变版
 
-夸克：https://pan.xunlei.com/s/VNsYa15Lv3bE1d3xslcBwk54A1?pwd=tba8#
+夸克：https://pan.quark.cn/s/6aac7416423d
+
+迅雷：https://pan.xunlei.com/s/VNsYa15Lv3bE1d3xslcBwk54A1?pwd=tba8#
 
 ---
 
