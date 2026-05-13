@@ -17,31 +17,31 @@
 
 ## 正在更新中的...
 
-#### 《低智商犯罪》（2026）4K 24集 更新中..
+#### 《低智商犯罪》（2026）4K 24集全
 
 夸克：https://pan.quark.cn/s/7d172ee6e881
 
 迅雷：https://pan.xunlei.com/s/VOsHVhXzCfizJ0oKE8ceK79SA1?pwd=a2gi#
 
-#### 《黑夜告白》（2026）4K 28集 更新中..
+#### 《黑夜告白》（2026）4K 28集全
 
 夸克：https://pan.quark.cn/s/6c76215507bc
 
 迅雷：https://pan.xunlei.com/s/VOrOSbh0oRbXWaTjsFcFY3nKA1?pwd=ci45#
 
-#### 《蜜语纪》（2026）4K 40集 更新中..
+#### 《蜜语纪》（2026）4K 38集全
 
-夸克：https://pan.quark.cn/s/8f91acfaa770
+夸克：https://pan.quark.cn/s/db53877caf0a
 
 迅雷：https://pan.xunlei.com/s/VOquTmFa3097Y-2vKy99AJFAA1?pwd=9bbu#
 
-#### 《重案解密》（2026）4K 国粤双版本 12集更新中..
+#### 《重案解密》（2026）4K 国粤双版本 12集全
 
 夸克：https://pan.quark.cn/s/c92aec5c9653
 
 迅雷：https://pan.xunlei.com/s/VOqoc-6r6NDRTnYcd9mK4pPSA1?pwd=i8w3#
 
-#### 《白日提灯》（2026）4K 40集更新中..
+#### 《白日提灯》（2026）4K 40集全
 
 夸克：https://pan.quark.cn/s/00f38d75f2bb
 

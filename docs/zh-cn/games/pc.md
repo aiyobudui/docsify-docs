@@ -171,6 +171,14 @@
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
+#### 《云族裔（inZOI）》v0.8.3 全DLC 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《人类（HUMANKIND）终极版》v1.0.30.4814 全DLC 中文版（历史战略游戏）
+
+夸克：https://pan.quark.cn/s/c5d945316d3b
+
 #### 《昏迷3：血脉（The Coma 3 Bloodlines）》v1.1.5 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/85cd64770b41
@@ -184,6 +192,14 @@
 #### 《生灵重塑（REANIMAL）豪华版》v361299 中文 联机版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/fcef91158dcf
+
+#### 《波比的游戏时间（Poppy Playtime）1~5章》Build 21905565 汉化中文版（恐怖游戏）
+
+夸克：https://pan.quark.cn/s/958456185407
+
+#### 《致命解药（The Killing Antidote）》v0.6.3e 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/ace9e347e92d
 
 #### 《鸭鸭侦探：萨拉米香肠之谜（Duck Detective The Secret Salami）》v1.3.27 中文版（鸭子侦探）
 #### 《鸭鸭侦探：闹鬼露营地（Duck Detective The Ghost of Glamping）》v2.3.7 中文版（鸭子侦探）
@@ -1326,10 +1342,6 @@
 #### 《盒子面包坊（Box Bakery）》v1.0.2.34 中文版
 
 夸克：https://pan.quark.cn/s/7e593264ef99
-
-#### 《云族裔（inZOI）》v0.7.2 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
 
 #### 《雨世界（Rain World）豪华版》v1.11.7 全DLC 中文版
 
@@ -4201,10 +4213,6 @@
 
 夸克：https://pan.quark.cn/s/f6ed93f9a0b4
 
-#### 《人类（HUMANKIND）终极版》v1.0.29.4704 全DLC 中文版（历史战略游戏）
-
-夸克：https://pan.quark.cn/s/c5d945316d3b
-
 #### 《迪士尼梦幻星谷（Disney Dreamlight Valley）奇迹版》v2025.10.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/64bda0c8f67d
@@ -6950,10 +6958,6 @@
 
 迅雷：https://pan.xunlei.com/s/VO54S6caRqtpF_l19_RmoLq1A1?pwd=5bfe#
 
-#### 《致命解药（The Killing Antidote）》v0.5.3.2a 中文版
-
-夸克：https://pan.quark.cn/s/ace9e347e92d
-
 #### 《救命！怎么又塌了!（Haste）》v1.3.b 中文版（跑酷肉鸽）
 
 夸克：https://pan.quark.cn/s/f717e5fdf979
@@ -8381,10 +8385,6 @@
 #### 《怪物少女传奇：堕落英雄（Monster Girl Saga Fallen Heroes）》v2025.2.20 中文版
 
 夸克：https://pan.quark.cn/s/63a2189270f6
-
-#### 《波比的游戏时间（Poppy Playtime）1~4章》v2025.2.19 汉化中文版（恐怖游戏）
-
-夸克：https://pan.quark.cn/s/958456185407
 
 #### 《风暴之城（Against the Storm）》v1.7.3R 全DLC 中文版
 
