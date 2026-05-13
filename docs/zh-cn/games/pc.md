@@ -63,12 +63,20 @@
 
 迅雷：https://pan.xunlei.com/s/VOsCsuXI1qHQuK8w9K4CWMWNA1?pwd=xbkk#
 
+#### 《深海迷航2：异星水域（Subnautica 2）》v0.10.0-112084 中文版
+#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
+#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
+
+夸克：https://pan.quark.cn/s/68a01dbea110
+
 #### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
 #### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
 #### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》v1.5.9.0 全DLC 中文版
+#### 《生化危机5（Resident Evil 5 Gold Edition）黄金版》v1.2.0 全DLC 中文版
 #### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
+#### 《生化危机7（Resident Evil 7 Biohazard）黄金版》v1.0.0.7 全DLC 中文版**（更新）**
 #### 《生化危机8 村庄（Resident Evil Village）黄金版》v1.2.3.9 全DLC 中文配音版**（更新）**
-#### 《生化危机 系列合集 10部》最新 黄金版 + 重制版 全DLC 中文版
+#### 《生化危机 系列合集 12部》最新 黄金版 + 重制版 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/744a500cb67e
 
@@ -4200,14 +4208,6 @@
 #### 《迪士尼梦幻星谷（Disney Dreamlight Valley）奇迹版》v2025.10.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/64bda0c8f67d
-
-#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
-
-夸克：https://pan.quark.cn/s/68a01dbea110
-
-#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
-
-夸克：https://pan.quark.cn/s/c1be0a9e8f67
 
 #### 《机械制造者（Trailmakers）》v212.502.732.0 全DLC 中文版
 

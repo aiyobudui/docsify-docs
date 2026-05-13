@@ -8,7 +8,7 @@
 
 #### 《大侦探》（2026）第11季 更新中..(明星大侦探)
 
-夸克：https://pan.quark.cn/s/ae3ea5cb3563
+夸克：https://pan.quark.cn/s/96ab7b1a1726
 
 迅雷：https://pan.xunlei.com/s/VOqVuYayReGuSkF5DEqCCAuZA1?pwd=3d6j#
 
