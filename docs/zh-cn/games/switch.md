@@ -51,21 +51,81 @@
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
+#### 《潜水员戴夫 DAVE THE DIVER》v1.0.5.1111 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/287adeaffadc
+
+#### 《任天堂明星大乱斗》v13.0.4 NS整合 全DLC 港区中文版
+
+夸克：https://pan.quark.cn/s/dfb152b9c63a
+
+#### 《忍者神龟 斯普林特的命运》v1.14.0 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/82233b3ad455
+
+#### 《我的世界 Minecraft》v1.26.13 NS整合 美区中文版
+
+夸克：https://pan.quark.cn/s/e4fc0750a9e0
+
 #### 《勇者斗恶龙7 重制版》v1.1.0 NS整合 全DLC 中文港版
 
 夸克：https://pan.quark.cn/s/414079b3b416
+
+#### 《拉娜之星2 Planet of Lana II》v1.0.3 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/7560f31d3ac0
+
+#### 《我们的王国 蚀时果实与远古魔物》v1.0.4 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/c96a3844c507
+
+#### 《莫库尔 神之升华》v1.0.2 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/b9b332b5b013
+
+#### 《四国战机 重聚》v1.0.3 NS整合 全DLC 日区中文版
+
+夸克：https://pan.quark.cn/s/82a409a94e42
+
+#### 《贝尔纳德 Bearnard》v1.0.1 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/d0c7ccb036de
+
+#### 《篝火邂逅 Fireside》v1.0.3 NS整合 美区中文版
+
+夸克：https://pan.quark.cn/s/f9b8f42f527d
+
+#### 《一起玩农场2 Farm Together 2》v1.0.23 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/3dc517524300
+
+#### 《异形战机 战略 I･II 宇宙》v1.0.6 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/d762d988ba26
+
+#### 《FC26 - EA SPORTS FC 26 足球》v1.87.2a1e NS整合 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/40fd8a33f6f1
+
+#### 《浅红2 Easy Red 2》v1.26 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/d364c33a52f4
+
+#### 《尼奥宠物 超级迷你游戏合集》v1.1.3 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/322600a046b4
+
+#### 《无人深空 No Man's Sky》v6.36.0 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/1811c2306565
 
 #### 《动物森友会》v3.0.0 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/83869492b208
 
-#### 《咩咩启示录》v1.5.25 NS整合 全DLC 中文版
+#### 《咩咩启示录》v1.5.26 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8093958e4885
-
-#### 《潜水员戴夫》最新 NS整合 中文版
-
-夸克：https://pan.quark.cn/s/287adeaffadc
 
 #### 《七度荒域 混沌之树 7th Domain Tree of Chaos》v1.0.2 中文版
 
@@ -267,7 +327,7 @@
 
 夸克：https://pan.quark.cn/s/dc3b513887ff
 
-#### 《喷射战士3 Splatoon 3》v10.0.1 NS整合 全DLC 中文版
+#### 《喷射战士3 Splatoon 3》v11.1.0 NS整合 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/10a29ab26440
 
@@ -320,7 +380,6 @@
 迅雷：https://pan.xunlei.com/s/VNtqZeazTXVAZexRrfNzy2eWA1?pwd=4he6#
 
 #### 《星之卡比 系列6部》最新 NS整合 全DLC 中文版
-
 #### 星之卡比 美食节（卡比的美食节）v1.0.0.a
 #### 星之卡比 新星同盟
 #### 星之卡比 群星战2
@@ -334,7 +393,7 @@
 
 夸克：https://pan.quark.cn/s/f8510d81fb6a
 
-#### 《波斯王子 失落的王冠》v1.0.2 NS整合 豪华中文版
+#### 《波斯王子 失落的王冠》v1.4.2 NS整合 豪华中文版
 
 夸克：https://pan.quark.cn/s/172acc40a2b9
 
@@ -671,7 +730,7 @@
 
 夸克：https://pan.quark.cn/s/b4ee076adc84
 
-#### 《超级马里奥兄弟 惊奇(Super Mario Bros Wonder)》v1.2 NS整合 中文版
+#### 《超级马里奥兄弟 惊奇(Super Mario Bros Wonder)》v1.2.1 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/b679b56ce522
 
