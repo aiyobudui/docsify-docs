@@ -63,7 +63,7 @@
 
 迅雷：https://pan.xunlei.com/s/VOsCsuXI1qHQuK8w9K4CWMWNA1?pwd=xbkk#
 
-#### 《深海迷航2：异星水域（Subnautica 2）》v0.10.0-112084 中文版
+#### 《深海迷航2：异星水域（Subnautica 2）》v0.10.0-113109 中文 联机版
 #### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
 #### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
 
@@ -178,6 +178,14 @@
 #### 《云族裔（inZOI）》v0.8.3 全DLC 中文版（韩国模拟人生）
 
 夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《肉鸽指挥部（Rogue Command）》v1.0.3 中文版
+
+夸克：https://pan.quark.cn/s/c157684ee9e2
+
+#### 《尸姬之梦（Dream of Corpse Lady）》v1.272 中文版
+
+夸克：https://pan.quark.cn/s/0020655e3565
 
 #### 《人类（HUMANKIND）终极版》v1.0.30.4814 全DLC 中文版（历史战略游戏）
 
@@ -2617,10 +2625,6 @@
 
 夸克：https://pan.quark.cn/s/1ac7c4217cae
 
-#### 《尸姬之梦（Dream of Corpse Lady）》v2026.1.13 中文版
-
-夸克：https://pan.quark.cn/s/0020655e3565
-
 #### 《无主之地2（Borderlands 2）年度版》Build.9218157 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/75df078cc085
@@ -3723,7 +3727,7 @@
 
 夸克：https://pan.quark.cn/s/1179f67a6076
 
-####）《海港物语（Havendock）》v1.2.7 中文版
+#### 《海港物语（Havendock）》v1.2.7 中文版
 
 夸克：https://pan.quark.cn/s/2711a77ec608
 
@@ -8886,7 +8890,7 @@
 
 夸克：https://pan.quark.cn/s/0478015c41b4
 
-####）《月下之癫（Lunacid）》v2.1.2 中文版
+#### 《月下之癫（Lunacid）》v2.1.2 中文版
 
 夸克：https://pan.quark.cn/s/2cf63aae8596
 
@@ -9114,11 +9118,7 @@
 
 夸克：https://pan.quark.cn/s/8e4525cc0af6
 
-#### 《肉鸽指挥部（Rogue Command）》v2024.11.24 中文版
-
-夸克：https://pan.quark.cn/s/c157684ee9e2
-
-####）《东京巫女：幸存者（W.A.N.D.Project）》v0.2.64 中文版
+#### 《东京巫女：幸存者（W.A.N.D.Project）》v0.2.64 中文版
 
 夸克：https://pan.quark.cn/s/2dfd9f5f6ea7
 
@@ -9624,7 +9624,7 @@
 
 夸克：https://pan.quark.cn/s/148a658f2667
 
-####）《勇敢的哈克（HAAK）》v1.4.1.18259 中文版
+#### 《勇敢的哈克（HAAK）》v1.4.1.18259 中文版
 
 夸克：https://pan.quark.cn/s/50b2c9a23631
 
@@ -10818,7 +10818,7 @@
 
 夸克：https://pan.quark.cn/s/cfe53be8952f
 
-####）《武装原型（Broforce）》v3148 中文 联机版
+#### 《武装原型（Broforce）》v3148 中文 联机版
 
 夸克：https://pan.quark.cn/s/ca0cb6665418
 
@@ -11344,7 +11344,7 @@
 
 夸克：https://pan.quark.cn/s/3d9a867bf608
 
-####）《大多数（Nobody）》v10021 中文版
+#### 《大多数（Nobody）》v10021 中文版
 
 夸克：https://pan.quark.cn/s/0e71b387b045
 
