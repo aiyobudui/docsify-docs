@@ -160,6 +160,10 @@
 
 夸克：https://pan.quark.cn/s/c8043a93b083
 
+#### 《梦幻小镇（Everdream Village）》v6.402.1356 中文版
+
+夸克：https://pan.quark.cn/s/baf212bb8d89
+
 ---
 
 ## 最近更新
