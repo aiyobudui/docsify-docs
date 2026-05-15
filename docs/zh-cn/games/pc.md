@@ -50,8 +50,12 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《极限竞速：地平线6（Forza Horizon 6）高级版》v353.145 全DLC 中文版
-不建议安装泄露版，游戏就没有使用D加密，游戏需登陆Microsoft账户，因为有被硬件封禁的风险，现在游戏还未发售，现在登陆的会被官方一键封禁你的电脑硬件机器码，不要挑战官方底线
+#### 《极限竞速：地平线6（Forza Horizon 6）高级版》v354.221 全DLC 中文版
+游戏就没有使用D加密，不建议游玩泄露版，现在泄露版需登陆Microsoft账户，游戏还未发售，现在用学习版很可能会被官方一键封禁你的电脑硬件机器码，不要挑战官方底线
+
+#### 《识质存在（PRAGMATA）豪华版》Build.22357085 全DLC 中文版（非虚拟化版本）
+
+夸克：https://pan.quark.cn/s/020b7323c7a6
 
 #### 《黑神话：悟空（Black Myth Wukong）豪华版》v1.0.21.23831 中文版（非虚拟化版本）
 
@@ -132,34 +136,6 @@
 
 夸克：https://pan.quark.cn/s/b3bff10ee4a7
 
-#### 《恶意（Dread Neighbor）》v2026.5.8 中文版（心理恐怖游戏）
-
-夸克：https://pan.quark.cn/s/f8064ff9174a
-
-#### 《万物皆可蟹：动物进化 Roguelite（Everything is Crab）》v1.0.0.8074 中文版
-
-夸克：https://pan.quark.cn/s/aae6009c89af
-
-#### 《皓白初晓（Alabaster Dawn）》v0.1.0 中文版
-
-夸克：https://pan.quark.cn/s/78e15e1db895
-
-#### 《混音青春（Mixtape）》v1.1 中文版
-
-夸克：https://pan.quark.cn/s/ff3f77bcceb6
-
-#### 《猎人之首（Xenopurge）》v1.2.0.2 中文版
-
-夸克：https://pan.quark.cn/s/ba4d8088d880
-
-#### 《汪!巫!录!（DOG WITCH）》v1.3 中文版（汪巫录）
-
-夸克：https://pan.quark.cn/s/1bac4b9aa6c5
-
-#### 《恶魔狩猎（Devil's Hunt）》v1.05 中文版（win11无法游玩）
-
-夸克：https://pan.quark.cn/s/c8043a93b083
-
 #### 《梦幻小镇（Everdream Village）》v6.402.1356 中文版
 
 夸克：https://pan.quark.cn/s/baf212bb8d89
@@ -174,6 +150,14 @@
 夸克：https://pan.quark.cn/s/f618becc1c8f
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
+
+#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.18.1.0.8549 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e2644eb87c21
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.2 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《云族裔（inZOI）》v0.8.3 全DLC 中文版（韩国模拟人生）
 
@@ -235,72 +219,6 @@
 夸克：https://pan.quark.cn/s/cada1bfb9fd0
 
 迅雷：https://pan.xunlei.com/s/VNqqbTvcFJ9XqL05KHqTrSDVA1?pwd=w2z5#
-
-#### 《萨妮羊研究室（Sani Yang's Laboratory）》v20260508 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/fd2f2389fa35
-
-#### 《异星工厂（Factorio）》v2.0.76 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/abf35a685935
-
-#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.394 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4912658febe6
-
-#### 《下一站江湖2（Next Jianghu II）》v1.1.64(54) 全DLC 中文版（附第一部）
-
-夸克：https://pan.quark.cn/s/c42507f81cff
-
-迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
-
-#### 《杀戮尖塔2（Slay the Spire 2）》v0.105.0b 中文 联机版（附第1部+安卓版）
-
-夸克：https://pan.quark.cn/s/4a575dc211fc
-
-迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
-
-#### 《最后纪元（Last Epoch）豪华版》v1.4.6 中文版
-
-夸克：https://pan.quark.cn/s/7dc7ceb24cb7
-
-#### 《猎人：荒野的召唤（theHunter Call of the Wild）完全版》Build.24022026 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/b5566d4550ab
-
-#### 《龙胤立志传（LongYinLiZhiZhuan）豪华版》v1.0.1f3 中文版
-
-夸克：https://pan.quark.cn/s/c9dc20755576
-
-迅雷：https://pan.xunlei.com/s/VOnlgk6ummic-a4D4UsYNfMVA1?pwd=yvac
-
-#### 《寂静之歌（Songs Of Silence）》v1.9.0 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/60e04ec94244
-
-#### 《重铸纪元：自由地（Age of Reforging The Freelands）支持者版》v1.21d 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/0269e5852063
-
-#### 《饥荒（Dont Starve Together）》v726875 全DLC 中文 联机版（软件联机）
-
-夸克：https://pan.quark.cn/s/cbadff66e8dc
-
-#### 《战锤40K 星际战士2（Warhammer 40000 Space Marine 2）超级版》v12.3.0.1 全DLC 中文版
-#### 《战锤40K 星际战士 大师锻造版》v1.0.156.0 全DLC 汉化版
-#### 《战锤40K 星际战士（Warhammer 40000 Space Marine）周年版》v1.0.156.0 全DLC 中文 联机版
-#### 《战锤40K 战区（Warhammer 40000 Battlesector）豪华版》v1.6.001 全DLC 中文版
-#### 《战锤40K 行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.5.0.293 全DLC 中文版
-#### 《战锤40K 战争黎明 终极版（Warhammer 40000 Dawn of War）终极版》v2025.8.15 中文版
-#### 《战锤40K 角斗士之战争圣器（Warhammer 40000 Gladius Relics of War）》v1.16.2 全DLC 中文版
-#### 《战锤40K 暗潮（Warhammer 40000 Darktide）》v1.6.3427.0 中文 联机版
-#### 《战锤40K 爆矢枪（Warhammer 40000 Boltgun）》v1.22.68871.3 全DLC 豪华中文版
-#### 《战锤40K 格雷迪厄斯（Warhammer 40000 Gladius Relics of War）》v1.14.0 全DLC 豪华中文版
-#### 《战锤 末世鼠疫2（Warhammer Vermintide 2）》v5.5.7 全DLC 豪华中文 联机版
-
-夸克：https://pan.quark.cn/s/42d400d7daa0
-
-迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
 
 ---
 
@@ -459,6 +377,100 @@
 
 ## 已有游戏
 
+#### 《恶意（Dread Neighbor）》v2026.5.8 中文版（心理恐怖游戏）
+
+夸克：https://pan.quark.cn/s/f8064ff9174a
+
+#### 《万物皆可蟹：动物进化 Roguelite（Everything is Crab）》v1.0.0.8074 中文版
+
+夸克：https://pan.quark.cn/s/aae6009c89af
+
+#### 《皓白初晓（Alabaster Dawn）》v0.1.0 中文版
+
+夸克：https://pan.quark.cn/s/78e15e1db895
+
+#### 《混音青春（Mixtape）》v1.1 中文版
+
+夸克：https://pan.quark.cn/s/ff3f77bcceb6
+
+#### 《猎人之首（Xenopurge）》v1.2.0.2 中文版
+
+夸克：https://pan.quark.cn/s/ba4d8088d880
+
+#### 《汪!巫!录!（DOG WITCH）》v1.3 中文版（汪巫录）
+
+夸克：https://pan.quark.cn/s/1bac4b9aa6c5
+
+#### 《恶魔狩猎（Devil's Hunt）》v1.05 中文版（win11无法游玩）
+
+夸克：https://pan.quark.cn/s/c8043a93b083
+
+#### 《萨妮羊研究室（Sani Yang's Laboratory）》v20260508 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/fd2f2389fa35
+
+#### 《异星工厂（Factorio）》v2.0.76 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/abf35a685935
+
+#### 《堕落之主（Lords of the Fallen）豪华版》v2.5.394 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4912658febe6
+
+#### 《下一站江湖2（Next Jianghu II）》v1.1.64(54) 全DLC 中文版（附第一部）
+
+夸克：https://pan.quark.cn/s/c42507f81cff
+
+迅雷：https://pan.xunlei.com/s/VNw04l4vfz6guXqO8J148A1-A1?pwd=h5v6#
+
+#### 《杀戮尖塔2（Slay the Spire 2）》v0.105.0b 中文 联机版（附第1部+安卓版）
+
+夸克：https://pan.quark.cn/s/4a575dc211fc
+
+迅雷：https://pan.xunlei.com/s/VOn16_QKz4Jp1DEcW0xhiiCHA1?pwd=7vj7#
+
+#### 《最后纪元（Last Epoch）豪华版》v1.4.6 中文版
+
+夸克：https://pan.quark.cn/s/7dc7ceb24cb7
+
+#### 《猎人：荒野的召唤（theHunter Call of the Wild）完全版》Build.24022026 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/b5566d4550ab
+
+#### 《龙胤立志传（LongYinLiZhiZhuan）豪华版》v1.0.1f3 中文版
+
+夸克：https://pan.quark.cn/s/c9dc20755576
+
+迅雷：https://pan.xunlei.com/s/VOnlgk6ummic-a4D4UsYNfMVA1?pwd=yvac
+
+#### 《寂静之歌（Songs Of Silence）》v1.9.0 全DLC 中文 联机版（新增DLC）
+
+夸克：https://pan.quark.cn/s/60e04ec94244
+
+#### 《重铸纪元：自由地（Age of Reforging The Freelands）支持者版》v1.21d 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/0269e5852063
+
+#### 《饥荒（Dont Starve Together）》v726875 全DLC 中文 联机版（软件联机）
+
+夸克：https://pan.quark.cn/s/cbadff66e8dc
+
+#### 《战锤40K 星际战士2（Warhammer 40000 Space Marine 2）超级版》v12.3.0.1 全DLC 中文版
+#### 《战锤40K 星际战士 大师锻造版》v1.0.156.0 全DLC 汉化版
+#### 《战锤40K 星际战士（Warhammer 40000 Space Marine）周年版》v1.0.156.0 全DLC 中文 联机版
+#### 《战锤40K 战区（Warhammer 40000 Battlesector）豪华版》v1.6.001 全DLC 中文版
+#### 《战锤40K 行商浪人（Warhammer 40000 Rogue Trader）虚空远航版》v1.5.0.293 全DLC 中文版
+#### 《战锤40K 战争黎明 终极版（Warhammer 40000 Dawn of War）终极版》v2025.8.15 中文版
+#### 《战锤40K 角斗士之战争圣器（Warhammer 40000 Gladius Relics of War）》v1.16.2 全DLC 中文版
+#### 《战锤40K 暗潮（Warhammer 40000 Darktide）》v1.6.3427.0 中文 联机版
+#### 《战锤40K 爆矢枪（Warhammer 40000 Boltgun）》v1.22.68871.3 全DLC 豪华中文版
+#### 《战锤40K 格雷迪厄斯（Warhammer 40000 Gladius Relics of War）》v1.14.0 全DLC 豪华中文版
+#### 《战锤 末世鼠疫2（Warhammer Vermintide 2）》v5.5.7 全DLC 豪华中文 联机版
+
+夸克：https://pan.quark.cn/s/42d400d7daa0
+
+迅雷：https://pan.xunlei.com/s/VO66AjKFj2GlFllW69pKVBa8A1?pwd=uerd#
+
 #### 《符文工房 龙之天地（Rune Factory Guardians of Azuma）》v1.1.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8a27527d8863
@@ -474,10 +486,6 @@
 #### 《太阳帝国的原罪2（Sins of a Solar Empire II）》v1.60.2 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/8a31f937489c
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.0 全DLC 中文 联机版（新增DLC）
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《咒语旅团（The Spell Brigade）》v1.0.2.16727 全DLC 中文 联机版
 
@@ -837,10 +845,6 @@
 #### 《百日战纪 -最终防卫学园-（The Hundred Line Last Defense Academy）》v1.2.0 中文版
 
 夸克：https://pan.quark.cn/s/0e35f0edc76a
-
-#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.18.0.0.858d 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e2644eb87c21
 
 #### 《永久与神树的祈愿者（Towa and the Guardians of the Sacred Tree）豪华版》V1.4 全DLC 中文版
 
