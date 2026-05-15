@@ -9,7 +9,7 @@
 
 ---
 
-> 链接失效、求电影可以 [留言](/zh-cn/bbs) 或者进 Q群@群主
+> 链接失效、求动漫可以 [留言](/zh-cn/bbs) 或者进 Q群@群主
 
 ### 《国产动画 总目录》如果下面的动漫被和谐，请访问总目录
 
@@ -194,7 +194,9 @@
 
 #### 《天相》（2026）4K 26集全
 
-夸克：https://pan.quark.cn/s/275813222298
+夸克：https://pan.quark.cn/s/e31fa7e7f8b0
+
+迅雷：https://pan.xunlei.com/s/VOsdxrhAMcXVEalcsiAkMRBpA1?pwd=98q6#
 
 #### 《仙王的日常生活》（2020-2025）4K 1-5季全
 

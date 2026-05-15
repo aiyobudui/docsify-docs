@@ -10,7 +10,7 @@
 
 > 1.可下载收藏，可电视，电脑，手机在线观看，需安装对应平台APP即可  
 > 2.只分享无水印，无广告的资源。如有发现那个文件携带，请留言告知  
-> 3.链接失效、求片可以 [留言](/zh-cn/bbs) 或者进 Q群@群主
+> 3.链接失效、求美剧可以 [留言](/zh-cn/bbs) 或者进 Q群@群主
 
 ---
 
@@ -64,9 +64,13 @@
 
 夸克：https://pan.quark.cn/s/52985f1aee2c
 
-#### 《美国恐怖故事》1-12季全 1080P 中字
+迅雷：https://pan.xunlei.com/s/VOse7S04peWZneP3Lx95PBK1A1?pwd=fe4i#
+
+#### 《美国恐怖故事集》（2005-2023）1-12季全 1080P 中字
 
 夸克：https://pan.quark.cn/s/0feba04cbdad
+
+迅雷：https://pan.xunlei.com/s/VOseDC6OpZMYX54SEUiIoDQmA1?pwd=y9js#
 
 #### 《黑帮领地》（2025）第一季 1080P 10集全
 
@@ -160,6 +164,8 @@
 
 夸克：https://pan.quark.cn/s/0cc6cb28b079
 
+迅雷：https://pan.xunlei.com/s/VOseUhC0XNSTo1KgrR9uVUAmA1?pwd=xkwz#
+
 #### 《行尸走肉：死城》（2023-2025）1-2季全 1080P 中英字幕
 
 夸克：https://pan.quark.cn/s/f919f2c449c5
@@ -184,13 +190,19 @@
 
 夸克：https://pan.quark.cn/s/21b6c2b45ba5
 
-#### 《永航员》（2025）1080P 中字 6集全 （科幻灾难）
+迅雷：https://pan.xunlei.com/s/VOseTllTD2zWr2WRp1DW6JrgA1?pwd=qsmr#
+
+#### 《永航员》（2025）1080P 中字 6集全（科幻灾难）
 
 夸克：https://pan.quark.cn/s/b43aef4d647f
 
-#### 《了不起的麦瑟尔夫人》（2017-2023）1080P 高码 1-5季全 内封中字
+迅雷：https://pan.xunlei.com/s/VOseSNDfQMzsA-yRexJh6vAvA1?pwd=agch#
+
+#### 《了不起的麦瑟尔夫人》（2017-2023）1080P 高码 1-5季全 内封中字（迅雷4K HDR）
 
 夸克：https://pan.quark.cn/s/b1222dd4f818
+
+迅雷：https://pan.xunlei.com/s/VOseRfHKxxy61dUzuQXnOSb_A1?pwd=v3m4#
 
 #### 《时光之轮》（2021-2023）1-3季全 蓝光4K HDR 中英字幕（小说改编诗史奇幻剧）
 
@@ -203,6 +215,14 @@
 #### 《人生切割术》（2022-2025）4K 1-2季全 中字
 
 夸克：https://pan.quark.cn/s/eb3956975446
+
+迅雷：https://pan.xunlei.com/s/VOseP0Aq7RbVe-l_Bu9W6Fm9A1?pwd=tnrw#
+
+#### 《老爸老妈的浪漫史》（2005-2013）1-9季全 蓝光1080P 内封中字（寻妈记）
+
+夸克：https://pan.quark.cn/s/04b24cc67c60
+
+迅雷：https://pan.xunlei.com/s/VOse6cDoU-erPy59fsoSaRaNA1?pwd=9nm4#
 
 #### 《黑镜》（2011-2025）1-7季+特别篇 1080P高码 特效中字（高分脑洞单元剧）
 
@@ -244,6 +264,8 @@
 
 夸克：https://pan.quark.cn/s/8bd660a6df73
 
+迅雷：https://pan.xunlei.com/s/VOseFSuB9YYQvEJ2of-GK0DLA1?pwd=b78u#
+
 #### 《甲虫村》（2019-2022）1080P 中字（爆笑俄剧）
 
 夸克：https://pan.quark.cn/s/2071bc927981
@@ -260,7 +282,7 @@
 
 夸克：https://pan.quark.cn/s/b9241357214b
 
-#### 《豺狼的日子》（2024）4K+1080P 10集全 中字
+#### 《豺狼的日子》（2024）4K 10集全 中字
 
 夸克：https://pan.quark.cn/s/9045fcabab72
 
@@ -278,21 +300,31 @@
 
 夸克：https://pan.quark.cn/s/d7949d0f63f6
 
+迅雷：https://pan.xunlei.com/s/VOseNYPDP8Yz1cykHFLohKCpA1?pwd=vzms#
+
 #### 《百年孤独》（2024）1080P 8集全 西班牙+英语
 
 夸克：https://pan.quark.cn/s/8508828cdab2
 
-#### 《梦魇绝镇》（2022-2024） 1-3季 1080P 中字
+迅雷：https://pan.xunlei.com/s/VOseMzgzt9Jxq5XolVRgVFWqA1?pwd=4zs2#
+
+#### 《梦魇绝镇》（2022-2024）1-3季 1080P 中字
 
 夸克：https://pan.quark.cn/s/41716e9f4c3a
 
-#### 《办公室》（2005-2012）1-9季全 1080P 中字
+迅雷：https://pan.xunlei.com/s/VOseMOnMpsNrhvKLNupHxVl6A1?pwd=nua9#
+
+#### 《办公室 The Office》（2005-2012）1-9季全 蓝光1080P 中字
 
 夸克：https://pan.quark.cn/s/42a5699bbfd1
 
-#### 《神烦警探》（2013-2023）1-8季全 1080P 中字
+迅雷：https://pan.xunlei.com/s/VOseK_9tZi8SXWPcR_URuCQXA1?pwd=mh79#
+
+#### 《神烦警探 Brooklyn Nine》（2013-2023）1-8季全 1080P 中字
 
 夸克：https://pan.quark.cn/s/2f5cb40793fa
+
+迅雷：https://pan.xunlei.com/s/VOseHD02peWZneP3Lx95U3B-A1?pwd=me33#
 
 #### 《企鹅人》（2024）4K HDR + 1080P 8集全
 
@@ -456,7 +488,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNwLnOlB7LwoqSAV5JVsZYjfA1?pwd=cvze#
 
-#### 《幕府将军 (2024) 4K HDR 日英音轨 10集全
+#### 《幕府将军》 (2024) 4K HDR 日英音轨 10集全（附小说）
 
 夸克：https://pan.quark.cn/s/ebe31e4da28d
 

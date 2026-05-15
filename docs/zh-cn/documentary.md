@@ -2,6 +2,8 @@
 
 ---
 
+> 链接失效、求纪录片可以 [留言](/zh-cn/bbs) 或者进 Q群@群主
+
 #### 《揭露时代》（2025）1080P 中字
 
 夸克：https://pan.quark.cn/s/850c15dae2bc
@@ -10,11 +12,9 @@
 
 夸克：https://pan.quark.cn/s/6f4e2d976359
 
+---
+
 ## BBC纪录片
-
-#### 《BBC纪录片专题》(972GB)
-
-夸克：https://pan.quark.cn/s/e7e1f395e9ae
 
 #### 《蓝色星球》（2001-2017）1-2季全 4K + 蓝光1080P 中英字幕（BBC 高分纪录片）
 
@@ -24,7 +24,7 @@
 
 阿里：<https://www.aliyundrive.com/s/CQJk9gshwvd>
 
-#### 《冰冻星球》（2011-2022）1-2季全 1080P高码 中字（BBC纪录片）
+#### 《冰冻星球》（2011-2022）1-2季全 4K 国粤语配音 中字（BBC纪录片）
 
 夸克：https://pan.quark.cn/s/94fabf94b333
 
@@ -44,7 +44,7 @@
 
 阿里：<https://www.aliyundrive.com/s/fMYqCp9oFHU>
 
-#### 《史前星球》（2022-2023）1-2季全 4K HDR（BBC纪录片）
+#### 《史前星球》（2022-2023）1-3季全 4K HDR（BBC纪录片）
 
 夸克：https://pan.quark.cn/s/ef3972d78588
 
@@ -139,6 +139,12 @@
 迅雷：https://pan.xunlei.com/s/VNl8qN63KhPrllS2koh4DCKVA1?pwd=x84u#
 
 阿里：<https://www.aliyundrive.com/s/Puqp6KVK66g>
+
+#### 《恐龙时代：你不知道的故事》（2026）1080P 中字 4集全
+
+夸克：https://pan.quark.cn/s/5d364f5a079a
+
+迅雷：https://pan.xunlei.com/s/VOse1kgnpsNrhvKLNupHoPhMA1?pwd=qbuz#
 
 #### 《超凡动物奇观》（2022）4K HDR 中英配音（国家地理高分纪录片）
 

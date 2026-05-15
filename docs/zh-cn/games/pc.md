@@ -136,6 +136,15 @@
 
 夸克：https://pan.quark.cn/s/b3bff10ee4a7
 
+#### 《涅克罗蒙达：赏金猎人（Necromunda Hired Gun）》v1.62662 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/8097ab003e4c
+
+#### 《莎木1+2（Shenmue I & II）》v1.07 中文版
+#### 《莎木3（Shenmue III）》v1.06.01 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e613ac2d1084
+
 #### 《梦幻小镇（Everdream Village）》v6.402.1356 中文版
 
 夸克：https://pan.quark.cn/s/baf212bb8d89
