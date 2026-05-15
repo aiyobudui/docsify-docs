@@ -50,8 +50,12 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《极限竞速：地平线6（Forza Horizon 6）高级版》v354.221 全DLC 中文版
-游戏就没有使用D加密，不建议游玩泄露版，现在泄露版需登陆Microsoft账户，游戏还未发售，现在用学习版很可能会被官方一键封禁你的电脑硬件机器码，不要挑战官方底线
+#### 《极限竞速：地平线6（Forza Horizon 6）高级版》v354.221 全DLC 中文 联机版
+#### 《极限竞速：地平线5（Forza Horizon 5）顶级版》v1.688.044 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/7c5fdf0323c4
+
+迅雷：https://pan.xunlei.com/s/VNy6DMCGLQnrFS8e9c2zVJFsA1?pwd=ejxs#
 
 #### 《识质存在（PRAGMATA）豪华版》Build.22357085 全DLC 中文版（非虚拟化版本）
 
@@ -2394,12 +2398,6 @@
 #### 《怪物火车2（Monster Train 2）》v16171 全DLC 中文版（附第一部）
 
 夸克：https://pan.quark.cn/s/638c33888d8a
-
-#### 《极限竞速 地平线5（Forza Horizon 5）顶级版》v1.688.044 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/7c5fdf0323c4
-
-迅雷：https://pan.xunlei.com/s/VNy6DMCGLQnrFS8e9c2zVJFsA1?pwd=ejxs#
 
 #### 《蝙蝠侠 阿卡姆骑士（Batman Arkham Knight）年度版》v1.999 全DLC 汉化版
 #### 《蝙蝠侠：阿卡姆疯人院（Batman Arkham Asylum）年度版》v1.1 全DLC 汉化版
