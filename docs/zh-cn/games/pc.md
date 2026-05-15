@@ -164,6 +164,10 @@
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
+#### 《罪恶装备 奋战（GUILTY GEAR -STRIVE-）》v2.01 全DLC 中文 联机版（圣骑士之战 -奋战-）
+
+夸克：https://pan.quark.cn/s/e94c4d864e27
+
 #### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.7.1 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/6b3dff37f4cb
@@ -175,6 +179,12 @@
 #### 《星界战士（Astral Ascent）》v2.6.0 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/3b574e47e800
+
+#### 《遥遥西土（Far Far West）》v644 中文 联机版
+
+夸克：https://pan.quark.cn/s/f14aacfee7dd
+
+迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
 
 #### 《静默恐惧：老灯塔十五夜（Static Dread）》v1.2.1 全DLC 中文版（恐怖解密）
 
@@ -609,12 +619,6 @@
 #### 《双箭头豪华版（Twin Shot Deluxe）》Build.22798524 中文版（本地4人联机）
 
 夸克：https://pan.quark.cn/s/9e9c8071ee98
-
-#### 《遥遥西土（Far Far West）》v594 中文 联机版
-
-夸克：https://pan.quark.cn/s/f14aacfee7dd
-
-迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
 
 #### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
 
@@ -5441,10 +5445,6 @@
 #### 《异形战机最终版2（R-Type Final 2）》v2.0.4 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/3d88af851101
-
-#### 《罪恶装备：奋战（GUILTY GEAR -STRIVE-）终极版》Build.19428907 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e94c4d864e27
 
 #### 《秋末求生（Survive the Fall）》v1.0.3.2397 中文版
 

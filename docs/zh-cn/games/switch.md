@@ -51,6 +51,10 @@
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
+#### 《怪物火车2 Monster Train 2》v2.1 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/04f93cc69e2d
+
 #### 《潜水员戴夫 DAVE THE DIVER》v1.0.5.1111 NS整合 全DLC 美区中文版
 
 夸克：https://pan.quark.cn/s/287adeaffadc
