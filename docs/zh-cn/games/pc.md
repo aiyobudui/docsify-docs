@@ -50,7 +50,7 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《极限竞速：地平线6（Forza Horizon 6）高级版》v354.221 全DLC 中文 联机版
+#### 《极限竞速：地平线6（Forza Horizon 6）》v354.221 全DLC 中文 联机版
 #### 《极限竞速：地平线5（Forza Horizon 5）顶级版》v1.688.044 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/7c5fdf0323c4
@@ -163,6 +163,24 @@
 夸克：https://pan.quark.cn/s/f618becc1c8f
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.7.1 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
+
+#### 《伊始之地（Terra Nil）豪华版》v1.2.12 中文版
+
+夸克：https://pan.quark.cn/s/90b60ae2cc4a
+
+#### 《星界战士（Astral Ascent）》v2.6.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3b574e47e800
+
+#### 《静默恐惧：老灯塔十五夜（Static Dread）》v1.2.1 全DLC 中文版（恐怖解密）
+
+夸克：https://pan.quark.cn/s/6deca0e36190
+
+迅雷：https://pan.xunlei.com/s/VOnHWAHd5FqS2M3NKcjRiaBJA1?pwd=kx4v
 
 #### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.18.1.0.8549 全DLC 中文 联机版
 
@@ -1749,12 +1767,6 @@
 
 夸克：https://pan.quark.cn/s/0dc0e9840bcf
 
-#### 《静默恐惧 老灯塔十五夜（Static Dread）》v2026.3.6 全DLC 中文版（恐怖解密）
-
-夸克：https://pan.quark.cn/s/6deca0e36190
-
-迅雷：https://pan.xunlei.com/s/VOnHWAHd5FqS2M3NKcjRiaBJA1?pwd=kx4v
-
 #### 《夏日口袋 流光蓝（Summer Pockets REFLECTION BLUE）》v1.4.2.1 中文版（视觉小说）
 
 夸克：https://pan.quark.cn/s/c2b1316245c1
@@ -3258,10 +3270,6 @@
 
 夸克：https://pan.quark.cn/s/6758e2260430
 
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.04.1 中文 联机版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
-
 #### 《困兽之国（Drova - Forsaken Kin）》v1.3.4a 中文版
 
 夸克：https://pan.quark.cn/s/1698fe9021d3
@@ -4649,10 +4657,6 @@
 #### 《Mai Child of Ages》v1.0 中文版（动作冒险 女性角色）
 
 夸克：https://pan.quark.cn/s/036c85ee9e0d
-
-#### 《伊始之地（Terra Nil）豪华版》v1.2.10 中文版
-
-夸克：https://pan.quark.cn/s/90b60ae2cc4a
 
 #### 《寻找伪人（No Im not a Human）》v1.1.17 中文版
 
@@ -7431,10 +7435,6 @@
 
 夸克：https://pan.quark.cn/s/416b847daa4a
 
-#### 《星界战士 -狱外世界（Astral Ascent）》v2.0.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3b574e47e800
-
 #### 《One Room Dungeon》v1.0.0 中文版（单间地牢？一室地牢？）
 
 夸克：https://pan.quark.cn/s/56f973c7abdf
@@ -8514,10 +8514,6 @@
 #### 《掘地求财（A Game About Digging A Hole）》v2025.2.10 中文版
 
 夸克：https://pan.quark.cn/s/d81556dcef9f
-
-#### 《星界战士（Astral Ascent）》v1.10.1 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b6bbabb58549
 
 #### 《火影忍者 究极风暴羁绊（NARUTO X BORUTO）》v1.60 全DLC 中文 终极 联机版
 

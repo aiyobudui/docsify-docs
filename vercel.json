@@ -31,11 +31,5 @@
         }
       ]
     }
-  ],
-  "output": {
-    "export": {
-      "include": ["docs/**/*"],
-      "exclude": ["docs/**/*.md"]
-    }
-  }
+  ]
 }
