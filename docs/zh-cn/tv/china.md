@@ -19,7 +19,7 @@
 
 #### 《低智商犯罪》（2026）4K 24集全
 
-夸克：https://pan.quark.cn/s/7d172ee6e881
+夸克：https://pan.quark.cn/s/bfef4535eb35
 
 迅雷：https://pan.xunlei.com/s/VOsHVhXzCfizJ0oKE8ceK79SA1?pwd=a2gi#
 

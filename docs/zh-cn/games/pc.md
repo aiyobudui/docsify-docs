@@ -90,6 +90,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《今古群侠传（Psychic Kung Fu Master）》v1.00 中文版
+
+夸克：https://pan.quark.cn/s/577df7c94ae6
+
 #### 《WILL Follow The Light》v2026.5.15 中文版（冒险解密游戏）威尔：追随光明
 
 夸克：https://pan.quark.cn/s/97e42375f66e
