@@ -90,6 +90,18 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《图书管理员：整理魔法图书馆吧！（Librarian Tidy Up the Arcane Library!）》v1.0.8 中文版
+
+夸克：https://pan.quark.cn/s/76458c999b68
+
+#### 《酒店建筑师（Hotel Architect）》v1.0.0.7 中文版
+
+夸克：https://pan.quark.cn/s/6bab9fcb80fe
+
+#### 《落难航船 诅咒之岛的探险者（Stranded Sails）》v1.48 中文版
+
+夸克：https://pan.quark.cn/s/c8605fe8df91
+
 #### 《今古群侠传（Psychic Kung Fu Master）》v1.00 中文版
 
 夸克：https://pan.quark.cn/s/577df7c94ae6
@@ -129,6 +141,22 @@
 ---
 
 ## 最近更新
+
+#### 《小小书店（Tiny Bookshop）》v1.1.6 中文版（模拟经营）
+
+夸克：https://pan.quark.cn/s/2c157e143ecc
+
+#### 《兔子与钢铁（Rabbit and Steel）》v2.0.2.7 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/3520ffa6be87
+
+#### 《魔鸡马奇克2（Machick 2）》v1.1.8 中文版
+
+夸克：https://pan.quark.cn/s/aa6ebc0e322f
+
+#### 《铁骑少女（Cavalry Girls）》v2.6.2801 全DLC 中文版（FPS射击游戏）
+
+夸克：https://pan.quark.cn/s/00d69b1cfd42
 
 #### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.7.76.0 全DLC 中文配音版
 #### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
@@ -1380,6 +1408,7 @@
 #### 《实况足球2021（eFootball PES 2021）》v1.01.00 中文版
 #### 《实况足球2018（Pro Evolution Soccer 2018）》v1.01.02 中文版
 #### 《实况足球2017（Pro Evolution Soccer 2017）》v1.01.00 中文版
+#### 《实况足球2010（Pro Evolution Soccer 2010）》v1.06 中文版
 
 夸克：https://pan.quark.cn/s/072c908dc3e6
 
@@ -3620,10 +3649,6 @@
 
 夸克：https://pan.quark.cn/s/6f60af95df33
 
-#### 《小小书店（Tiny Bookshop）》v1.0.8 中文版（模拟经营）
-
-夸克：https://pan.quark.cn/s/2c157e143ecc
-
 #### 《东方夜雀食堂（Touhou Mystia's Izakaya）》v4.3.0c 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/326f1b18828c
@@ -3981,10 +4006,6 @@
 #### 《寓言之地 （Fabledom）》v1.083 中文版
 
 夸克：https://pan.quark.cn/s/b8397ec57d61
-
-#### 《铁骑少女（Cavalry Girls）》v2.3.2467 全DLC 中文版（FPS射击游戏）
-
-夸克：https://pan.quark.cn/s/00d69b1cfd42
 
 #### 《黑色洛城（L.A. Noire）》v2675.1 全DLC 汉化版
 
@@ -4967,10 +4988,6 @@
 #### 《怪谈：1992（Uncanny Tales 1992）》v1.0.0 中文版（恐怖游戏）
 
 夸克：https://pan.quark.cn/s/1c95a010c35f
-
-#### 《魔鸡马奇克2（Machick 2）》v1.0.2 中文版
-
-夸克：https://pan.quark.cn/s/aa6ebc0e322f
 
 #### 《怒海章袭（Operation Octo）》v1.0 中文版（塔防游戏）
 
@@ -8322,10 +8339,6 @@
 #### 《恐慌核心（PANICORE）》v1.12 中文 联机版
 
 夸克：https://pan.quark.cn/s/b55ec6d35e04
-
-#### 《兔子与钢铁（Rabbit and Steel）》v2025.2.24 中文版
-
-夸克：https://pan.quark.cn/s/3520ffa6be87
 
 #### 《意航员2（Psychonauts 2）》v1101213 中文版
 

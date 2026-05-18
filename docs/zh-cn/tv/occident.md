@@ -32,13 +32,19 @@
 
 阿里：<https://www.aliyundrive.com/s/yYcpkVP3aYw>
 
-#### 《老练律师》（2024-2025）1080P 中英字幕 1-2季全
+#### 《亢奋》（2019-2022）1080P 第三季 更新中..（附1-2季全+特别篇）
 
-夸克：https://pan.quark.cn/s/b5ae8073db91
+夸克：https://pan.quark.cn/s/4522695a8c08
+
+迅雷：https://pan.xunlei.com/s/VNy0SWGNad5Z1gEgyF4UjQfFA1?pwd=6ssf#
 
 ---
 
 ## 已完结的
+
+#### 《老练律师》（2024-2025）1080P 中英字幕 1-2季全
+
+夸克：https://pan.quark.cn/s/b5ae8073db91
 
 #### 《七王国的骑士》（2026）第一季 4K 6集全（权力的游戏衍生剧）
 
@@ -475,12 +481,6 @@
 夸克：https://pan.quark.cn/s/36e6f8f33b60
 
 迅雷：https://pan.xunlei.com/s/VNy0S0FOrVlLoxFQP1f8FYWGA1?pwd=pifc#
-
-#### 《亢奋》（2019-2022）1-2季全+特别篇 1080P 中英字幕
-
-夸克：https://pan.quark.cn/s/4522695a8c08
-
-迅雷：https://pan.xunlei.com/s/VNy0SWGNad5Z1gEgyF4UjQfFA1?pwd=6ssf#
 
 #### 《群星》（2024）4K HDR+ 1080P 中字 8集全
 

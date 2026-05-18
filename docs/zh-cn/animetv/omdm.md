@@ -101,13 +101,13 @@
 
 阿里：<https://www.aliyundrive.com/s/K8cLi2tT1yy>
 
-#### 《蓝眼武士》（2023）1080P 全8集 英日配音.中文字幕
+#### 《蓝眼武士》（2023）1080P 8集全 英日配音 中文字幕
 
 夸克：https://pan.quark.cn/s/9afdb1ba483d
 
 迅雷：https://pan.xunlei.com/s/VNnmiMN3ZeWlPUCprlLjK5GvA1?pwd=54ab#
 
-阿里：<https://www.alipan.com/s/Mb1hwJNkr6C>
+阿里：<https://www.aliyundrive.com/s/K8cLi2tT1yy>
 
 #### 《万神殿》 1-2季.1080P.高码.H265.内置中英+外挂字幕
 
@@ -123,7 +123,7 @@
 
 迅雷：https://pan.xunlei.com/s/VNnml6DjwIVhsbRxPmC_7RtqA1?pwd=yp3v#
 
-阿里：<https://www.aliyundrive.com/s/42iamoQk2Wa>
+阿里：<https://www.aliyundrive.com/s/K8cLi2tT1yy>
 
 #### 《赛博朋克：边缘行者》第一季 日英配音 中字
 

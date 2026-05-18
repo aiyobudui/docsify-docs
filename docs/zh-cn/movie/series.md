@@ -25,7 +25,7 @@
 
 迅雷：<https://pan.xunlei.com/s/VNxvlqXVmbh7n_nz75h2HajgA1?pwd=8hqq#>
 
-#### 《豆瓣 TOP250 电影》4K REMUX +1080P 国英音轨 高分电影合集
+#### 《豆瓣TOP250 电影》4K REMUX +1080P 国英音轨 高分电影合集
 
 夸克：<https://pan.quark.cn/s/1eeeabb14add>  1080P蓝光 国英音轨 特效字幕
 
