@@ -47,6 +47,12 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
+#### 《为美好世界献上祝福！希望迷宫与聚集的冒险者们Plus》v1.0.0 NS整合 日文版
+#### 《为美好世界献上祝福！请宠爱这个欲望的服装！》v1.0.0 NS整合 日文版
+#### 《为美好世界献上祝福！为贪婪的游戏献上审判》v1.0.1 NS整合 日文版
+
+夸克：https://pan.quark.cn/s/7803702e2dd7
+
 #### 《异星探险家  ASTRONEER》v1.40.3.0 NS整合 全DLC 美区中文版
 
 夸克：https://pan.quark.cn/s/e74dfe085cb3
@@ -54,10 +60,6 @@
 #### 《碧屿之下 Under The Island》v1.0.7 NS整合 中文版
 
 夸克：https://pan.quark.cn/s/f1f5bb9cd304
-
-#### 《宝可梦传说ZA》v2.0.2 NS整合 全DLC 中文版（宝可梦Z-A）
-
-夸克：https://pan.quark.cn/s/dcbd1b6a2883
 
 #### 《拾光旅人 Outbound》v2.6.1 NS整合 中文版
 
@@ -258,10 +260,6 @@
 #### 《新美妙世界（NEO The World Ends with You）》v1.03 NS整合 全DLC 汉化版
 
 夸克：https://pan.quark.cn/s/1d08b12e2ce1
-
-#### 《超级马里奥银河1+2》v1.3.1 NS未整合 中文版
-
-夸克：https://pan.quark.cn/s/b3fdb30e21f2
 
 #### 《超级忍 反攻的斩击》v65536 NS整合 全DLC 中文版
 
@@ -638,6 +636,10 @@
 
 ## 宝可梦系列
 
+#### 《宝可梦传说ZA》v2.0.2 NS整合 全DLC 中文版（宝可梦Z-A）
+
+夸克：https://pan.quark.cn/s/dcbd1b6a2883
+
 #### 《宝可梦朱紫》v3.0.1 + v4.0.0 NS整合 全DLC 中文版 附金手指+60帧补丁
 
 夸克：https://pan.quark.cn/s/53a768ccc4a8
@@ -754,6 +756,14 @@
 ---
 
 ## 马里奥系列
+
+#### 《马里奥与路易吉RPG：兄弟齐航 Mario & Luigi Brothership》v1.0.1 NS未整合 中文版
+
+夸克：https://pan.quark.cn/s/2545c3fa30a2
+
+#### 《超级马里奥银河1+2》v1.3.1 NS未整合 中文版
+
+夸克：https://pan.quark.cn/s/b3fdb30e21f2
 
 #### 《马里奥赛车8》v3.0.5 NS整合 全DLC 豪华中文版
 
