@@ -90,6 +90,10 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《海盗：加勒比海战（Corsairs Battle of the Caribbean）》v2026.5.19 中文版
+
+夸克：https://pan.quark.cn/s/30d8c0de9ef9
+
 #### 《绝地鸭卫（PlatyGuard Swarm Slayer）》v1.3.3 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/c9d392ed8964

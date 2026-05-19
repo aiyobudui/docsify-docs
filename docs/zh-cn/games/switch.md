@@ -47,9 +47,49 @@
 ## 已有游戏
 !> 靠前的是新添加的，没有你要的NS游戏或打不开等问题可以进群@群主 帮你解决
 
+#### 《异星探险家  ASTRONEER》v1.40.3.0 NS整合 全DLC 美区中文版
+
+夸克：https://pan.quark.cn/s/e74dfe085cb3
+
+#### 《碧屿之下 Under The Island》v1.0.7 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/f1f5bb9cd304
+
 #### 《宝可梦传说ZA》v2.0.2 NS整合 全DLC 中文版（宝可梦Z-A）
 
 夸克：https://pan.quark.cn/s/dcbd1b6a2883
+
+#### 《拾光旅人 Outbound》v2.6.1 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/fb46d24d7cb7
+
+#### 《最后的信仰 The Last Faith》v1.9.13726.20.65 NS整合 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/cb22593cf9a2
+
+#### 《暗阈 Rumbral》v1.0.2 NS整合 美区中文版
+
+夸克：https://pan.quark.cn/s/959a3b35c26f
+
+#### 《小猫咪大城市》v1.26.5.1.6747 NS整合 美区中文版
+
+夸克：https://pan.quark.cn/s/169303297ee0
+
+#### 《恶魔宝贝 DAMON and BABY》v1.0.6 NS整合 美区中文版
+
+夸克：https://pan.quark.cn/s/6594378a1acb
+
+#### 《朋友收集 梦想生活》v1.0.2 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/b20b1f142470
+
+#### 《怪物猎人GU》v1.4.0 NS整合 高清 中文版
+
+夸克：https://pan.quark.cn/s/2aa4186e4803
+
+#### 《空寂无人 DESERTED》v1.0.4 NS整合 中文版
+
+夸克：https://pan.quark.cn/s/f69ff06c2b9c
 
 #### 《怪物火车2 Monster Train 2》v2.1 NS整合 全DLC 美区中文版
 
@@ -537,7 +577,8 @@
 
 夸克：https://pan.quark.cn/s/44eedbd78fa3
 
-#### 《哈迪斯（Hades）》v1.0.37136 NS中文版
+#### 《哈迪斯（Hades）》v1.0.38233 NS整合 中文版
+#### 《哈迪斯2（Hades II）》v1.0.37136 NS整合 美区中文版
 
 夸克：https://pan.quark.cn/s/233fd5d946bd
 
