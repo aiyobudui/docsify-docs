@@ -90,6 +90,22 @@
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
+#### 《代号三国：龙起（The Three Kingdoms Rebirth）》Build.22973501 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/33f2a6c7843f
+
+#### 《海参大作战（NAMAKORIUM）支持者版》v1.0.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/a3fe442e261c
+
+迅雷：https://pan.xunlei.com/s/VOszf4nC8ssFNYgHqt7uBQeDA1?pwd=hu8d#
+
+#### 《真探3 （Case Cracker 3）》Build 23230846 中文版
+#### 《真探2 （Case Cracker 2）》Build.14462404 中文版
+#### 《真探 （Case Cracker）》v1.1.1 中文版
+
+夸克：https://pan.quark.cn/s/55be4234011a
+
 #### 《海盗：加勒比海战（Corsairs Battle of the Caribbean）》v2026.5.19 中文版
 
 夸克：https://pan.quark.cn/s/30d8c0de9ef9
@@ -122,38 +138,6 @@
 
 夸克：https://pan.quark.cn/s/577df7c94ae6
 
-#### 《WILL Follow The Light》v2026.5.15 中文版（冒险解密游戏）威尔：追随光明
-
-夸克：https://pan.quark.cn/s/97e42375f66e
-
-#### 《疫区档案（Vultures Scavengers of Death）》v1.0.2 中文版
-
-夸克：https://pan.quark.cn/s/73f922c57a1e
-
-#### 《惊悚故事：雪孩子（Creepy Tale Snow Child）》v1.0.0.8 中文版
-
-夸克：https://pan.quark.cn/s/19deea4ab68b
-
-#### 《鹅鹅纪元（Goose Evolution）》Build.21881346 中文版
-
-夸克：https://pan.quark.cn/s/3ea7001e8d61
-
-#### 《逆境求生（Better Late Than DEAD）》v0.191 中文版
-
-夸克：https://pan.quark.cn/s/5c99caf9d0d6
-
-#### 《月球骗子（Bogos Binted）》v1.1.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/048c6b3ed675
-
-#### 《暴打联盟（Underling Uprising）》v10.0.404 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/e79de75324da
-
-#### 《8020号指令（Directive 8020）》Build.22697142 中文版
-
-夸克：https://pan.quark.cn/s/c14855858fd5
-
 ---
 
 ## 最近更新
@@ -166,6 +150,10 @@
 
 夸克：https://pan.quark.cn/s/3520ffa6be87
 
+#### 《阿喀琉斯：幸存者（Achilles Survivor）》v1.5.14085 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/576d87afdf01
+
 #### 《魔鸡马奇克2（Machick 2）》v1.1.8 中文版
 
 夸克：https://pan.quark.cn/s/aa6ebc0e322f
@@ -173,6 +161,10 @@
 #### 《铁骑少女（Cavalry Girls）》v2.6.2801 全DLC 中文版（FPS射击游戏）
 
 夸克：https://pan.quark.cn/s/00d69b1cfd42
+
+#### 《金田一耕助系列 本阵杀人事件（Kindaichi Mystery Series The Honjin Murders）》Build.18989803 中文版
+
+夸克：https://pan.quark.cn/s/750572f0934b
 
 #### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.7.76.0 全DLC 中文配音版
 #### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
@@ -192,38 +184,6 @@
 #### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.7.1 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/6b3dff37f4cb
-
-#### 《伊始之地（Terra Nil）豪华版》v1.2.12 中文版
-
-夸克：https://pan.quark.cn/s/90b60ae2cc4a
-
-#### 《星界战士（Astral Ascent）》v2.6.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/3b574e47e800
-
-#### 《遥遥西土（Far Far West）》v644 中文 联机版
-
-夸克：https://pan.quark.cn/s/f14aacfee7dd
-
-迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
-
-#### 《静默恐惧：老灯塔十五夜（Static Dread）》v1.2.1 全DLC 中文版（恐怖解密）
-
-夸克：https://pan.quark.cn/s/6deca0e36190
-
-迅雷：https://pan.xunlei.com/s/VOnHWAHd5FqS2M3NKcjRiaBJA1?pwd=kx4v
-
-#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.18.1.0.8549 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/e2644eb87c21
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.2 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
-
-#### 《云族裔（inZOI）》v0.8.3 全DLC 中文版（韩国模拟人生）
-
-夸克：https://pan.quark.cn/s/8458e4ca4a38
 
 ---
 
@@ -381,6 +341,70 @@
 ---
 
 ## 已有游戏
+
+#### 《伊始之地（Terra Nil）豪华版》v1.2.12 中文版
+
+夸克：https://pan.quark.cn/s/90b60ae2cc4a
+
+#### 《星界战士（Astral Ascent）》v2.6.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/3b574e47e800
+
+#### 《遥遥西土（Far Far West）》v644 中文 联机版
+
+夸克：https://pan.quark.cn/s/f14aacfee7dd
+
+迅雷：https://pan.xunlei.com/s/VOrhMMTqhgGcx0W7mbqG-cIeA1?pwd=jf28#
+
+#### 《静默恐惧：老灯塔十五夜（Static Dread）》v1.2.1 全DLC 中文版（恐怖解密）
+
+夸克：https://pan.quark.cn/s/6deca0e36190
+
+迅雷：https://pan.xunlei.com/s/VOnHWAHd5FqS2M3NKcjRiaBJA1?pwd=kx4v
+
+#### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.18.1.0.8549 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/e2644eb87c21
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.2 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《云族裔（inZOI）》v0.8.3 全DLC 中文版（韩国模拟人生）
+
+夸克：https://pan.quark.cn/s/8458e4ca4a38
+
+#### 《WILL Follow The Light》v2026.5.15 中文版（冒险解密游戏）威尔：追随光明
+
+夸克：https://pan.quark.cn/s/97e42375f66e
+
+#### 《疫区档案（Vultures Scavengers of Death）》v1.0.2 中文版
+
+夸克：https://pan.quark.cn/s/73f922c57a1e
+
+#### 《惊悚故事：雪孩子（Creepy Tale Snow Child）》v1.0.0.8 中文版
+
+夸克：https://pan.quark.cn/s/19deea4ab68b
+
+#### 《鹅鹅纪元（Goose Evolution）》Build.21881346 中文版
+
+夸克：https://pan.quark.cn/s/3ea7001e8d61
+
+#### 《逆境求生（Better Late Than DEAD）》v0.191 中文版
+
+夸克：https://pan.quark.cn/s/5c99caf9d0d6
+
+#### 《月球骗子（Bogos Binted）》v1.1.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/048c6b3ed675
+
+#### 《暴打联盟（Underling Uprising）》v10.0.404 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e79de75324da
+
+#### 《8020号指令（Directive 8020）》Build.22697142 中文版
+
+夸克：https://pan.quark.cn/s/c14855858fd5
 
 #### 《肉鸽指挥部（Rogue Command）》v1.0.3 中文版
 
@@ -703,10 +727,6 @@
 #### 《冒险家商店（Loot Tycoon）》v0.4.4 中文版
 
 夸克：https://pan.quark.cn/s/48bc1c7473b5
-
-#### 《心之岛（Island of Hearts）》Build.22634882 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/b35015e315d3
 
 #### 《杀出重围：人类分裂（Deus Ex Mankind Divided）》v1.19 全DLC 汉化版
 #### 《杀出重围3：人类革命（Deus Ex Human Revolution）导演剪辑版》Build.2.0.0.0 全DLC 汉化版
@@ -2782,10 +2802,6 @@
 #### 《Flotsam》v1.0.0f12 中文版（蜉蝣世界、漂流品）
 
 夸克：https://pan.quark.cn/s/9b208670cc90
-
-#### 《血薪记：罪恶园区（Blood Money Lethal Eden）》v2026.1.11 中文版（真人互动影游）
-
-夸克：https://pan.quark.cn/s/497c541094df
 
 #### 《崛起前线（Rising Front）》v2026.1.11 中文版
 
@@ -5869,10 +5885,6 @@
 
 夸克：https://pan.quark.cn/s/f07ff67ce6b0
 
-#### 《阿喀琉斯：幸存者（Achilles Survivor）》v1.19430 中文版
-
-夸克：https://pan.quark.cn/s/576d87afdf01
-
 #### 《坦克小队（Tank Squad）》v1.1.1 中文版
 
 夸克：https://pan.quark.cn/s/6b3ffe5170ec
@@ -7595,10 +7607,6 @@
 #### 《火焰限界（Bound By Flame）》v2195b 中文版
 
 夸克：https://pan.quark.cn/s/6dcd488b6d92
-
-#### 《金田一耕助系列 本阵杀人事件（Kindaichi Mystery Series The Honjin Murders）》Build.18211866 中文版
-
-夸克：https://pan.quark.cn/s/750572f0934b
 
 #### 《驾考模拟器（Chinese Driving Test Simulator）》v2022.1.6 中文版
 
@@ -12052,6 +12060,14 @@
 ## 互动影游
 > 靠前的是新添加的
 
+#### 《心之岛（Island of Hearts）》Build.22634882 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/b35015e315d3
+
+#### 《血薪记：罪恶园区（Blood Money Lethal Eden）》v2026.1.11 中文版（真人互动影游）
+
+夸克：https://pan.quark.cn/s/497c541094df
+
 #### 《嘘 美女拍摄中（Heroines Through My Lens）》v2025.12.27 中文版（真人互动影游）
 
 夸克：https://pan.quark.cn/s/9cb85dd9db6b
@@ -12389,10 +12405,6 @@
 #### 《明星志愿 系列合集（Stardom）》5部 最新 中文版
 
 夸克：https://pan.quark.cn/s/30bdef0d626b
-
-#### 《真探 系列合集（Case Cracker）》2部 最新 中文版
-
-夸克：https://pan.quark.cn/s/55be4234011a
 
 #### 《富甲天下 重制版 系列合集（The Millionaire）》4部 最新 中文版
 
