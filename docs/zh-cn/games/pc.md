@@ -50,7 +50,7 @@
 ## 最新添加
 !> 新添加及更新的游戏链接里面如果没有文件，就是在上传中，等待上传完毕就会显示...
 
-#### 《极限竞速：地平线6（Forza Horizon 6）》v354.221 全DLC 中文 联机版
+#### 《极限竞速：地平线6（Forza Horizon 6）》v360.259 全DLC 中文 联机版
 #### 《极限竞速：地平线5（Forza Horizon 5）顶级版》v1.688.044 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/7c5fdf0323c4
@@ -89,6 +89,18 @@
 夸克：https://pan.quark.cn/s/744a500cb67e
 
 迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+
+#### 《绝地鸭卫（PlatyGuard Swarm Slayer）》v1.3.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c9d392ed8964
+
+迅雷：https://pan.xunlei.com/s/VOsxlH_3JFdkfkWNmNsvc7iVA1?pwd=d9aw#
+
+#### 《潘多拉的玩具盒（Pandora's Toybox）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/abbcc2ef2584
+
+迅雷：https://pan.xunlei.com/s/VOsxeOyvqSxJMghtMAcqdV2jA1?pwd=ci7c#
 
 #### 《图书管理员：整理魔法图书馆吧！（Librarian Tidy Up the Arcane Library!）》v1.0.8 中文版
 
