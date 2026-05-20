@@ -21,6 +21,12 @@
 
 **靠前的是最新添加的**
 
+#### 《地球特派员》（2026）4K HDR 国英台音配 中字（动画电影）
+
+夸克：https://pan.quark.cn/s/949c35e265b3
+
+迅雷：https://pan.xunlei.com/s/VOt2RqcQbOI4mScpkHvKMCeQA1?pwd=y6bs#
+
 #### 《伪钞重案》（2026）4K
 
 夸克：https://pan.quark.cn/s/1de58923b792

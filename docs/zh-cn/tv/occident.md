@@ -42,6 +42,12 @@
 
 ## 已完结的
 
+#### 《继承之战》（2018-2023）1-4季全 蓝光1080P 内封中字
+
+夸克：https://pan.quark.cn/s/0c5f5c9cf193
+
+迅雷：https://pan.xunlei.com/s/VOt2T3yZmWAGpfg9pPKkn0DWA1?pwd=iivp#
+
 #### 《老练律师》（2024-2025）1080P 中英字幕 1-2季全
 
 夸克：https://pan.quark.cn/s/b5ae8073db91

@@ -22,6 +22,12 @@
 
 迅雷：https://pan.xunlei.com/s/VOqL_aXwnWBS9rUgdBb6PTOWA1?pwd=f5p3#
 
+#### 《超能路人甲》（2026）1080P 中字 8集全
+
+夸克：https://pan.quark.cn/s/8e6a2fb66ec4
+
+迅雷：https://pan.xunlei.com/s/VOt2MSA8C2t7X7a2rqynK4a3A1?pwd=bmaw#
+
 ---
 
 ## 已完结的...
