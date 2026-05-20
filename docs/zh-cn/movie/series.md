@@ -81,6 +81,10 @@
 
 阿里：<https://www.aliyundrive.com/s/ZhH5CQQGG34>
 
+#### 《鳄鱼邓迪》（1986-2001）1-3部合集 720P高码 国英配音 内封中字
+
+夸克：https://pan.quark.cn/s/32a25f83ae21
+
 #### 《超能敢死队》（1984-2024）1-5部合集 4K HDR 外挂中字
 
 夸克：<https://pan.quark.cn/s/4f83d322585f>

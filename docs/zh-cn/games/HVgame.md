@@ -26,6 +26,18 @@
 
 ## 已有游戏
 
+#### 《乐高蝙蝠侠：黑暗骑士之遗（LEGO Batman Legacy of the Dark Knight）豪华版》Build.23222834 中文版
+
+夸克：https://pan.quark.cn/s/af824a41d719
+
+#### 《勇者斗恶龙7：重制版（DRAGON QUEST VII Reimagined）》v1.0.1.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/e044dc2f3f3b
+
+#### 《足球经理26（Football Manager 26）》v26.3.0 中文版
+
+夸克：https://pan.quark.cn/s/ba689a73bfa0
+
 #### 《红色沙漠（Crimson Desert）豪华版》v1.04.02 全DLC 中文版
 
 夸克：https://pan.quark.cn/s/8f8e4c92e22e

@@ -142,6 +142,32 @@
 
 ## 最近更新
 
+#### 《美国卡车模拟（American Truck Simulator）高级版》v1.59.2.0s 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/b7c28d5b7861
+
+迅雷：https://pan.xunlei.com/s/VNytlxE8Cdcop3newiJvbDroA1?pwd=rzhu#
+
+#### 《孤山独影（cairn）》v1.1.393s 全DLC 中文版（生存攀岩游戏）
+
+夸克：https://pan.quark.cn/s/d565f18acf15
+
+#### 《圣杯誓约（Sworn）》v1.2.0.0.1220 中文 联机版
+
+夸克：https://pan.quark.cn/s/e4be77dbb052
+
+#### 《星空（Starfield）高级版》v1.16.242.0 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/5758eeac553a
+
+迅雷：https://pan.xunlei.com/s/VNy6HXv_Pqnb2KGS1cQqAoxYA1?pwd=ujx3#
+
+#### 《漫威宇宙入侵（MARVEL Cosmic Invasion）》v1.0.0.13170 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/2ffb58818955
+
+迅雷：https://pan.xunlei.com/s/VOt2_CEV8HtRvAxRWQUhQBLoA1?pwd=kczx#
+
 #### 《小小书店（Tiny Bookshop）》v1.1.6 中文版（模拟经营）
 
 夸克：https://pan.quark.cn/s/2c157e143ecc
@@ -1350,12 +1376,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNx2mfe31V6BBoXVv8otgrQyA1?pwd=6an7#
 
-#### 《星空（Starfield）高级版》v1.16.236.0 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/5758eeac553a
-
-迅雷：https://pan.xunlei.com/s/VNy6HXv_Pqnb2KGS1cQqAoxYA1?pwd=ujx3#
-
 #### 《灵魂面甲（Soulmask）》v1.0.0 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/17b6423c5409
@@ -2471,10 +2491,6 @@
 
 夸克：https://pan.quark.cn/s/74fb6e126eb4
 
-#### 《孤山独影（cairn）》v1.0.303s 全DLC 中文版（生存攀岩游戏）
-
-夸克：https://pan.quark.cn/s/d565f18acf15
-
 #### 《符文工厂3豪华版（Rune Factory 3 Special）》v1.0.4 全DLC 中文版（附第五部）
 
 夸克：https://pan.quark.cn/s/e8ccabee4ed3
@@ -3034,10 +3050,6 @@
 夸克：https://pan.quark.cn/s/a507e892f30a
 
 迅雷：https://pan.xunlei.com/s/VNy4bvg3plxbbrzKWqagvgU5A1?pwd=f59e#
-
-#### 《漫威宇宙入侵（MARVEL Cosmic Invasion）》v1.0.0.12409 中文版
-
-夸克：https://pan.quark.cn/s/2ffb58818955
 
 #### 《亡魂战纪（Winds Of Arcana Ruination）》v1.201 中文版
 
@@ -4249,12 +4261,6 @@
 
 迅雷：https://pan.xunlei.com/s/VNri90IcCAPiwlDMNmgWCYvLA1?pwd=btgj#
 
-#### 《美国卡车模拟（American Truck Simulator）高级版》v1.56.1.7s 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/b7c28d5b7861
-
-迅雷：https://pan.xunlei.com/s/VNytlxE8Cdcop3newiJvbDroA1?pwd=rzhu#
-
 #### 《救国少女之斯娜静歌（Snezhinka Sentinel Girls2）》v1.2.4 中文版
 
 夸克：https://pan.quark.cn/s/01766735c4df
@@ -4360,10 +4366,6 @@
 #### 《逃离永明岛（Escape Everlit）》v2025.10.2 中文版（文字解密冒险）
 
 夸克：https://pan.quark.cn/s/b8ba8a22c26f
-
-#### 《圣杯誓约（Sworn）》v2025.10.2 中文 联机版
-
-夸克：https://pan.quark.cn/s/e4be77dbb052
 
 #### 《以太术士 (Aethermancer)》v0.3.1.1 中文版
 
