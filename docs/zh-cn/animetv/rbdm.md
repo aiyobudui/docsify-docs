@@ -515,13 +515,11 @@
 
 夸克：https://pan.quark.cn/s/38cf9fa47224
 
-#### 《东京食尸鬼》1-4季全 日语 中字
+#### 《东京喰种》（2014-2018）1080P 1-4季全+真人版（东京食尸鬼）
 
-夸克：https://pan.quark.cn/s/743cd452a784
+夸克：https://pan.quark.cn/s/a76b3f1b8d79
 
 迅雷：https://pan.xunlei.com/s/VNvcGErk6H1rmwFKkGbCdTu0A1?pwd=69jc#
-
-阿里：https://www.aliyundrive.com/s/ZCWLJqpbnmA
 
 #### 《冰海战记》1-2季全 中字
 
@@ -718,10 +716,6 @@
 #### 《假面骑士 系列大合集》（1971-2023）日语 中字 个别有中文配音
 
 夸克：https://pan.quark.cn/s/720278c7beb7
-
-#### 《东京喰种》（2014-2018） 1080P 1-4季全+漫画+真人版
-
-夸克：https://pan.quark.cn/s/3687c224a5f0
 
 #### 《寄宿学校的朱丽叶》（2018）1080P 中字 12集全
 

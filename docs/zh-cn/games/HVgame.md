@@ -26,6 +26,10 @@
 
 ## 已有游戏
 
+#### 《双点博物馆（Two Point Museum）豪华版》v8.0.216267 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/7a82258d377f
+
 #### 《乐高蝙蝠侠：黑暗骑士之遗（LEGO Batman Legacy of the Dark Knight）豪华版》Build.23222834 中文版
 
 夸克：https://pan.quark.cn/s/af824a41d719
