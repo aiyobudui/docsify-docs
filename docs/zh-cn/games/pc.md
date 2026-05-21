@@ -71,24 +71,19 @@
 
 迅雷：https://pan.xunlei.com/s/VOsCsuXI1qHQuK8w9K4CWMWNA1?pwd=xbkk#
 
-#### 《深海迷航2：异星水域（Subnautica 2）》v0.10.0-113109 中文 联机版
-#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
-#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
+#### 《Bylina》v2026.5.19 中文版
 
-夸克：https://pan.quark.cn/s/68a01dbea110
+夸克：https://pan.quark.cn/s/9bea13975877
 
-#### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）**（新）**
-#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
-#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》v1.5.9.0 全DLC 中文版
-#### 《生化危机5（Resident Evil 5 Gold Edition）黄金版》v1.2.0 全DLC 中文版
-#### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
-#### 《生化危机7（Resident Evil 7 Biohazard）黄金版》v1.0.0.7 全DLC 中文版**（更新）**
-#### 《生化危机8 村庄（Resident Evil Village）黄金版》v1.2.3.9 全DLC 中文配音版**（更新）**
-#### 《生化危机 系列合集 12部》最新 黄金版 + 重制版 全DLC 中文版
+#### 《男神模拟器（Mr Right Simulator）》Build.23269762 中文版（真人互动影游）
 
-夸克：https://pan.quark.cn/s/744a500cb67e
+夸克：https://pan.quark.cn/s/450ef65b1140
 
-迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
+#### 《毁灭全人类（Destroy All Humans）》v1.0.2550 全DLC 中文版
+#### 《毁灭全人类2：重新探测（Destroy All Humans 2 Reprobed）》v1.0.713 中文 联机版（可同屏游玩）
+#### 《毁灭全人类：克隆人（Destroy All Humans Clone Carnage）》v1.0.11341 中文 联机版（只能分屏或联机）
+
+夸克：https://pan.quark.cn/s/8a389cc89740
 
 #### 《代号三国：龙起（The Three Kingdoms Rebirth）》Build.22973501 中文版（真人互动影游）
 
@@ -106,41 +101,31 @@
 
 夸克：https://pan.quark.cn/s/55be4234011a
 
-#### 《海盗：加勒比海战（Corsairs Battle of the Caribbean）》v2026.5.19 中文版
-
-夸克：https://pan.quark.cn/s/30d8c0de9ef9
-
-#### 《绝地鸭卫（PlatyGuard Swarm Slayer）》v1.3.3 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/c9d392ed8964
-
-迅雷：https://pan.xunlei.com/s/VOsxlH_3JFdkfkWNmNsvc7iVA1?pwd=d9aw#
-
-#### 《潘多拉的玩具盒（Pandora's Toybox）》v1.0.1 中文版
-
-夸克：https://pan.quark.cn/s/abbcc2ef2584
-
-迅雷：https://pan.xunlei.com/s/VOsxeOyvqSxJMghtMAcqdV2jA1?pwd=ci7c#
-
-#### 《图书管理员：整理魔法图书馆吧！（Librarian Tidy Up the Arcane Library!）》v1.0.8 中文版
-
-夸克：https://pan.quark.cn/s/76458c999b68
-
-#### 《酒店建筑师（Hotel Architect）》v1.0.0.7 中文版
-
-夸克：https://pan.quark.cn/s/6bab9fcb80fe
-
-#### 《落难航船 诅咒之岛的探险者（Stranded Sails）》v1.48 中文版
-
-夸克：https://pan.quark.cn/s/c8605fe8df91
-
-#### 《今古群侠传（Psychic Kung Fu Master）》v1.00 中文版
-
-夸克：https://pan.quark.cn/s/577df7c94ae6
-
 ---
 
 ## 最近更新
+
+#### 《深海迷航2：异星水域（Subnautica 2）》v0.10.1-113933 中文 联机版
+#### 《深海迷航（Subnautica）终极收藏版》v82304 中文版
+#### 《深海迷航：冰点之下（Subnautica Below Zero）终极收藏版》v53872 中文版
+
+夸克：https://pan.quark.cn/s/68a01dbea110
+
+#### 《突袭5（Sudden Strike 5）豪华版》v1.03.28630 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/075d317d2cc0
+
+#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.4 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/4cb951396b5f
+
+#### 《Trench Tales》v2026.5.20 英文版（战壕传说）哥特风二战射击
+
+夸克：https://pan.quark.cn/s/f07ff67ce6b0
+
+#### 《风马传奇（The Legend of Khiimori）》v0.8.4 中文版（古蒙古开放世界、养马、送信）
+
+夸克：https://pan.quark.cn/s/68a5c2635a39
 
 #### 《美国卡车模拟（American Truck Simulator）高级版》v1.59.2.0s 全DLC 中文版
 
@@ -192,6 +177,10 @@
 
 夸克：https://pan.quark.cn/s/750572f0934b
 
+---
+
+## 顶置游戏
+
 #### 《死亡搁浅2 冥滩之上（DEATH STRANDING 2 ON THE BEACH）豪华版》v1.7.76.0 全DLC 中文配音版
 #### 《死亡搁浅（DEATH STRANDING DIRECTORS CUT）导演剪辑版》v1.004 中文版
 
@@ -199,21 +188,18 @@
 
 迅雷：https://pan.xunlei.com/s/VNy6LAsi4eAnQARlG4R_5SlpA1?pwd=tbu9#
 
-#### 《满是猫的大楼2（A Building Full of Cats 2）》v2026.5.13 中文版（绘本找猫小游戏）
+#### 《生化危机9 安魂曲（Resident Evil Requiem）豪华版》v2026.3.27 全DLC 中文配音版（非虚拟化版本）
+#### 《生化危机3 重制版（Resident Evil 3 Remake）豪华版》v20230925 全DLC 中文版
+#### 《生化危机4 重制版（Resident Evil 4 Remake）豪华版》v1.5.9.0 全DLC 中文版
+#### 《生化危机5（Resident Evil 5 Gold Edition）黄金版》v1.2.0 全DLC 中文版
+#### 《生化危机6（Resident Evil 6）》v1.1.0 全DLC 中文 联机版
+#### 《生化危机7（Resident Evil 7 Biohazard）黄金版》v1.0.0.7 全DLC 中文版
+#### 《生化危机8 村庄（Resident Evil Village）黄金版》v1.2.3.9 全DLC 中文配音版
+#### 《生化危机 系列合集 12部》最新 黄金版 + 重制版 全DLC 中文版
 
-夸克：https://pan.quark.cn/s/ca4321c6f60b
+夸克：https://pan.quark.cn/s/744a500cb67e
 
-#### 《罪恶装备 奋战（GUILTY GEAR -STRIVE-）》v2.01 全DLC 中文 联机版（圣骑士之战 -奋战-）
-
-夸克：https://pan.quark.cn/s/e94c4d864e27
-
-#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.7.1 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/6b3dff37f4cb
-
----
-
-## 顶置游戏
+迅雷：https://pan.xunlei.com/s/VO6CGYtzDE-Xj4knMXHABHLbA1?pwd=u98k#
 
 #### 《仁王3（Nioh 3）豪华版》v1.05 全DLC 中文 联机版（新）
 #### 《仁王2（Nioh 2）完全版》v1.28.08 中文 联机版
@@ -368,6 +354,50 @@
 
 ## 已有游戏
 
+#### 《满是猫的大楼2（A Building Full of Cats 2）》v2026.5.13 中文版（绘本找猫小游戏）
+
+夸克：https://pan.quark.cn/s/ca4321c6f60b
+
+#### 《罪恶装备 奋战（GUILTY GEAR -STRIVE-）》v2.01 全DLC 中文 联机版（圣骑士之战 -奋战-）
+
+夸克：https://pan.quark.cn/s/e94c4d864e27
+
+#### 《要塞十字军东征：决定版（Stronghold Crusader Definitive Edition）》v2.7.1 全DLC 中文 联机版
+
+夸克：https://pan.quark.cn/s/6b3dff37f4cb
+
+#### 《海盗：加勒比海战（Corsairs Battle of the Caribbean）》v2026.5.19 中文版
+
+夸克：https://pan.quark.cn/s/30d8c0de9ef9
+
+#### 《绝地鸭卫（PlatyGuard Swarm Slayer）》v1.3.3 全DLC 中文版
+
+夸克：https://pan.quark.cn/s/c9d392ed8964
+
+迅雷：https://pan.xunlei.com/s/VOsxlH_3JFdkfkWNmNsvc7iVA1?pwd=d9aw#
+
+#### 《潘多拉的玩具盒（Pandora's Toybox）》v1.0.1 中文版
+
+夸克：https://pan.quark.cn/s/abbcc2ef2584
+
+迅雷：https://pan.xunlei.com/s/VOsxeOyvqSxJMghtMAcqdV2jA1?pwd=ci7c#
+
+#### 《图书管理员：整理魔法图书馆吧！（Librarian Tidy Up the Arcane Library!）》v1.0.8 中文版
+
+夸克：https://pan.quark.cn/s/76458c999b68
+
+#### 《酒店建筑师（Hotel Architect）》v1.0.0.7 中文版
+
+夸克：https://pan.quark.cn/s/6bab9fcb80fe
+
+#### 《落难航船 诅咒之岛的探险者（Stranded Sails）》v1.48 中文版
+
+夸克：https://pan.quark.cn/s/c8605fe8df91
+
+#### 《今古群侠传（Psychic Kung Fu Master）》v1.00 中文版
+
+夸克：https://pan.quark.cn/s/577df7c94ae6
+
 #### 《伊始之地（Terra Nil）豪华版》v1.2.12 中文版
 
 夸克：https://pan.quark.cn/s/90b60ae2cc4a
@@ -391,10 +421,6 @@
 #### 《钢铁雄心4（Hearts of Iron 4）终结版》v1.18.1.0.8549 全DLC 中文 联机版
 
 夸克：https://pan.quark.cn/s/e2644eb87c21
-
-#### 《欧陆风云5（Europa Universalis V）高级版》v1.2.2 全DLC 中文 联机版
-
-夸克：https://pan.quark.cn/s/4cb951396b5f
 
 #### 《云族裔（inZOI）》v0.8.3 全DLC 中文版（韩国模拟人生）
 
@@ -960,10 +986,6 @@
 #### 《Neon Village》v1.0.0.1 中文版（三消益智 卡牌建设）
 
 夸克：https://pan.quark.cn/s/fe4bacfc15a7
-
-#### 《突袭5（Sudden Strike 5）豪华版》v1.02.28385 全DLC 中文版
-
-夸克：https://pan.quark.cn/s/075d317d2cc0
 
 #### 《瓦格鲁斯 - 万壑之地（Vagrus - The Riven Realms）》v1.2.88.0417P 全DLC 中文版
 
@@ -2036,10 +2058,6 @@
 #### 《连接 内心的噩梦（Connection The Nightmare Within）》v2026.3.5 中文版（恐怖解密）
 
 夸克：https://pan.quark.cn/s/ba4e0f565b98
-
-#### 《The Legend of Khiimori》v0.5.0 中文版（古蒙古开放世界、养马、送信）
-
-夸克：https://pan.quark.cn/s/68a5c2635a39
 
 #### 《HORSES》v1.0.16500 中文版（心理暗示恐怖游戏）
 
@@ -5882,10 +5900,6 @@
 #### 《我来自江湖（From Jianghu）》v0.6.03 中文版
 
 夸克：https://pan.quark.cn/s/33c23d1b5afd
-
-#### 《Trench Tales》v2025.8.9 英文版（战壕传说）哥特风二战射击
-
-夸克：https://pan.quark.cn/s/f07ff67ce6b0
 
 #### 《坦克小队（Tank Squad）》v1.1.1 中文版
 
